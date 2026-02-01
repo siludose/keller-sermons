@@ -1,96 +1,138 @@
-# Duplicity: The Case of Peter
-# 双重性：彼得的案例
+# Duplicity The Case of Peter
+# 彼得的双重性：承诺的力量
 
-**Scripture / 经文:** Matthew 26:69-75  
-**Date / 日期:** 1995  
-**Series / 系列:** Integrity and Promises
+**Scripture / 经文:** 马太福音 26:69-75  
+**Date / 日期:** 待补充  
+**Series / 系列:** 待补充
 
 ---
 
 ## Outline / 讲道大纲
 
-### 1. The Power of Promises / 承诺的力量
-- Promises create identity and community / 承诺创造身份和社区
+### 1. Introduction: The Problem of Broken Promises / 引言：破碎承诺的问题
 
-### 2. The Failure of Peter / 彼得的失败
-- Peter's denial and its consequences / 彼得的否认及其后果
+### 2. The Power of Promises / 承诺的力量
 
-### 3. Restoration through Promises / 通过承诺的恢复
-- Jesus' restoration of Peter / 耶稣对彼得的恢复
+### 3. How Promises Make Us / 承诺如何塑造我们
 
-### 4. The Role of Jesus' Promises / 耶稣承诺的角色
-- Jesus as the ultimate promise keeper / 耶稣是终极的承诺守护者
+### 4. How We Can Make Promises / 我们如何能够做出承诺
+
+### 5. Conclusion: Following the Promise Keeper / 结论：跟随承诺的守护者
 
 ---
 
 ## English Transcript / 英文原文
 
-### Introduction
+### Introduction: The Problem of Broken Promises
 
-Recently, there was an inner church meeting of Christian men in the city called Promise Keepers. I got a chance to speak at it. The most unflattering way to explain that movement is to try to make Christian men make and keep more promises, make and keep more commitments. It was interesting that at that time, I was already preparing a sermon on the issue of integrity and Peter, and this incident here tells us, especially the case of Peter, tells us more about the power of commitments and the power of promise keeping than any other incident in the Scripture.
+You don't have to look far to see that something's deeply wrong with our world and with us. But is there an answer that gets to the root of why? In today's message, Tim Keller explores the human condition through stories in the Bible, uncovering what Scripture says about sin and why it's the only explanation deep enough to face the truth about ourselves.
 
-### Part 1: The Power of Promises
+Recently, there was an inner church meeting of Christian men in the city called Promise Keepers. I got a chance to speak at it. The most unflattering way to put it, the most unflattering way to explain that movement is to try to make Christian men make and keep more promises, make and keep more commitments.
 
-Peter was sitting out in the courtyard and a servant girl came to him. "You also were with Jesus of Galilee," she said, but he denied it before them all. "I don't know what you're talking about," he said. Then he went out to the gateway where another girl saw him and said to the people there, "This fellow was with Jesus of Nazareth." He denied it again with an oath. "I don't know the man." After a little while, those standing there went up to Peter and said, "Surely you are one of them. For your accent gives you away." Then he began to call down curses on himself and he swore to them, "I don't know the man." Immediately a rooster crowed and then Peter remembered the word that Jesus had spoken. "Before the rooster crowed, you will disown me three times." And he went outside and wept bitterly. This is God's word.
+> "Peter was sitting out in the courtyard and a servant girl came to him. 'You also were with Jesus of Galilee,' she said, but he denied it before them all. 'I don't know what you're talking about,' he said."
+
+**Peter was an absolutely broken man in the profoundest possible way.**
+
+### The Power of Promises
+
+This incident tells us more about the power of commitments and the power of promise keeping than any other incident in the Scripture.
+
+- Promises make identity and community.
+- Without promises, there's no identity and no community.
+
+### How Promises Make Us
+
+#### 1. Promises Make Identity
+
+Why was Peter weeping bitterly? Because he didn't know who he was. **Promises give identity.**
+
+- Modern people often say their identity is their desires and feelings.
+- But desires and feelings are in conflict and in flux.
+
+#### 2. Promises Make Community
 
 > "Without being bound to the fulfillment of our promises, we would never be able to keep an identity."
 
-### Part 2: The Failure of Peter
+- Promises create community.
+- The inevitable result of breaking commitments is aloneness.
 
-Peter made a promise that 40 verses later he's breaking the promise. And we're told in verse 75, and this is what I want to look at in particular with you, he went out and wept bitterly. Not just he wept bitterly. Why? He was an absolutely broken man in the profoundest possible way. And yet within weeks, within weeks, he was poised as the leader of a new movement, the Christian movement that was about to change history, and he was about to become one of the most influential leaders in the history of the world.
+### How We Can Make Promises
 
-### Part 3: Restoration through Promises
+#### 1. Understanding Jesus' Promises
 
-What broke him was he did not understand the power of promises. What restored him was he learned the secret. See, he didn't understand the power of promise breaking, but then he after that he learned the secret of promise keeping. And promises is the reason he was broken and promises is the reason he was restored.
+Peter saw Jesus as a promise keeper. He saw three promises that Jesus made:
 
-### Part 4: The Role of Jesus' Promises
+- Jesus promised to judge.
+- Jesus promised to die.
+- Jesus promised to forgive.
 
-In John chapter 21, Jesus comes and restores Peter. And in that passage, he just does this. I can give you synopsis. He does something. First of all, he sits Peter down at a fire. And three times he says, "Simon, son of Jonah, do you love me?" Peter says, "Yes, I do." And then he asks him again, "Do you love me?" And he says, "Yes, I do." And a third time, three denials, three questions. "Do you love me?" And he says, "Yes, I do." And after each time, what does Jesus say? "I want you to be a leader of my sheep. I want you to feed and lead my flock just like before."
+**Unless you see these three promises, you'll never be a promise keeper.**
 
-> "When a man makes an oath, Meg, he holds his own self in his hand like water. And if he opens his fingers, he needn't hope to find himself again."
+### Conclusion: Following the Promise Keeper
 
-### Conclusion
+In Jesus Christ, all the promises of God are yay and amen. **Let's be like him.**
 
-Jesus promised a judge. Jesus promised to die. And Jesus promised to forgive. We've got to have them all. I'm just going to tick them off. Number one, his promise to judge. Jesus Christ says, "Peter, I'm in charge. You live, you die, you die, you live. Don't you understand? I'm in charge. I am the judge of all the earth."
+Let's pray.
+
+> "We father, we ask that you'd grant to us now the possibility. People, men and women of integrity, men and women who are not too quick but not too slow to make commitments and to do so because your son did."
+
+**Make us people of our word, make us people of honesty.**
 
 ---
 
 ## 中文翻译
 
-### 引言
+### 引言：破碎承诺的问题
 
-最近，在城市里有一个基督徒男子的内部教会会议，叫做“承诺守护者”。我有机会在会上发言。最不客气的解释是试图让基督徒男子做出并保持更多的承诺，做出并保持更多的承诺。在那个时候，我已经在准备一篇关于诚信和彼得的讲道，这个事件尤其是彼得的案例，比圣经中的任何其他事件更能告诉我们关于承诺和承诺守护的力量。
+你不需要走得太远就能看到我们的世界和我们自身有多么深刻的问题。但是否有一个答案能够深入到问题的根源？在今天的信息中，Tim Keller 通过圣经中的故事探讨了人类的状况，揭示了圣经对罪的看法，以及为什么它是唯一能够深刻面对我们自身真相的解释。
 
-### 第一部分：承诺的力量
+最近，在城市里有一个基督徒男子的内部教会会议，称为承诺守护者。我有机会在会上发言。最不客气的说法是，这个运动试图让基督徒男子做出更多承诺，并坚持这些承诺。
 
-彼得坐在院子里，一个使女走到他面前，说：“你也是和加利利的耶稣在一起的。”但他在众人面前否认了，说：“我不知道你在说什么。”然后他走到门口，另一个女孩看见他，对那里的人说：“这个人是和拿撒勒的耶稣在一起的。”他又发誓否认：“我不认识那个人。”过了一会儿，站在那里的人走到彼得面前说：“你肯定是他们中的一员，因为你的口音出卖了你。”然后他开始诅咒自己，并对他们发誓：“我不认识那个人。”立刻鸡叫了，然后彼得想起耶稣曾对他说的话：“鸡叫之前，你会三次不认我。”他走出去，痛哭流涕。这是上帝的话。
+> “彼得坐在院子里，一个使女走到他面前，说：‘你也是和加利利的耶稣一起的。’但他在众人面前否认，说：‘我不知道你在说什么。’”
 
-> “如果不受承诺履行的约束，我们将永远无法保持身份。”
+**彼得在最深刻的意义上是一个完全破碎的人。**
 
-### 第二部分：彼得的失败
+### 承诺的力量
 
-彼得做出了一个承诺，但在40节之后他打破了这个承诺。我们在第75节被告知，这是我特别想和你们一起看的，他走出去，痛哭流涕。不仅仅是他痛哭流涕。为什么？他是一个在最深刻的意义上被彻底打破的人。然而在几周内，在几周内，他准备好成为一个新运动的领袖，这个基督教运动即将改变历史，他即将成为历史上最有影响力的领袖之一。
+这个事件比圣经中的任何其他事件更能告诉我们关于承诺和承诺守护的力量。
 
-### 第三部分：通过承诺的恢复
+- 承诺塑造身份和社区。
+- 没有承诺，就没有身份和社区。
 
-打破他的是他没有理解承诺的力量。恢复他的是他学会了秘密。看，他没有理解打破承诺的力量，但之后他学会了承诺守护的秘密。承诺是他被打破的原因，承诺是他被恢复的原因。
+### 承诺如何塑造我们
 
-### 第四部分：耶稣承诺的角色
+#### 1. 承诺塑造身份
 
-在约翰福音第21章，耶稣来恢复彼得。在那段经文中，他这样做了。我可以给你一个概要。他做了一些事情。首先，他让彼得坐在火边。三次他说：“约拿的儿子西门，你爱我吗？”彼得说：“是的，我爱你。”然后他又问：“你爱我吗？”他说：“是的，我爱你。”第三次，三次否认，三次问题。“你爱我吗？”他说：“是的，我爱你。”每次之后，耶稣说什么？“我希望你成为我的羊的领袖。我希望你像以前一样喂养和领导我的羊群。”
+为什么彼得痛哭？因为他不知道自己是谁。**承诺给予身份。**
 
-> “当一个人发誓时，梅格，他把自己的自我握在手中，就像水一样。如果他张开手指，他就不必希望再次找到自己。”
+- 现代人常常说他们的身份是他们的欲望和感受。
+- 但欲望和感受是冲突和变化的。
 
-### 结语
+#### 2. 承诺塑造社区
 
-耶稣承诺审判。耶稣承诺死亡。耶稣承诺宽恕。我们必须拥有这一切。我只是要列出它们。第一，他承诺审判。耶稣基督说：“彼得，我掌管一切。你活着，你死去，你死去，你活着。你不明白吗？我掌管一切。我是全地的审判者。”
+> “如果不受制于履行我们的承诺，我们将永远无法保持身份。”
 
----
+- 承诺创造社区。
+- 破坏承诺的不可避免结果是孤独。
 
-## Key Quotes / 经典引述
+### 我们如何能够做出承诺
 
-> "Without being bound to the fulfillment of our promises, we would never be able to keep an identity."
-> "如果不受承诺履行的约束，我们将永远无法保持身份。"
+#### 1. 理解耶稣的承诺
 
-> "When a man makes an oath, Meg, he holds his own self in his hand like water. And if he opens his fingers, he needn't hope to find himself again."
-> "当一个人发誓时，梅格，他把自己的自我握在手中，就像水一样。如果他张开手指，他就不必希望再次找到自己。"
+彼得看到耶稣是一个承诺的守护者。他看到耶稣做出的三个承诺：
+
+- 耶稣承诺审判。
+- 耶稣承诺牺牲。
+- 耶稣承诺宽恕。
+
+**除非你看到这三个承诺，否则你永远无法成为一个承诺的守护者。**
+
+### 结论：跟随承诺的守护者
+
+在耶稣基督里，神的所有承诺都是“是”和“阿们”。**让我们像他一样。**
+
+让我们祷告。
+
+> “父啊，我们请求你现在赐给我们可能性。成为正直的人，成为不太快但也不太慢做出承诺的人，并因为你的儿子这样做。”
+
+**让我们成为守信的人，让我们成为诚实的人。**
