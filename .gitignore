@@ -1,3 +1,27 @@
-*.mp3
+# OpenClaw workspace files
+AGENTS.md
+BOOTSTRAP.md
+HEARTBEAT.md
+IDENTITY.md
+MEMORY.md
+SOUL.md
+TOOLS.md
+USER.md
+
+# Folders
+bin/
+logs/
+memory/
+scripts/
+skills/
+whisper_venv/
+youtube_tasks/
+aws_tool/
+keller_sermons_output/
+keller_sermons_old/
+keller_sermons_md/
+
+# Files
 *.json
-*_transcript.txt
+youtube_cookies.txt
+.DS_Store
