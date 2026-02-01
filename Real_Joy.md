@@ -7,6 +7,8 @@
 
 ---
 
+---
+
 ## Outline / 讲道大纲
 
 ### 1. Introduction: The Difference Between a Morally Restrained Heart and a Supernaturally Changed Heart / 引言：道德约束的心与超自然改变的心的区别
@@ -21,51 +23,211 @@
 
 ## English Transcript / 英文原文
 
-### Introduction: The Difference Between a Morally Restrained Heart and a Supernaturally Changed Heart
+Today, Tim Keller is unpacking one of the fruit  of the Spirit, helping us see what it means to move from trying to be good to truly  changing from the inside out. The Scripture reading comes from Romans 5 verses 1 through 11. Therefore, since we have  been justified through faith, we have peace with God through our Lord Jesus Christ, through  whom we have gained access by faith into this grace in which we now stand. And we rejoice  in the hope of the glory of God, not only so, but we also rejoice in our sufferings because  we know that suffering produces perseverance, perseverance, character, and character hope. And hope does not disappoint us because God has poured out His love into our hearts by  the Holy Spirit whom He has given us.
 
-The Bible says there's a world of difference between a will-power-driven heart and a supernaturally-changed one. Today, Tim Keller is unpacking one of the fruit of the Spirit, helping us see what it means to move from trying to be good to truly changing from the inside out.
+You see, at just the right time, when we were still  powerless, Christ died for the ungodly. Very rarely will anyone die for a righteous man,  though, for a good man, someone might possibly dare to die. But God demonstrates His own  love for us in this. All we were still sinners, Christ died for us. Since we have now been  justified by His blood, how much more shall we be saved from God's wrath through Him?
 
-The Scripture reading comes from Romans 5 verses 1 through 11. Therefore, since we have been justified through faith, we have peace with God through our Lord Jesus Christ, through whom we have gained access by faith into this grace in which we now stand. And we rejoice in the hope of the glory of God, not only so, but we also rejoice in our sufferings because we know that suffering produces perseverance, perseverance, character, and character hope. And hope does not disappoint us because God has poured out His love into our hearts by the Holy Spirit whom He has given us. You see, at just the right time, when we were still powerless, Christ died for the ungodly. Very rarely will anyone die for a righteous man, though, for a good man, someone might possibly dare to die. But God demonstrates His own love for us in this. All we were still sinners, Christ died for us. Since we have now been justified by His blood, how much more shall we be saved from God's wrath through Him? Or if, when we were God's enemies, we were reconciled to Him through the death of His Son, how much more, having been reconciled, shall we be saved through His life? Not only is this so, but we also rejoice in God through our Lord Jesus Christ, through whom we have now received reconciliation. This is God's Word.
+Or if, when we were God's enemies, we were reconciled to Him through the death of His Son,  how much more, having been reconciled, shall we be saved through His life? Not only is this  so, but we also rejoice in God through our Lord Jesus Christ, through whom we have now  received reconciliation. This is God's Word. The premise of the Bible, well, there's a lot of premises, but the premise we're thinking  about today, tonight, one of the premises of the Bible is that there's a difference  between a morally restrained heart and a supernaturally changed heart. There's a difference  between using your willpower to suppress your self-centeredness and your fearfulness as  another thing, to have the Holy Spirit permanently change your heart, not through the power of  willpower, but through the power of the Spirit itself.
 
-The premise of the Bible, well, there's a lot of premises, but the premise we're thinking about today, tonight, one of the premises of the Bible is that there's a difference between a morally restrained heart and a supernaturally changed heart. There's a difference between using your willpower to suppress your self-centeredness and your fearfulness as another thing, to have the Holy Spirit permanently change your heart, not through the power of willpower, but through the power of the Spirit itself. And Himself.
+And Himself. However, what we're going  to be looking at over the next few weeks is a series of characteristics of a supernaturally  changed heart. How do you know whether you're just trying to be good or whether the Holy  Spirit's really brought transformation into your life? The way to do that is to look  at what's called the fruit of the Spirit in Galatians 5. Love, joy, peace, patience, kindness.
 
-### Part One: The Importance of Joy
+There's a whole set of traits or characteristics of a supernaturally changed heart, and each  week we're looking at one of them. And tonight, we're looking at joy. And this passage,  in Galatians 5, 1 to 11, tells us three things about joy. It tells us that joy is important. It tells us that joy is, secondly, Christian joy is unique, and then thirdly, it tells us  where Christian joy comes from.
 
-#### 1. Joy as a Mark of Justified Believers
+It's important, Christian joy is unique, and where it comes  from. Number one, that joy is important. Verse 1 talks about justification by faith. Therefore, since we've been justified by faith, we have peace with God. And what Paul's  doing there is he's referring to everything he's been talking about in chapters 1 to 4.
 
-What we're going to be looking at over the next few weeks is a series of characteristics of a supernaturally changed heart. How do you know whether you're just trying to be good or whether the Holy Spirit's really brought transformation into your life? The way to do that is to look at what's called the fruit of the Spirit in Galatians 5. Love, joy, peace, patience, kindness. There's a whole set of traits or characteristics of a supernaturally changed heart, and each week we're looking at one of them. And tonight, we're looking at joy. And this passage, in Galatians 5, 1 to 11, tells us three things about joy. It tells us that joy is important. It tells us that joy is, secondly, Christian joy is unique, and then thirdly, it tells us where Christian joy comes from. It's important, Christian joy is unique, and where it comes from.
+And what does this justification by faith mean? Every other religion says, live as you  ought, and then God will bless and accept you. But only Christianity says, you receive  as acceptance and blessings of free gift through faith, because of Jesus' record, not your  record. And then you can and will live as you want. Total reversal, very revolutionary.
 
-**Number one, that joy is important.** Verse 1 talks about justification by faith. Therefore, since we've been justified by faith, we have peace with God. And what Paul's doing there is he's referring to everything he's been talking about in chapters 1 to 4. And what does this justification by faith mean? Every other religion says, live as you ought, and then God will bless and accept you. But only Christianity says, you receive as acceptance and blessings of free gift through faith, because of Jesus' record, not your record. And then you can and will live as you want. Total reversal, very revolutionary.
+And to be a Christian is to someone who's now justified by faith. You have peace with  God. You're accepted by him because of what Jesus has done. And now what is the main  mark of a real Christian life? What's the main characteristic?
 
-> "The main mark of justified believers is joy."
+And according to chapter  5, 1 to 11, look, it says in verse 2b, it says, now we rejoice, joy in the hope of the  glory of God. And then in verse 3, not only this, we rejoice in our suffering. And then  down to verse 11, it says, and we rejoice in God. So John Stott, who's written a commentary  on the book of Romans, says, it seems clear from this paragraph that the main mark of  justified believers is joy. The major main mark, which means this text is saying that  to live a Christian life, in fact, to live life, you need a center of joy, an enormous  joy at your very center.
 
-John Stott, who's written a commentary on the book of Romans, says, it seems clear from this paragraph that the main mark of justified believers is joy. The major main mark, which means this text is saying that to live a Christian life, in fact, to live life, you need a center of joy, an enormous joy at your very center.
+Now a lot of people don't believe that. A lot of people don't  believe that. A lot of people are afraid the pursuing joy is a dead end. For example, Amy  Bloom, over the last few years, by the way, there's been a lot of happiness studies, happiness  psychology. Have you seen those?
 
-### Part Two: The Uniqueness of Christian Joy
+Lots of books trying to explore what makes us happy and  how we can be happy. And there's tons and tons of books on positive thinking and how  you can get control of your life so you can be happy. And by and large, the intelligentsia,  you know, the intellectuals and the writers and the pundits and the artists and the philosophers  hate all of that talk. Amy Bloom just a couple of months ago wrote this in the New York Times  essay. The name of the essay was The Wrap on Happiness.
 
-#### 1. Joy Not Based on Circumstances
+And here's what she says. She says  the fashion, she says this, excuse me, quote, smart people talk trash about happiness and  worse than trash about books on happiness. And we have done so for centuries because happiness  studies and positive psychology, we don't see as being the work of the devil, but the work  of morons. And then she goes on to explain some of the reasons why. But here's the main one.
 
-Christian joy is unique, and Christian joy gets you out of the dilemma. How so? There's two ways the Christian joy is unique. And the first one is that Christian joy is not based in circumstances at all. Look, what does it say in verse three? It says, we rejoice in our sufferings. What? Now what are sufferings? Sufferings, suffering is favorable circumstances going away.
+She says the real problem with happiness is not as pursuers or their books. It's happiness  itself. It's transience. It's deep but often brief. The world passes away from us.
 
-**Christian joy can grow when things are bad.**
+The  petals fall and the beloved dies. And no amount of fashionable scowling will keep us from  savoring the pleasure of the sun on our faces or save us from our adult understanding that  it cannot last. Now what she's saying is this, if you really want serenity in life, don't  pursue happiness because anything you get joy from will not last. When no matter what  it is, it's going to disappoint you. So the only way to get serenity is not to try  to be happy.
 
-#### 2. Already But Not Yet
+Not to try to pursue joy. Now look, I understand this. When I was a 13-year-old  boy in the summer of 1964, okay, do the math. My team was the Philadelphia Phillies. And with  12 games to go, they were six games ahead of the second place St.
 
-Christian joy is unique because it's already but not yet. Look, on the one hand, verse 2b says, we rejoice in the hope of the glory of God. Now what's that mean? It means when you become a Christian because your salvation is not based in your good works and your efforts. There's a certainty you've got about your future.
+Louis Cardinals in the  National League. 12 games to go. Six games ahead. They're going to go to the World Series. And then they proceeded, some of you historians know, to lose 10 in a row. 10 games in a row. And they lost and they never went to the World Series.
 
-### Part Three: How to Obtain Christian Joy
+Now when you're a 13-year-old boy  and that's your team, those 10 games, I lived through every pitch, every at bat, every out. I was dying a thousand deaths. I was experiencing an agony that no 13-year-old boy believed was possible. And when it was done, and my heart was literally broken, and you know what, okay, we're laughing,  but you know, it was awful. What I said was, never again.
 
-#### 1. Understanding the Gospel
+I am never giving my heart to,  okay, fill in the blank because you see, all of us have something like that. Now,  you know, there are people who to this day are not past the emotional level of a 13-year-old boy  and it's still sports teams that are breaking their hearts. But for most of the rest of it,  it's what? I'm never going to, you know, it's a man or a woman or it's love or it's career,  it's success or something like that. And what happens is because our hearts want joy and our  hearts are like a big vacuum pump that has this enormous amount of sucking and it fixes itself  on something that this is going to make me happy.
 
-How do you really get this joy? Because I've been all long saying Christian joy is like this and Christian joy is like that. Well, how do you get Christian joy? You say, well, I guess become a Christian. Well, let's be a little more specific because I know an awful lot of Christians that don't have much of the joy.
+And when it disappoints, then it will disappoint. See, it will not last. Then you say, okay, the only way I'm ever going to get serenity is to stop  pursuing joy and get what the philosopher is called detachment. In fact, that's what Buddhism is about. Buddhism is all about that.
 
-**The gospel shows you the magnitude of your danger.**
+And the old philosophers, the Greek philosophers, we're always about  detachment. Don't give your heart to anything. And that's the only way you'll be serene. Don't pursue  joy. Don't pursue happiness.
 
-#### 2. Meditating on Jesus' Sacrifice
+But there's a problem with that. Joseph Epstein, who's a brilliant scholar,  has taught English at Northwestern University for years, he was the editor of the American scholar  and he's just retired. But recently, he wrote an article in the Notre Dame magazine. And in it,  he recounts one of the great Greek philosophers, ancient Greek philosophers named Epicurus. And at one point, Epicurus got his disciples together in his garden and said, I can give you a  four step remedy for anxiety.
 
-You look and say, Lord Jesus, you lost all joy that I could have eternal joy. You experience enormous anguish so I could have new life. And that's how the love comes.
+I can eliminate anxiety from your life. You can just be completely  serene if you just do these four things. He says, I can eliminate anxiety in the world if everybody  will do these four things. Would you like to know what they are? All right, well, okay.
 
-Let's pray. Thank you, Father, for giving us joy and giving us the capacity for far greater joy than we have. Lord, I pray that anyone here who has not really come on to the inside of belief in the gospel has not really received it, has not really accepted it, has not really come to know you by faith. It's not really experienced justification. I pray that they would and that they would therefore begin to understand this joy. Joy in the face of the future, joy in the face of suffering, joy before you. But I also pray, Lord, for all the rest of us who already believe, but to great degree are relying on worldly circumstances for our happiness. Give us this joy, root us and ground us in joy. Give us an experience of your love so that we can have the joy that Jesus had for the joy that was set before him. He endured the cross. And for the joy that you have given us we can do or anything because he endured that for us. It's in his name that we pray. Amen.
+Well, here's, and this is what Epstein says. He says, this is his summary of Epicurus' four steps. Step one, do not believe in God or in the gods. Okay, why? Okay, step two.
+
+Therefore, now you don't  have to worry about death. Death, be assured, is oblivion. Nothing more than eternal dreamless sleep. See, there's no God or God. There's no heaven or hell.
+
+You know, therefore, don't believe in God  or gods. Therefore, death is not nothing to be afraid of. Go and you die. It's like before you  were born, just an eternal dreamless sleep. Step three, don't be afraid of pain.
+
+Why? Because pain  will either soon diminish and go away, or it will intensify in which case death is not far away  and as we've already seen, that's no problem. And now step four, do not attempt to acquire things  or money or fame or power. Why? Don't try, don't set your heart on anything.
+
+Because if you,  because if you try for them, you may not attain them, which of course will mean you're very unhappy. But even if you do, he says, they never give you the value that is as great as what you spent trying  to obtain them. The game is not worth the candle. So there's the summary and Epstein summarizes  Epicurus' four steps for an anxiety-free life. He says, forget about God, forget about death,  forget about pain and forget about acquisition.
+
+And then he says, the only way to find serenity,  according to the philosophers, is to stop seeking joy. Detach yourself from everything. Don't  attach your heart to anything. And here is what Epstein says. Conclusion, my guess is that this  program would work.
+
+But even if it did work, would such utter detachment from life constitute a life  rich and complex enough to be worth living for? Many would say, yes, I am not among them. Now, actually, C. S. Lewis has said a little bit more eloquently.
+
+He says, if you don't want your  heart to be broken, if you always want serenity, don't give your heart to anything. Don't give it to  the Philadelphia Phillies. Don't give it to anything. Don't give it to a man or woman, anything. Oh, he does mean you can't get married, but don't completely give your heart to anyone or anything.
+
+Put it in a little casket. You see, to make sure that it never breaks, but in that casket,  it will become unbreakable, impenetrable, and irredeemable. And see, what Epstein is saying,  what C. S. Lewis is saying is, yes, on the one hand, if you give your heart to things, you're  going to be disappointed.
+
+So if you seek joy, you're going to be disappointed. But on the other hand,  if you detach yourself and say, I'm not giving my heart to anything, that dehumanizes you. It hardens you. Well, is there any way forward now? The answer is yes.
+
+Why? Because it's a sermon,  and that's only point one. Now there's point two. And point two is Christian joy is unique,  and Christian joy gets you out of the dilemma. How so?
+
+There's two ways the Christian joy is unique. And the first one is that Christian joy is not based in circumstances at all. Look, what does it  say in verse three? It says, we rejoice in our sufferings. What?
+
+Now what are sufferings? Sufferings,  suffering is favorable circumstances going away. Now here's the place where I think I'm going to  part ways with the word happiness, if you don't mind, because I actually don't believe that Christian  joy is what the world calls happiness. What the world calls happiness is, getting control of your  life so that you keep your circumstances favorable. Did you know that there is a happiness.com?
+
+And at happiness.com, there is this, the surefire top five components for happiness. All right? Five things, if you get put these in place, you're happy. Number one, it says be in possession of  the basics. Food, shelter, good health, and in safety.
+
+Number two, get enough sleep. All right. Sure, fine. Three, have relationships that matter to you, four, take compassionate care  of others and yourself, and five, have work that really interested engages you. Okay?
+
+So get the  basics, food, shelter, good health. Do you realize how ridiculous that is? You say, what do you mean  ridiculous? Sure, you need all that to be happy. Sure, you need that to be happy.
+
+Most people,  most places, most centuries have never had that. What are we going to do about all the people who  could never get enough food, shelter, good health, and safety today? They'll never will have it. You talk about engaging and interesting work. In other words, what this is saying, and this is  what the world believes, happiness is getting my circumstances in the right place.
+
+I'm happy if  things are going well. Circumstances are favorable. But what about most of the people and most of  the times and most of the places that never have favorable circumstances like that? Are they doomed  to no happiness? Yes, they're doomed to no happiness as you and I define happiness in this culture  today.
+
+A joy is available to them. And that Christian joy is not based on circumstances at all. In fact, look, when it says we rejoice in suffering, it doesn't mean, by the way, it's not saying  you rejoice for your suffering. You don't say, we, I'm suffering. Hey, that's great.
+
+That's  masochism. Forget that way. It says we rejoice in our suffering. Well, how can you rejoice in  your suffering? Of all your circumstances are going bad.
+
+Verse 11, you rejoice in God. And he's not susceptible. He's not subject to circumstances. But here's what's really  interesting about verse 3 and 4. It says, you rejoice in suffering with why?
+
+Because suffering  produces stronger endurance. Perseverance means character and perseverance and encourage. And that leads to more hope. And that hope is in the future glory of God, which makes us rejoice  the verse 2 B says we rejoice in the future glory of God. We'll get there in a minute.
+
+Verse 3 says  suffering can actually give you more of that hope and therefore more of that joy. And what this is  saying is, Christian joy, unlike worldly happiness, not only can be maintained when all circumstances  go unfavorable, but it can also grow. In fact, it does usually grow. You say, how can that be? Christian joy can grow when things are bad.
+
+The worldly happiness goes away when things are bad. Why? Because it's based in good circumstances. But Christian joy can actually get stronger. How?
+
+Well, don't you remember how your mother used to always say? Don't eat that candy before meals. You know, if she would ever want it anytime within about 30 minutes before you're about to eat,  you know, a meal, your mother would be all over if you're eating potato chips or candy or anything  sweet or anything like that. Why? She says, it'll ruin your appetite.
+
+And mothers aren't always  right. Mothers are never in, you know, often wrong, but never in doubt. However, they are right about  this. And that is the trouble with eating candy is it gives you a sugar buzz and you don't feel hungry,  but it masks the fact that your body needs proteins and it needs all kinds of stuff that you don't have. Candy gives you a sugar buzz that masks the fact that your body needs nutrients that you're  not giving it and sex and money and power and success.
+
+Favorable circumstances are spiritual sugar. And what happens to Christians is you say, oh, I believe in God and I know I'm going to heaven  whatever, but you actually base your day-to-day joy and happiness on circumstances and when the  circumstances go away, it drives you into God because when the sugar goes away, when the candy  goes away, you're forced to go after the feast that your soul really needs to get the nutrients  your soul really needs. What happens when things go bad is it drives you into God and you develop  a poise, you develop a power, you develop a strong kind of joy that never goes away regardless  of circumstances. The Psalms can profoundly shape the way you approach God. Even Jesus relied on the  Psalms to face every situation, including death.
+
+In Tim and Kathy Keller's 365-day devotional,  the songs of Jesus, you'll find daily readings through the Psalms with fresh biblical insight. If you don't have a regular devotional practice, this book is a wonderful way to start and if you  already spend time and study in prayer, then reading and praying through the Psalms can help you  bring your deepest emotions and questions before God and discover a new level of intimacy with him. We'll send you Tim and Kathy Keller's devotional as our thanks for your gift to help Gospel  and Life share the love of Jesus with more people. Request your copy today at gospelandlife.com-slash-give  that's gospelandlife.com-slash-give. So first of all, Christian joy is unique because it's not based on circumstances.
+
+It's not grounded in circumstances, but secondly, Christian joy is unique  because it's already but not yet. It's already but not yet. Look, on the one hand,  verse 2b says, we rejoice in the hope of the glory of God. Now what's that mean? It means when  you become a Christian because your salvation is not based in your good works and your efforts.
+
+There's a certainty you've got about your future. See, remember what we said about all the religions,  all of the religions say, if you live as you want, then God will bless you, which means in every  if you believe the reason God blesses me, the reason I believe I have a relationship with God is  because I've lived a good life and I'm living a good life and I'm praying and I'm doing all these  things. That means you have no certainty about your future, spiritually speaking because what if  you give up or what if you don't keep it up? You can't be sure because you haven't gotten  into your life yet and you might fail or you might do something. So religion in which your salvation  essentially is earned by you creates an uncertainty about your future.
+
+But Christianity says there's  now no condemnation for those who are in Christ Jesus and it's absolutely certain that someday  you will share in the hope of the glory of God that you'll live in the world before him and this  world is going to be completely renewed and when you get there, the moment you get there, you're  going to stamp your foot and you're going to say, I've come home at last. This is my real country. I belong here. This is the land I've been looking for all my life and I never knew it till now. And the knowledge of that, the knowledge of that, it's not yet but it's there, it's coming.
+
+The word  hope in the Bible does not mean hope so, it's not an uncertainty. Hope in the Bible is life-shaping  certainty of something that you're going to have but you don't have it yet. But even the  stories about it and the thoughts about it and the biblical texts about it and our understanding  of that future is grounding. See, it's poised creating. When other circumstances are going away,  becoming unfavorable, we know about the hope of the glory of God.
+
+That's not yet but is that all we have? We just know what's going to happen. We just think about it. So when we're suffering,  we just say, I know in the future it's going to be better. Is that it?
+
+No, that's not all we have  because look carefully. Verse 4 and 5. It says, suffering produces perseverance and perseverance  character and character hope and our hope does not disappoint us why because God has poured out his  love into our hearts by the Holy Spirit who he has given us. What does that word pour out mean? Does that mean the Holy Spirit just tells us that God loves us?
+
+Does that mean that we know that God  loves us? We already know God loves us. What is this talking about? The poor out metaphor  is a way of expressing experience. And this is saying that sometimes that feast that we know we're  going to have in the future, we get an order of now.
+
+Sometimes that glory that we're going to have  in the future, sometimes you experience it now. And this is at the very heart of the Christian joy  that's available to you through Christ, through the faith of Christ, through the Holy Spirit. It's a foretaste of that glory. Some of the old people, I mean some of the old British  pastors like Richard Sibs and William Guthrie write about it like this. Listen, this is 17th  century English but so work with it.
+
+Here he says, Richard Sibs says, sometimes our spirits cannot  stand in trials. So the immediate testimony of the Spirit comes to us saying, I am thy salvation  and our hearts are stirred up and comforted with joy inexpressible. This joy has degrees. Sometimes it's so clear and strong that we question nothing and other times doubts come in soon. William Guthrie says, it's not an audible voice.
+
+We don't hear an audible voice. Rather, what we're talking about here is a ray of glory filling the soul. It's like the word of Jesus to Mary. The Lord only said her name in the garden, Mary. And it filled her soul so she no longer doubted she was his.
+
+How glorious is this manifestation of the  Spirit. You will not have the Christian joy that roots and grounds you no matter what the circumstances. You will tend to simply rely on worldly happiness which is based on favorable circumstances which  of course is so fragile. You will not have the Christian joy unless sometimes you have experiences  of the love of God direct to your heart through prayer. It's the foretaste of that.
+
+It's the  already foretaste of the not yet. And you heard what Richard said. It doesn't happen a lot. It doesn't happen constantly. Sometimes it's very high.
+
+Sometimes it's kind of low and it goes  away fast. But you know it. When you have those experiences, I know it's weird to have a  Presbyterian minister saying this. When you have those experiences that goes along with your knowledge  because I know I'm saved by grace, I know that the glory of God is my destiny. And yet at the same  time I've got a subject that is well as an objective nature.
+
+It might not only have my mind. I've got  my heart. And the Bible says Christian joy gives you what you need both head and heart. And do you not see now? How this in a sense answers the dilemma we talked about in the first point.
+
+Because the first point dilemma is this. Things in this world are great. And yet if we give our heart  to them, then we get disappointed. So then we detach. And then we don't rejoice in things.
+
+C.S. Lewis's autobiography is called Surprise by Joy. And it's all about the fact that before he  was a Christian, he was always trying to find joy in other things. And whenever he found something  he thought would give him joy, he binged on it. So for example, the first time he read an Icelandic  saga.
+
+He loved it. And he started to say, oh I want to get that feeling back. I have when I read it. It  was so exciting. So what he did to do, he reads every Icelandic saga.
+
+And then he goes and learns  old Norse so he can read it in the original. And yet as he works through it, he comes to realize  well somehow the joy I thought was going to give me never comes through. And then suddenly he gets  a friend. And you know sometimes there's nothing more wonderful than a great evening talking with  a friend. And you come back feeling so good.
+
+And when he first made it, he would get a friend and  he would binge on the friend. Every night, let's get together. Let's talk. After a while the friend  saying, whoa, maybe not tonight. Or maybe not for a while.
+
+He would binge. And at one point,  he becomes, he starts to realize that there's a god behind the joy. And as he was getting converted  as he was sort of moving toward becoming a Christian, he says this at one point. He says the book,  I came to realize that the books are the music in which I thought the beauty and the joy was located  betrayed me if I trusted in them. The joy was not in them.
+
+It only came through them. These things, these things, the joy, the beauty, if they're mistaken for the thing itself,  the things that give it through which it comes. If they're mistaken for the thing itself,  they turn into dumb idols breaking the hearts of their worshipers. For they are not the joy itself,  these things that bring it. They are only the scent of a flower we haven't found yet.
+
+The echo of a tune we have not heard yet. The news from a country we haven't visited yet. And at the very end, the last chapter, the last page of his autobiographies,  become a Christian. And here's what he says. It's very, very interesting.
+
+He says, for many years,  he thought the joy is here, the joy is here. And he would go to that landscape or that set of  friends or that book or that writing or whatever. And then he came to realize it was from God. And the joy was coming through the things. And then he ends with this fascinating illustration.
+
+I want to tell what I would give you because I think it actually answers the problem. He says, if you are lost in the woods, and you first come upon a signpost, it's a big deal. The one who first sees the signpost in the woods says, look, and the whole party gathers  around and stares and says, ah, finally, that's the direction. But if you found the road,  and if you're passing signposts every few miles, you don't stop and stare at the signposts. They encourage you.
+
+And you will be grateful to the authority that set them up. But we will not stop and stare at the signposts or at least not too much,  though their pillars are of silver and their lettering is of gold. Why? Because we would rather be in  Jerusalem. See his point.
+
+He says, if you really are lost when you find a signpost, you get  pretty excited about it. But when you know your way, when you know the thing to which the signpost  point, that's where you're on your way. And you don't stop and look at the signposts. And what  do you realize is food, friends, success, acclaim, popularity, money, all the things that we think,  if I have that, that's going to give me the joy, our signposts. So enjoy them.
+
+Some of them are great. There are some of them are made of silver with letters of gold. But don't mistake the signposts  for what they're signing, the thing they're pointing to, which is the city of God, which is God  himself. And that gets you out of either being afraid of enjoying things in this life or at the  same time resting your heart too much in them. And let's final question.
+
+How do you really get  this joy? Because I've been all long saying Christian joy is like this and Christian joy is  like that. Well, how do you get Christian joy? You say, well, I guess become a Christian. Well,  let's be a little more specific because I know an awful lot of Christians that don't have much of  the joy.
+
+And here's what I'd like you to see. The last part of the passage, the last part,  is, you know, worth five or six sermons. And by the way, there's plenty of people who preach five  or six sermons on these, you know, verses. However, the essence of them is the gospel. And in  verses eight and nine, there's a beautiful little summary of what the gospel is while we were still  sinners Christ died for us.
+
+That we might be saved from God's wrath. Now God's wrath  is it's not just crankiness. God's wrath is his judicial opposition to evil. His settled judicial  opposition to injustice and evil. And the human race deserves punishment because we have  participated in evil and injustice.
+
+But Jesus Christ, while we were still sinners, that's grace. Not because we cleaned up our life. While we're still sinners, Jesus Christ took the wrath. He took  the condemnation. He took the punishment.
+
+And that's the gospel. How does that bring joy? Two ways. And these are very important in their practical number one, the gospel shows you the magnitude of your  danger. Now this is counterintuitive because from the outside, the gospel, the first part of the  gospel, which is you're a sinner, you're lost, you deserve punishment, you deserve wrath.
+
+That sounds  negative. Gee, why would you consider that negative? Well, of course it sounds negative. But you  know what that means on the inside. On the inside, we realize the size of the debt and the magnitude of  the danger we were in, which we weren't aware of before.
+
+One preacher put it like this. He says,  imagine that you went away and a friend of yours was staying in your home. And when you came back,  your friend said, you know what? A bill came for you. And I opened it.
+
+I hope you don't mind. And I saw what the bill was. And I paid it for you. I paid it out of my own money. And the  preacher says, okay, now, how should you respond?
+
+And the answer is, you have no idea how to respond. You know why you don't know why you're out of respond? Because you don't know the size of the debt. You don't know how big the bill was. Was it postage due on this package?
+
+Then you would have said,  oh, thank you. That was very kind of you. But what if the IRS finally found where you lived? And that was the bill for back taxes that you know you have no resources of your own  to fulfill that bill. And that was paid for.
+
+In other words, the preacher says,  until you know the size of the bill and the size of the debt, you don't know whether you to say,  hi, thank you very much, were to fall at his feet as dead saying, you saved me. You don't know how  grateful to be. You don't know how joyful to be until you know how bad you bad off it was, right? And JC Ryle, the old Bishop of Liverpool says, one of the reasons why you get so upset  over the debts, your financial debts, your financial problems is you don't realize that the great  debt, the only debt that debt of sin, the only debt that could really sink you has been paid. And when you see that, then all other debts, no matter how great they seem to be, you are little.
+
+You follow that. See, from the outside, the idea that you're more wicked than you ever did believe  and you deserve wrath, you deserve to be punished. That sounds like bad news from the inside. Once you believe in the gospel and you see that all those years, the sort of damnacles was over  your head and you never knew was about to fall. When you see the magnitude of the debt, the magnitude of  your danger and you realize what you were delivered from, it inflicts a joy on you that never goes away.
+
+That is, if that sounds odd to you, it's because you're not deeply on the inside. You really  haven't come on the inside. You haven't really accepted that. If you accept the bad news of the  gospel that you're a sinner needing salvation from the inside, it creates a joy that says,  you know what? Okay, I've got debts.
+
+I've got diseases, but the only debt that can really  sink me has been paid and the only disease that can really kill me eternally has been healed. And even cancer can't do that. It can't really sink me because if I belong to him, I've got the  hope of the glory of God. The real disease has been healed. The real debt has been cancelled.
+
+And so the first thing that the gospel does is it shows you the magnitude  of your danger, but the second thing it shows you is the magnitude of Jesus' pain. There's a weird place, and I do consider it weird, in John chapter 16, where Jesus is trying to comfort  his disciples the night before he's about to die. And he's trying to say, look, look, you know,  this is going to be hard on you. But then he says, a woman giving birth to a child has pain because  her time has come. But when the baby is born, joy for a child is born into the world.
+
+And so it is  with you. What is he saying? And I looked it up because every time I look at that passage,  I always look at the commentators to make sure I'm not imagining all the commentators agree. Jesus Christ is identifying with a woman. And here's what you have to remember.
+
+Nowadays, most  women have babies have some pain, but there are these things called epidurals and things like that. But in those days, not only did women never give birth except through excruciating pain,  but women constantly died in childbirth all the time. And what that meant was the only way for a woman  to give birth to a new baby and the joy of a new life was for her to go into a tunnel of  anguish and pain and danger. And Jesus Christ says, that's what's happening to me as I'm going to  the cross. I'm like the woman who's giving birth to joy and a new life by going through all this  anguish.
+
+And here's how you develop joy. You look and say, Lord Jesus, you lost all joy that I could  have eternal joy. You experience enormous anguish so I could have new life. And that's how the love  comes. Here's verse 5.
+
+It says, this is the key to joy that sometimes the Holy Spirit pours the  love of God out on your heart. And you know how that happens? Here's how it happens. Don't say,  oh, okay, Lord, make me feel loved. I'm waiting.
+
+That's abstract. That's not what happens. How does it  happen? You look at what Jesus has done. You look at him saying, I'm like the woman who lost her life  to bring new life.
+
+I like the woman who lost all joy to bring you joy. You look at what he has  done for you. And that's what sometimes by the power of the Holy Spirit inflicts a joy on you  in a sense of how loved you are. That makes you able to handle anything in life no matter what the  circumstances are. That's it.
+
+To the two things, the two ways the gospel gives you joy is it shows you  the magnitude of your danger was so great that all your other problems seem small by comparison to  the one problem which has been solved already. And number two, you see what Jesus has done for you. You see what he's given up. You see how he lost all joy to give you joy. And as you meditate on  that and as you pray over that day in and day out, sometimes the Holy Spirit gives you a sense of  God's love on your heart that it gives you the power to handle anything.
+
+And that's how it works. Go get it. It's available. Let's pray. Thank you, Father, for giving us joy and giving us the  capacity for far greater joy than we have.
+
+Lord, I pray that anyone here who has not really come on  to the inside of belief in the gospel has not really received it, has not really accepted it,  has not really come to know you by faith. It's not really experienced justification. I pray that  they would and that they would therefore begin to understand this joy. Joy in the face of the future,  joy in the face of suffering, joy before you. But I also pray, Lord, for all the rest of us who  already believe, but to great degree are relying on worldly circumstances for our happiness.
+
+Give  us this joy, root us and ground us in joy. Give us an experience of your love so that we can  have the joy that Jesus had for the joy that was set before him. He endured the cross. And for the joy that you have given us we can do or anything because he endured that for us. It's in his name that we pray.
+
+Amen.
 
 ---
 

@@ -7,6 +7,8 @@
 
 ---
 
+---
+
 ## Outline / 讲道大纲
 
 ### 1. Introduction: The Kingdom of God / 引言：神的国度
@@ -23,50 +25,187 @@
 
 ## English Transcript / 英文原文
 
-### Introduction: The Kingdom of God
+today's teaching from the sermon on the Mount, Tim Keller shows how Christ offers  us practical guidance for living out a compelling vision of a new kind of community shaped  by grace. In your bulletin, we come to the part of the sermon on the Mount, very famous part,  part that you come to Redeemer, you actually recite part of this every week. Matthew chapter 5, pardon me, Matthew chapter 6, verses 5 through 13. And when you pray, do not be like the hypocrites, or they love to pray. Standing in the synagogues and on the street corners to be seen by men, I tell you the  truth they have received their reward in full.
 
-What does it really mean to live in a way that reflects God's kingdom? For many of us, the kingdom can feel like an abstract idea. But in today's teaching from the sermon on the Mount, Tim Keller shows how Christ offers us practical guidance for living out a compelling vision of a new kind of community shaped by grace.
+But when you go, when you pray, go into your room, close the door, and pray to your father  who was unseen, then your father who sees what is done in secret will reward you. And when you pray, do not keep on babbling like the pagans, for they think they will be  heard because of their many words. Do not be like them, for your father knows what you need before you ask him. This then is how you should pray. Our father in heaven, how would be your name?
 
-> "This is God's Word."
+Your kingdom come, you will be done on earth as it is in heaven. Give us today our daily bread, forgive us our debts as we have also, as we have forgiven  our debtors, and lead us not in temptation, but deliver us from evil. This is God's Word. Now we are going through the sermon on the Mount, and we come to the subject of prayer,  and this actually, believe it or not, is a very hot topic in our society today. In the culture in general, the last few years there has been an explosion of interest  in prayer and spirituality, in meditation, and spiritual experience.
 
-**The kingdom of God is not just an abstract idea but a practical reality.**
+This year, on the first Monday of the month, we get our small group leaders together,  our ministry leadership together, and I went through and talked about meditation and prayer,  and one thing that was very striking to me is just how much hunger there was there,  and amongst our own leaders for this. But the importance, actually, for Jesus of prayer, is to some degree revealed in this little  unobtrusive word that you'd probably miss at the very, very top of the page, the very  beginning of the passage in verse 5, little word, and, and. This prayer is an standalone for Jesus. It's connected. See, there are places where we've already seen in the sermon on the Mount, where Jesus  almost seems to talk like a sort of social justice radical activist, you know, there's  a place in the luke in version of the sermon on the Mount, where Jesus says, and I quote,  sell your possessions and give them to the poor, unquote.
 
-### The Importance of Prayer
+And right before this passage, in chapter 6, Matthew 6, one to four, Jesus is talking  about our engagement with the poor and our giving of the poor and our, our intense engagement  with the worlds and the needs of the world, and then he gets to verse 5, and he says, and  when you pray, and when you pray, now look, when you're talking and you're talking about  something is, and that means it's connected. He doesn't say, well, let's change the subject. Let's get on to prayer, I don't know. In Jesus' mind, in Jesus' understanding, it is the people, I'll say it's slowly, it  is the people who are characterized by the most radical interiority that have the most  courageous, visionary engagement with the world. It is the people who are most characterized by radical interiority, an incredible inner  life of prayer that are, their life is characterized by buoyant, promiscuous generosity and engagement  with the needs of the world.
 
-Now we are going through the sermon on the Mount, and we come to the subject of prayer, and this actually, believe it or not, is a very hot topic in our society today. In the culture in general, the last few years there has been an explosion of interest in prayer and spirituality, in meditation, and spiritual experience.
+Jesus does not put these things against each other, as a matter of fact, he says, they  really can't happen without each other. If you're really praying, it drives you out. And if you're really effective out there, it's coming from within. Real interiority, now I'm using that term because there's a book, and by the way, if you're  starting to read on prayer, this should not be one of your first fifteen books. It's a little hard to read, in many ways, don't make it your sixteenth, all right?
 
-**Prayer is central to Jesus' teachings and our spiritual life.**
+But there's a very famous book by St. Teresa of Avila called the Interior Castle. And it's a beautiful image, it's a fascinating image. She says, when you, in your soul, actually find the king. When you actually get into the, into ultimate spiritual reality, when you actually get in  connection with the cosmic throne room, your soul, your insides become a castle of light  and of love and of radiance.
 
-### False Models of Spirituality
+There's a radical radiance, an interior radiance that happens, and that Jesus says is the thing  you've got to have, if you're going to have this incredible life in the world. You see, Jesus sees the importance of prayer, and however, Jesus gives us a model of prayer  and spirituality, and before he gives us the model, which is in versus, you know, the  famous Lord's Prayer in verse 9 and following, he tells us two other models that we should  avoid. This is very important, very important to see, you know, Jesus is very, he's willing to  be negative in order to be positive. He says, I'm going to give you a model of spirituality, and if you understand it, and if  you receive it, and if you use it, then it's going to have this tremendous effect on  your life. You know, I've just heard tons of people say to me over the years, I've tried prayer,  but it didn't work.
 
-#### 1. Religious Prayer
+Now, by the way, I have something at home that looks like a coffee maker, but it's a  tea maker, and I like it very much. But if you ever stay in my house and you try to make coffee in it, you're going to say  this coffee maker doesn't work. No, it won't, because it's not built to brew coffee, it's built to brew tea. And when people say, I've tried prayer, it didn't work. What Jesus is saying is, well, you used prayer, not the way I designed it, but you used  a false model of spirituality.
 
-When you pray, don't be like the hypocrites for they love to pray, standing in the synagogue and on the street corners to be seen by men. Now, when you first read this, the first impression is, these are fanatic texts.
+And what he does here in this paragraph in verses 5-8, he gives us two false models  of spirituality. And then he turns around verses 9 to the end, and he gives his own model. Now, let's take a look at the false models and then his own models, and we'll conclude  with some practical stuff, because people have been pressing me. So when you get to the sermon on the mount, the whole idea on the sermon on the mount  is practical. Tell me how to do this.
 
-- Public prayer without private devotion is hypocritical.
-- Prayer should not be about fitting into a social order.
+Don't just make me say, don't just let me walk away feeling like I ought to pray more. How? So let's look at the false models, the true model, and a couple of practical ideas here on how  to go about it. The two models, and now look, if you look carefully, you'll see that Jesus says in verse  5, when you pray, do not be like, and on verse 7, he says, and when you pray, do not be  like. He has two groups of people, and he says, when you pray, don't use these models, or you'll  be brewing coffee in a tea maker, and it won't work.
 
-#### 2. Pagan Prayer
+First model is religious prayer. When you pray, don't be like the hypocrites for they love to pray, standing in the synagogue  and on the street corners to be seen by men. Now, when you first read this, the first impression is, these are, these are fanatic  texts. They like to pray in the synagogue, while people did stand and pray in the synagogue. This is formal worship, but it also says, on the street corners, and right away that evokes  a picture of some guy walking along, and not here, 69th, and Park, and suddenly praying  out loud and everybody saying, well, I mean, this is New York and so.
 
-And when you pray, don't keep on babbling like the pagans. They think they will be heard because of their many words.
+That's not what it's trying to evoke. The street corners meant a town square, a place where the streets came together. And the connotation is this, these are people who not only go to formal worship services,  but they lead in prayer in community, civil, religious events. And this is what Jesus is getting at with this kind of prayer. Is there anything wrong with that?
 
-- Prayer is not about technique or manipulating the divine.
-- True prayer seeks a genuine connection with God.
+Is there anything wrong with coming and praying in church or synagogue? Is there anything wrong with leading in prayer at large public events? And the answer is no, but he says, this kind of person has no interior personal prayer  life. You see, he contrasts it with the people he says, but when you pray, go in your room. These are people who have a public prayer life, but not a private prayer life.
 
-### Jesus' Model of Prayer
+And the reason is, the reason they see for prayer is it makes them fit in with a social  order to be seen by men. This is like, religious prayer is where prayer and worship functions as helping you fit  into your family, fit into your town, fit into your social order, fit into your people,  fit into your culture, and it puts you in the right place. It's like when the politician ends his speech by saying, and may God bless us all, he has  no prayer life, and all the people love it. And they tell the focus group people, oh, I don't really like that, but they don't have  a prayer life either. But everybody feels better.
 
-In the Lord's Prayer, Jesus gives us a model of spirituality. The purpose of prayer is to experience the friendship of God and experience the Lordship of God out of a realization of our sonship with God.
+Everyone feels better because in a sense, it baptizes the social order, or it's like  this. The average person in the world, if you say, why are you Muslim? Why are you Catholic? Why are you Presbyterian? Why are you Baptist?
 
-**Prayer is about relationship, not just requests.**
+And the average person says, if they're honest, because that's where I'm from. You know, I'm Italian, so I'm Catholic. I'm Arabic, so I'm Muslim. I'm from Tennessee, so I'm Baptist. I'm...
 
-### Practical Application
+Well, yeah. In other words, well, this is my people, this is who I am, and what this means is not  look at. We're not talking about people who come and they're all dead inside. When people who's basically prayer and worship is religious, it's cultural. If you were raised in a kind of church, you're raised in a kind of service, and this is  who your people are, see?
 
-Let me show you how that goes, all right? An experience of friendship and of lordship out of an experience of our sonship and a realization of it.
+And this is who your town is, and this is who your tribe is, and this is your family  is. You're used to it. You had a kind of an inner peace when you go, and you do feel what? You feel good, or there's certainly some sense of stability, and there's some sense of  inner peace when it... But here's what Jesus is saying.
 
-- Spend time in prayer focusing on God's character and will.
-- Seek God's friendship and lordship before presenting requests.
+You are not relating to God, you're relating to an environment, a social environment. You feel... You're connected to your roots, that's why you feel good, or you feel maybe even some nostalgia  or familiarity, or just a sense of being part of my tradition, but it's a connection  to the tradition, or to your family, or to your roots, or to your social order, but it's  not a connection to God. And he says the sign of that is that when you go into your private closet to pray, you've  got nothing to say. There's no passion to know him.
 
-**Prayer works if you go after His friendship and His lordship first.**
+There's no passion to meet with him. There's no passion to want to be with him. You don't sense that at all. You pray maybe when there's trouble, but when there's no trouble, when there's nothing  forcing you, when there's no social reason, when there's no family reason, when there's  no circumstantial reason. You don't have any internal pressure to actually know him, or meet him, or see him.
+
+And Jesus says, this is the sign that you're basically... This is just religious prayer, you're not really connected to him, you're connected to  an environment. The environment makes you feel kind of good, but you're not actually connected to him at  all. The sign is, you don't have a continual, growing, personal, secret, private prayer life. You don't know what to say.
+
+You're bored when you get to it, just by yourself. Now, let me take the gloves off for a second before we move on here. This is Jesus' words. How do you know if you're a hypocrite? How do you know if you're a hypocrite?
+
+Now, do you know what a hypocrite is? A hypocrite is something that somebody who's one thing on the outside and another thing  on the inside. How do you know you're a hypocrite? Well, we don't go to the place he goes. We go to sex.
+
+We say, he says he's so moral, but he's having an affair on the side. But Jesus doesn't use sex as your test for hypocrisy. I'm not saying that's right, but that's not the test. That's not the most telling test. Well someone says, let's take a look at money.
+
+He says, she says they're very devoted to God, but you know, they're selfishly spending  money on themselves. They don't give it to the poor. They don't give it to the church. Of course, that's bad, too. However, Jesus says, that's not the acid test.
+
+That's the acid test that you're a hypocrite. You don't have a prayer life. There's a sermon I read years ago when I was in seminary by Jonathan Edwards. Jonathan Edwards wrote this sermon years ago, and the name of it was hypocrite's deficient  in the duty of prayer. And I had nightmares for about a month after I read that sermon because this is simply  what he says.
+
+He says there's only one thing that you don't do for show in the Christian life. There's only one thing. It's secret prayer because everything else is for show. Everything else somebody sees. Secret prayer is the only thing you do just for God, just for Him, not for anybody else,  not even for yourself, just for Him.
+
+It's the only thing in your life you don't do, you Christian life you don't do for show. And therefore, if you do everything else but secret prayer, all of your Christian life  is just for show. Admit it. You don't have a secret prayer life. He says that's a sign of hypocrisy.
+
+That's a sign that the reason you pray is because of your environment, not because of  God. You're trying to... Okay, you got that enough, that's enough. You feel bad enough. Let's move on.
+
+Jesus actually, though, very interestingly, and it's a little weird, except it's actually  easier to see today. He turns to another group. And down to verse 70 says, and when you pray, don't keep on babbling like the pagans. Now, this is a little hard to translate. First of all, the word babble is a hotbox Lagomana in all of Greek literature.
+
+This word is used not only only here in the whole Bible, but it's only used here in  all Greek literature we know, it's no other place. And it kind of means a torrent of words, sort of a intense torrent of words, not just  many words, but kind of frantic words. And the word pagans is Jesus' word, ethne, which is often also translated nations, but  in the New Testament, it usually means the unreligious. It means the licentious. It means the immoral.
+
+It means the non-religious. Now, why is Jesus talking about non-religious prayer? Well, to one thing that would be interesting to go to in a tangent, but I won't. One thing Jesus is saying here is there really isn't such a thing as a prayerless heart. What he's really saying is something now, you know, snotty Christians over the years  have put it this way.
+
+There are no atheists and foxholes. That's a pretty snotty way to put it. But what he's really, what Jesus is saying is that prayer is the involuntary reflex of  the heart. No matter what you say you believe, no matter what you think about the universe, the  fact is when you feel your humanity, when you feel your vulnerability, you can't stop  yourself from praying. No matter what you say you believe, there are times in which you can't not pray, which  means that your heart knows, in spite of what you're going to like telling you, there's  a God and you need him.
+
+The torrent comes out, no matter who you are, but that's not all. Jesus says, they think they will be here, heard, for their torrent. Robert Wuth now, I quoted him in the fall, it's a really worthwhile book to read. Where Robert Wuth now wrote a book recently called After Heaven, he's probably the leading  sociologist of religion, he teaches at Princeton University, a very prominent man, and he's  the book After Heaven was a very, very thoroughgoing sociological reflection and study of spirituality  today. He says, and this is fascinating in light of this passage, he says that the older approach  to spirituality in this country was what he called, he called it an inhabiting, an inhabiting  model, an inhabitation.
+
+He says, the inhabiting model was, you went to sacred places out of family tradition, sounds  like what we've just talked about, the religious approach. He says, in the past, people went to sacred places, churches, synagogues, cathedrals, out  of the tradition of your people and of your family, but he says, the newer version is  sprung up in the last two years, are by people who say, I hate religious institutions. I'm spiritual, I'm not religious, everybody has to decide what is true or right for him  or herself, everyone has to decide who God is for him or herself, everybody has to decide  that for yourself. I'm putting my own religion together, but basically they say, I'm not religious, I'm spiritual  and they're really into prayer, they don't go to church, they don't want to be part  of something like that, but they're into meditation, they're into all sorts of spiritual exercises,  they're into all sorts of spiritual emphasis on touching the spiritual, but Robert Wuth  now rightly so and it's very fair of him and he's very careful man, he's a leading scholar. He says, in the end, it's not much different than religious prayer, the older version.
+
+He calls this the seeking model of spirituality and the older one, the inhabiting model. One says, I'm here, this is my place, these are my people, that's why I pray the way I do. And the seeking model is a kind of journey who says, well, we never really arrive, we never  really have any answers, we're just always seeking. He says, one of the big problems is, whereas the former was culture driven, this one is  technique driven, new spirituality is very technique driven, you have visualization techniques,  you have relaxation techniques, extremely technique driven, but in the end, it's not really  trying to reach God either, it's trying to use this divine to get the kind of inner  peace and spirituality you feel like you need to get to your goals. You see, the old religious approach basically baptizes the social order, that's the reason  why the older religious traditions to some degree have been rejected because very often  the oppression and the injustice and the bigotry of the old social orders were baptized  by the religious tradition.
+
+But you know what's interesting is the newer spirituality in many ways also is essentially  just a way of sort of spiritually baptizing my goals in life. For example, if you use the more modern spiritual technique, let's say you're a baseball  player and you're trying to kind of use spiritual techniques to be a better baseball, but you  just visualize yourself hitting at home run over and over and over again. You know what you're saying is, this is the world I want, and I'm going to use the divine  to get there. And Robert Wuth now is smart enough to say, that's just as superficial as the old approach,  because instead of submitting to something, instead of really being changed, you're basically  using the divine to get what you want. And Jesus says, they think they'll be heard because of their parent.
+
+They think because I've got, I can do something, I can change things, I can create the world  the way I want it, I can visualize the world the way I want it, I can put myself in a position  where I'm reaching my goals, Jesus says, no, no, no, no. No, he says, both of these are wrong and they're bad models. My model is this. And in the Lord's Prayer, and by the way, this summer, our preaching team is going to go  through the Lord's Prayer because spirituality is so hot, and we're going to have a number  of pastors go through it. But here's what I would say is a kind of summary, which by no means a hopeful steal the thunder  either from my own serpents on the Lord's Prayer this summer or anybody else's.
+
+But he basically says this, my model of spirituality is this, the purpose of prayer, what is prayer  really about? Is it to get things, is to get inner peace, is it to, what is prayer about? He says it's to experience the friendship of God and experience the Lordship of God out  of a realization of our sonship with God. It's an experience of friendship and an experience of Lordship out of a realization of our sonship. Are you looking for ways to grow in your faith this summer?
+
+Or are you hoping to help new believers or kids grasp the heart of the Christian faith? For many of us, the summer months can provide more time to deepen our faith and our understanding  of what it means to follow Christ. A great resource to start using this summer is the new city catechism devotional, God's  truth for our hearts and minds. This devotional brings the historic catechisms of the Christian Church to life, offering  a question to consider for each week of the year. In the introduction, Tim Keller lays out the case for catechesis, the rich and communal  practice of learning and memorizing questions and answers that frame the foundational beliefs  of the Christian faith.
+
+Each week includes a scripture passage, a prayer, and a brief meditation that will challenge  and inspire you. The included commentaries are by contemporary pastors such as John Piper, Tim Keller,  and Kevin D. Young, as well as historical figures such as Augustine, John Calvin, and  Martin Luther. This month, in addition to the new city catechism devotional, we are including a great companion  resource, the new city catechism for kids, as our thank you for your gift, to help gospel  and life share the hope of Christ's love with people all over the world. So request your copies today at gospelonlife.com slash give.
+
+That's gospelonlife.com slash give. Now here's Tim Keller with the remainder of today's teaching. Let me show you how that goes, all right? An experience of friendship and of lordship out of an experience of our sonship and a realization  of it. You see, the problem with the older religious tradition was no friendship, it's all externals.
+
+That's the reason why there's no private life, that's the reason why there's no private  prayer closet, it was all externals. But the trouble with the newer spirituality is not that there's no friendship, but there's  no lordship, there's nobody to obey. I basically decide what's right and wrong for me, no friendship, no lordship, because  there's no sonship. Now, first of all, I'm going to do this kind of quickly. Number one, friendship, the purpose of prayer.
+
+Look at the first part of the lord's prayer, what's that all about? This then is how you should pray. My father in heaven, how would be your name? Your kingdom come, your will be done on earth as in heaven. The first half has got nothing to do with my needs.
+
+The first half's got nothing to do with daily bread, nothing to do with my guilt, nothing  to do with my anger toward people, nothing to do with the strength I need to face the  challenges, nothing at all. What's going on there? Well, what am I spending the first half of the prayer doing? I'm enjoying, I'm noticing, I'm rejoicing, I'm amazed by him. Well, before you get, now here's the point, before you ask for anything else, the primary  goal of prayer, or the first thing you should ask for is him.
+
+See, when people say prayer didn't work, I always say, what do you mean prayer didn't  work? And they always tell me something they asked for that they didn't get, always. But see, the lord's prayer, basically, you know, what are you trying to do there? You're trying to make coffee in a tea maker. Jesus says, the way prayer is supposed to be built is, before you ask for anything else  first, ask for me.
+
+See, if there's anybody here who says, prayer didn't work for me, I want to ask your question  to you persistently, day in and day out, time in and time out over and over and over and  over again. Did you say, I want you, I want you in my life, I want your reality, I want an experience  of you. Did you do that first? Was that the primary goal? No, because I'll tell you this, if you did that, prayer would not have disappointed you.
+
+Prayer is primarily for that. You know the place in Luke where they sermon on the, pardon me, where the lord's prayer  is introduced. It's in Luke chapter 11 where Jesus tells them how to pray and use his lord's prayer. See before Luke 11, there's a story of Martha and Mary. And Martha's running all around, that's the sister who's has Jesus at the house, and  she's running all around with housework, and she's very upset and distracted and busy  and so on.
+
+And Jesus, gently rebukes her, lovingly rebukes her, and says Martha, Martha, Mary has found  the one thing that's necessary. Now this is pretty interesting, here's Jesus Christ, Jesus the Christ, telling us. So we better open this up and look at it. There's only one thing you really need, everything else is negotiable, everything else is negotiable. Nothing else do you need.
+
+If you have this, everything else is secondary. What is it? And when he says the one thing necessary, then he says Mary is sitting at my feet and listening  to my word, and commentators know. And they'll say Jesus Christ who was so completely steeped in the Psalms, so completely  saturated in the Psalms, could not have not, sorry, about a double negative, he could  not have not had in his mind the famous place in the Psalm, Psalm 27, verse 4, where the  Psalmist David says, one thing will I seek after, one thing only do I need to gaze on  the beauty of the Lord and to inquire in his temple. And Jesus says, and David says, now David is a man who had a lot of problems, he was always  running for his life, he was always in crisis, he was a king, he was a general, he was in  all this stuff, and he says, there's only one thing I really need, David does not ask  for safety first, he does not ask for protection first, he does not ask for success first, with  all the stuff that was on him, he says, if my soul has a sense, a sense of the inner  sweetness and glory, if my soul sees the beauty, if I don't just know about God but I actually  taste and see his beauty, he says, well nothing else will bother me, nothing else will ever  well me, nothing else will shock me, nothing else will attract me, and I'll be able to  live a life at large.
+
+And Jesus is saying that about Mary, and Jesus is saying that to you, and then comes the  Lord's prayer, because that's the point of it, that's the context, friendship, let's  move on, friendship is the first thing, you're not allowed because it's not built that way,  you're not allowed to go asking for anything else until you've asked for his friendship,  until you've sought like crazy for that, until you've asked for an experience of his  holiness and love, not just knowing about it but actually a sense on your heart, that's  the first point. Then secondly, Jesus says, no by the way, that's very different than the religious approach,  but secondly, unlike the new spirituality, Jesus says the second thing you get to is his  Lordship. The second purpose of prayer besides the intimacy of our Father is thy kingdom come, thy  will be done. Now here's the second thing, and this is pretty scary. Before you get to asking for the things you want, Jesus says you've got to go through this.
+
+And that is what is the real source of your problem. So we run down to daily bread, we run down to all the other stuff, because this is what  we think. We say, I'm scared, I'm worried, I'm angry, and I know how the world needs to go. And therefore there's a torrent of words that very often comes out of our hearts toward  God when we pray. Oh Lord, you just got to do this, you've got to do this.
+
+She's got to live, she's got to see, this has to happen, I've got to get in, this money  has to be here, I just don't see another way, and there's a torrent of words, it's babbling  by the way. That's a fair translation, we're babbling, we're just coming on. And you know what, if we just go right to daily bread, when we're done praying, we're  not going to feel less worried, we're going to feel worse. We just rehearse all the things that scare us to death. How wonderful.
+
+And when we get down, and when we take a look at everybody who's doing bad things to us,  we're done, we're going to be more bitter, we're going to be more angry, we're going  to be more guilty. Oh Lord, I'm so sorry, I'm so sorry, I don't know why I did this, torrent of words, babbling  and babbling and babbling. But Jesus says, here's the first, but you've missed the, you went too fast, the more primary  than asking for things, is to take yourself out of the place of God. Until you pray, the natural stance of your heart is to walk around, if you listen carefully,  you'll hear it. Your heart's always saying, my kingdom come, my will be done.
+
+My kingdom come, my will be done. And actually, it's the source of your real trouble. It didn't come home to me till recently when I was studying Genesis 50. And in Genesis 50, Joseph, you know, remember he was betrayed by his brothers, if you  know the story, he was sold into slavery. His brothers basically tried to kill him, tried to ruin his life.
+
+At the very end they find that he's risen up to power, he has the power to pay them  back. And when their father dies, they send a message and they said, please, don't hurt us. And Joseph gets them together and what does he say? I've forgiven you. It was a lot of work, but I've forgiven you.
+
+No, what does he say? He says, am I in the place of God? The source of all of Joseph's forgiveness, the source of his peace, the source of his  lack of fear, when you're scared, you know why you're scared? You know why you're worried? You know why you're eating up with anxiety?
+
+Some of you are right now. You know why? Because you're sure you know how things should go. How do you know that? How do you know how things should go?
+
+You know you're in the place of God. You assume it. Some of you are resentful, really resentful because there are certain people who have done  certain things to you and they haven't gotten their come up in and all that. You know why you're so resentful? It's not the circumstance.
+
+It's not them. It's because you think you know what they deserve. Do you think you know? And Joseph says, I got myself out of the place of God. That's the main reason I'm unhappy.
+
+That's the main reason I'm scared. That's the main reason I'd be angry. I got it out. I'm out. How do I know?
+
+You see the second part of the model is you have to experience this Lordship. You have to be willing to say, and this only happens in prayer. It will happen through the Holy Spirit if you're willing to go after it. If you see that this is really, before you get to anything else, you've got to do this. You've got to say, Lord, buy the Holy Spirit, show me the most important thing for me to know  that you're God and I'm not.
+
+But I don't believe it. This is the reason why I can't overcome my guilt because I feel like I've got to live  up. I've got to be my own savior. This is the reason I can't overcome my anger because I know exactly what those people  deserve. This is the reason I can't overcome my worry and my anxiety, because I know how the world  has got to go.
+
+I know. I know. Joseph says, get out. How awful. Martin Luther used to say to some of you heard me say this because Martin Luther, his friend  Philip Melanchthon, was horrible, he probably died of an ulcer, like some of you.
+
+His name was Philip Melanchthon. Every so often, Martin Luther would come up and he would pat him on the back and would  say, let Philip cease to rule the world. In other words, Philip's problem, Martin says, is basically theological. It's not, all psychological problems are basically theological problems. And the only way to heal your heart theologically is through prayer.
+
+Through taking a look at his heavenliness, looking at his kingship, looking at his hallowedness,  his holiness. Why is all that stuff in the beginning? Because you have to heal your heart, you have to heal your perspective and be willing  to say, you're Lord, and when that happens, then you begin that life, that big life, nothing  overwhelms you, nothing overcomes you, say. Now thirdly, how can this happen? Jesus says one reason, religious people don't have friendship in their prayer life.
+
+Now what's interesting is the more non-religious people, they do have a private prayer life. They meditate and they're seeking and so forth, but they don't have any worship. That means they say, well, everybody has to do what you have to decide what is right and  wrong for you. You know what this means? You are not after a God who can contradict you.
+
+You're not after a God who can say, I'm God and you're not. When you say, I don't believe in tradition, I don't believe in authority of any sort,  I have to decide what's right and wrong for me. What you've done is you have completely condemned yourself to being in the place of God for  the rest of your life. Good luck. You're underqualified for the job.
+
+You know what it's like to be in a job that you're underqualified for? Nothing. You might have been in a job underqualified for, but nothing like this. And Jesus says now, friendship is the first lordship, you have to experience it, experience  lordship before you ask for anything, but you say, well, how can that be? How can I know him so intimately?
+
+And how can I trust him so implicitly? Do you hear that? So the religious person says, how can I know him that intimately? You know, he tells people to say, our father. If you heard me say, even if you maybe you didn't know me at all, you didn't know anything  about me, but if you heard me or overheard me say, my Kathy, you would immediately figure  out whoever Kathy is must be wife or daughter, because you don't use words like that, unless  it's very intimate.
+
+And if you overheard me, it would only be overheard me, because I would never say such a  thing out loud. You don't say such a thing out loud either. Why? You feel naked to talk like that. You don't use that kind of language in public for the people that matter to you like  that.
+
+This is a language of intimacy. And Jesus says, you start out by saying, God, you're my God, father, you're my father. Well, the religious person says, how can I know that? How can I know that? I'm trying very hard to be good, and I'm hoping that God will favor me.
+
+How can I know that? How can I treat him that intimately? And then on the other hand, the second person, the non-religious spiritual person says,  well, you say, just trust him, just say, well, you're God and hey, I'm just like,  wow, well, wait a minute here. How can you trust him like that? The answer is the doctrine of the gospel or the doctrine of adoption.
+
+The first word is, not my king, not my lord, he's all that, my father, our father. The gospel is, the way you become a Christian is not by trying real hard through techniques,  trying real hard through good works. The doctrine of adoption is, I become a Christian when I say, father, accept me because of what  Jesus has done. And at that moment, the Bible says, we get the sonship. Now, occasionally, I've had women who say, why do you keep using the term sonship as a little  insensitive to the rest of us, and not actually not really?
+
+Let me tell you why I hold on to it. Because in the New Testament, in those days, sonship was a legal status when you adopted somebody,  that person not only became intimate with you, but they became your heir, like that, but  only men were adopted, only men got the sonship, and yet Paul and John and all the New Testament  writers have the audacity to say that when you receive Christ as your Savior, God gives  you whoever you are, rich or poor, male or female, you get the sonship, you get the full rights. And when you know that, then you'll be able to pray. Well, somebody says, I don't know, I don't know if that's enough. How is it possible?
+
+How is it possible that I could have this kind of confidence in God, this kind of intimacy  with God? Well, here's the answer. When Jesus Christ came to Simon Peter, before he was about to fall, he looked at Simon  and he said, Simon, Simon, Satan wanted to have you, he wanted to sift you like wheat,  but I have prayed for you. So when you turn back, when you repent, when you recover, strengthen the brothers. But Jesus said, I've prayed for you, so maybe you'll turn back, I don't know, I've prayed  for you.
+
+Hebrews 7 says, Jesus Christ, when you become a Christian, Jesus Christ ever lives to  intercede for us. What is the word intercede? That means it just means prayer. Hebrews 7 says, Jesus Christ has reoriented his life, so there's one thing he lives for. He lives for.
+
+We know what he's doing. He's always praying for us. He's standing before the Father, we're told, as it were. And he's constantly saying, I want this in their life, and I want that in their life,  I want good things in their life. And basically, when we pray, God says, I have all these incredible things I'm ready to  throw into your life, not because of your merits, but because of his prayer life.
+
+Your prayer life, puny and tiniest as it is, is going to, all you got to do is just start  to pray, and you're finally going to be in a position we'd be ready to receive the  incredible things that are coming into your life because of his prayer life. Just prayer life for you. If you know his prayer life for you, if you see that prayer life for you, if you know  that you have that kind of assurance, then you'll be able to experience his friendship  and experience his worship. Somebody says, oh yeah, how? Can I just give you one little exercise?
+
+Fifteen minutes a day, not counting Bible study, don't you dare study the Bible and  look up everything and sit down and all that, and then you pray for two minutes. That's not prayer. After you're done studying your Bible passage, take fifteen minutes, and the first thing  you need to do is listen before you speak. That's the whole point of the Lord's Prayer. Before you ask for anything, the first half is all what?
+
+Noticing who he is, listening to who he is, hearing who he is, then you respond. That's the Lord's Prayer. The Lord's Prayer is look at this and look at this and look at this and listen to this and  listen to this. Now, here's some things I want to say to you. The whole point of the Lord's Prayer is that prayer is answering God.
+
+It's responding to God's Word. It's not just talking. If you got an appointment with this incredibly powerful person, you wouldn't sit down and  say, I have a lot of things to tell you and just talking and talking to you and I said,  I hope you understood. I hope you heard that. My hour's up.
+
+And that's how, no, no, no, here's what you do. Study your Bible passage and then the fifteen minutes begins. First thing you do for five, six, seven minutes at the most, ask the text, two questions. What Lord are you telling me about you and what Lord are you telling me about me? Then read the text through slowly, you've already studied it, right?
+
+Read the text through slowly, asking those two questions and listen for his voice. And then after you've written a couple of the answers down, you see, then pray those  things. Adore him and thank him for what it's telling you about him. Confess and make petition for the things that it's telling you about you. When that fifteen minutes are up, then you can go to do other things.
+
+You can do your prayer list. You know, bless mommy and daddy and do all that. And before that fifteen minutes, you can do your Bible study. But you know what? An awful lot of you are doing your Bible study and doing your prayer list and you're not  really praying.
+
+You're not experiencing his friendship and you're not experiencing his worship out of  a realization of your sonship. Make sure you open up. For fifteen minutes, listen to his word in that text and then respond to it. Do it fifteen minutes a day. Do it thirty days in a row.
+
+Go to Psalms or go to John, if you really say, well, where do I even turn? And then come back and tell me what happens. Prayer works if you go after his friendship and his worship first. He has never turned down those prayers. Let's pray.
+
+Father, we ask that you would help us become people of prayer. There are some of us here who aren't even sure what we believe. Well, the only way you're going to find you is to pray. There are many of us here who really believe we're sure, but it's all head knowledge. There's everybody in this room needs to go back and pray.
+
+In this room needs to find that radical interiority where there's no difference between whether  we're Christians or not Christians or we don't know what the heck we are. We pray, Father, for prayer. Your son, the greatest one who ever walked the face of the earth prayed all the time. Now we know why. He was praying for us.
+
+Knowing he was praying for us and only if we know he was praying for us will we be able  to live a life of prayer ourselves. So help us to that end. We pray in Jesus' name, amen.
 
 ---
 

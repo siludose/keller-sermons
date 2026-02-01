@@ -7,6 +7,8 @@
 
 ---
 
+---
+
 ## Outline / 讲道大纲
 
 ### 1. Introduction: The Gospel and Change / 引言：福音与改变
@@ -21,66 +23,237 @@
 
 ## English Transcript / 英文原文
 
-### Introduction: The Gospel and Change
+Today, Tim Keller explores how lasting change actually happens in the life of a Christian  and why the Gospel offers a radically different process of transformation than anything  else. The Scripture is from Romans chapter 6. What shall we say then? Shall we go on sinning so that grace may increase? By no means.
 
-Are you longing to see real change in your life, in your habits, your relationships, your heart? Today, Tim Keller explores how lasting change actually happens in the life of a Christian and why the Gospel offers a radically different process of transformation than anything else. The Scripture is from Romans chapter 6.
+We died to sin. How can we live in it any longer? Or don't you know that all of us who were baptized into Christ Jesus were baptized into  his death. We were therefore buried with him through baptism into death and order that just as Christ  was raised in the dead through the glory of the Father, we too may have a new life. If we have been united with him like this in his death, we will certainly also be united  with him in his resurrection.
 
-> "What shall we say then? Shall we go on sinning so that grace may increase? By no means. We died to sin. How can we live in it any longer?"
+But we know that our old self was crucified with him so that the body of sin might be done  away with, that we should no longer be slaves to sin because anyone who has died has been  freed from sin in the same way count yourselves dead to sin but alive to God in Christ Jesus. Therefore do not let sin reign in your mortal body so that you obey its evil desires. Do not offer the parts of your body to sin as instruments of wickedness but rather offer  yourselves to God as those who have been brought from death to life and offer the parts  of your body to him as instruments of righteousness. For sin shall not be your master because you are not under law but under grace. But then shall we sin because we are not under law but under grace?
 
-**If you need to see changes in your life, how does that flow from belief in Jesus?**
+By no means, don't you know that when you offer yourselves to someone to obey him as slaves,  you are slaves to the one whom you obey whether you are slaves to sin which leads to death  or to obedience which leads to righteousness. But thanks be to God that though you used to be slaves to sin you hoardedly obey the  form of teaching to which you were entrusted. You have been set free from sin and have become slaves to righteousness. This is God's word. We just completed a series on why and how to believe in Jesus.
 
-### Recognize Your Spiritual Slavery
+And now I'd like to do a short series on how if you believe in Jesus, that faith actually  changes you. What is the process by which change really happens? If you need to see changes in your life, how does that flow from belief in Jesus? When I first embraced faith which would be late college, right after college, I had  a number of things in my life that needed profound change. And nothing seemed to work until two Christian writers, one from the 16th century, excuse  me John Owen, and one from the 20th century John Stott, I just really met, both directed  me in their writings to Romans chapter 6, 7 and 8.
 
-#### 1. Understanding Slavery
+Paul there, more fully than any other place in his writings or the Bible, lays out how  faith in Christ concretely leads to changes, what the process really consists of. It's more succinctly put by the way in Colossians 3 but it's most fully put in Romans 6, 7  and 8. And that's what we're going to look at. I'm going to take you there. It's like kind of going home for me in a way and I take you there over the next brief  handful of weeks.
 
-Paul says, "Don't you know that when you offer yourselves to someone to obey him as slaves, you are slaves to the one whom you obey?" This concept of slavery is not shocking to the original readers as it is to us.
+And the whole chapter, chapter 6, 7 and 8, that whole section revolves around the question  that you heard posed twice, both in verse 1 and 15, you heard it read. And the question arises from Paul's teaching about the gospel, in chapters 1 through 5  of Romans, he lays out the gospel. And the gospel has a theme in it that's unique to all the world religions and all the  philosophies of the world. That is, that salvation is received, it's not achieved. It's received not on the basis of your merit or your goodness or anything in you at all.
 
-- In the first century, selling oneself into slavery was a way to pay off debts.
-- Paul uses this to illustrate spiritual slavery.
+That's radical. And whenever you hear that form of teaching, whenever that gospel teaching is laid out,  immediately and inevitably at first hearing anyway, the question arises, wait a minute. If that's the case, if salvation is surely by grace is nothing to do with how you live,  not live any way you want, why would you want to change? Why would this kind of message change you at all, it seems to me, somebody might say,  that this message would leave you exactly the way you were? Paul answers that question.
 
-#### 2. Spiritual Masters
+See, if you understand the gospel, why would you change? How do you change? Why would you want to change? Paul answers that. And in the process, he gives us three principles, in my experience and my pastoral work with  people over the years, and in my understanding, studying in the Bible, are absolutely crucial.
 
-Paul explains that everyone has a spiritual master. **You either serve God or something else.**
+Three keys, three secrets, three principles, I don't know, I really want you to listen  to them. Three keys to real profound life change, and here's what they are. You have to recognize the shape of your spiritual slavery. You have to realize the scope of your cosmic unity with Jesus. And you have to live daily out of your new identity.
 
-- Everyone lives for something: career, family, achievement, etc.
-- These become spiritual masters that control us through "evil desires."
+Recognize your spiritual slavery, the shape of it. Realize the breadth and scope of your cosmic unity with Jesus. And live daily out of your new identity. Slavery, unity identity. Let's look at these three things.
 
-### Realize the Scope of Your Cosmic Unity with Jesus
+And by the way, if you're done with the sermon, you say, I really need more detail. This is the introduction to a series to be continued. Come back. All right, so if I preach this well, I won't preach this well. I won't preach this fully because it's an introduction.
 
-#### 1. United with Christ
+First of all, this passage tells us you have to recognize your spiritual slavery. And I'm looking at verse 15 and 16. And 15 and 16, Paul says, especially 16, after saying, what? Shall we send that grace may abound, that we're not under a law but under grace? No, he says, don't you know that when you offer yourselves to someone to obey him as slaves,  you are slaves to the one whom you obey.
 
-Paul states, "We have been united with him in his death, we will certainly also be united with him in his resurrection."
+Whether you are slaves to sin, which leads to death, or to obedience,  which leads to righteousness. Now, the first half of verse 16 isn't as shocking to the original readers as it seems to us. The reason why it seems somewhat shocking to us, when he says, offer yourselves as slaves,  is because when we read what the Bible says about slavery, we read it through,  I mentioned this a couple of weeks ago, right, we read it through the filter  of our own experience of new world slavery and we think of slavery as race-based and for life. But in the first century, if you were facing a lifelong debt, an enormous debt,  and you didn't want to be saddled with it the rest of your life,  it wasn't uncommon for a person to actually sell themselves to a particular person  for a period of time, for five years, for 10 years, in order to work off the debt,  you know, as fast as possible. And therefore, you offer yourself into bond service, you offer yourself into slavery.
 
-- Baptism symbolizes our union with Christ.
-- **Jesus' past and future are now ours.**
+But Paul says, the problem is that you're getting something which, of course, is getting rid of the debt. That person is now your master. That person has complete control over your life. Now that wasn't that surprising to the original readers. But the second half, after the dash, was.
 
-#### 2. Cosmic Rebirth
+Because Paul proceeds then to bring this into the spiritual realm and he says, don't you realize  that there's only two categories of people in the world. People who are obeying God and are in absolute unconditional service to God  or people who are spiritually slaves to something else. And there's no other category, there's no third category, there's nothing in the middle. There's no alternative to that, those two. What Paul's doing is he's booting off of the first commandment of the 10 commandments.
 
-The term "Palingenesia" refers to the rebirth of the cosmos. Jesus uses it to describe the renewal of all things.
+And in that first commandment, Paul, God says, I am the Lord God. I must be your God. Don't make anything else your God. But notice the first commandment only says there's two things, two categories. You either make God, God, or you make something else your God.
 
-- **The power of the future world is at work in us now.**
+But there is no third possibility, there's no alternative. You must, if you don't worship the true God, make something else a God in your life. Even if it's small G, even if it's small case G, there's no one without a God. Now, how can that be, you say, well, think. And this is what Paul's, this is his case.
 
-### Live Daily Out of Your New Identity
+Everybody lives for something, what do I mean by that? Well, to live for something means everybody has a something that is your main way of significance  and your main way of security, your main way to feel valuable,  or like your life is worth anything, or that you have any significance. And there's always something that is the main way that you face the difficulties and dangers of life. Something is the main way, regardless of what your doctrinal beliefs are about, religion, and so on. Something is the main way that you get significance in the main way you get security.
 
-#### 1. New Identity
+And that could be a career or family or achievement. It could be personal independence or the need to have people dependent on you. It could be power and influence or human approval. It could be a political cause. It could be money.
 
-"Our old self was crucified with him so that the body of sin might be done away with."
+It could be romance. It could be physical attractiveness. It could be any number of things, but here's what Paul is saying. You're going to live for something. There's going to be something that basically makes your life feel like it's meaningful.
 
-- **Your old identity is gone; you have a new identity in Christ.**
+It makes you feel like you're worthwhile. But he says, here's what you don't seem to know. Whatever that is, is a spiritual master. It's controlling you. You think it's doing something for you, and it is doing something for you.
 
-#### 2. Daily Living
+But you have offered yourself to it. You've offered yourself. You've given yourself. You're under its control. You're being controlled by it.
 
-"Count yourselves dead to sin but alive to God in Christ Jesus."
+It's a spiritual master. How so? The answer would be. And Paul's answer, and those of you who've been around me for a while,  or heard this teaching before, no, there's always a... Whenever I'm talking about this subject, there's a Greek verb somewhere nearby,  the same Greek verb, and here it is.
 
-- **Live out of your new identity daily.**
+It's in verse 12. He says, do not let sin reign in your mortal body so that you obey its evil desires. Don't let sin reign. See, there's spiritual masters. You're going to be a slave to something.
 
-### Conclusion
+And whatever it is that you have given yourself to, whatever you've offered yourself to,  is controlling you through, quote, evil desires. Now, let's be real sympathetic to the translators. There's a Greek word here that is very hard to translate. In the Old King James Bible, it was usually translated lust to the flesh. The trouble is that that's actually literally not a bad translation.
 
-Why wouldn't you want to offer yourself to the only master in the universe who's offered himself for you? Trust him then. Let's pray.
+For you and me today, lust to the flesh means sex, and this isn't talking about sexuality. And it doesn't actually say. There's the word thumia in it,  and that means desires or drive. But the prefix to the word is epithumia, which means an overdrive or an over-desire. This is not talking about desire for bad things.
 
-> "We thank you, Father, for this overview of how we can change and what true freedom is."
+It's talking about an ordinate desire for good things. And that is how you lose control. There's good things in your life that you've made into ultimate things, and they control your  life, because if they really are, your means of significance. So they really are. You mean security.
 
-**Amen.**
+You've got to have them. You've got to have them. And therefore, they control you through an ordinate desires. Let me give you three tests. Let me give you three kinds of epi desires, three kinds of an ordinate desires.
+
+That will show you where your spiritual masters are. The first one would be anger. If something blocks you're getting a good thing, you get angry. But if something blocks you getting an ultimate thing, something you've based your life on,  you get epi angry. You lose it.
+
+You say things you afterwards. I don't know why I said that. You blow up, or you get incredibly bitter. Are you having trouble forgiving anybody? Are you having trouble forgiving somebody at the root of it  is a spiritual master that's controlling you through an over desire for something?
+
+Wait a minute. So you start to say, wow, this really starts to make me rethink my life. That's the point. Let me give you a second test. Fear.
+
+If something good is threatened, something good in your life is threatened. You're worried. But if something ultimate in your life is threatened, you're paralyzed with fear. Absolutely fall apart. You can't control your anxiety.
+
+Are you so anxious that you can't think straight? It's something that so makes you afraid that you know you're being driven by it. It's because some spiritual master, something, is enslaving you. And it's controlling you. It's directing you, or a third test, of course, would be sadness.
+
+If you lose something good, you grieve, you weep, it's terrible. It takes months to get over it. If you lose something that's ultimate, you want to throw yourself off a bridge. You want to throw yourself off a bridge. You don't feel there's no meaning in life.
+
+Martin Luther, in his larger catechism,  brilliant piece of work, expounds the first commandment. Thou shalt have no other gods before me. And in his exposition, he points out that the first commandment is the basis for all the other  commandments. He says, you never do anything else wrong in your life. You never do anything else wrong.
+
+You don't get over angry, over afraid, or over despondent. You don't lie, you don't kill, you don't steal, you don't do anything else wrong. Unless first, you're committing this sin. Something you've set up as an idol in your life, and that's the reason for everything  that happens in your life. It's the underlying factor in everything.
+
+If you have an eating disorder, you've offered yourself to the god of thinness. At some deep level, your heart is said, if I have thinness,  if I look like that, then I'll be okay. If you're a workaholic, if you overwork, and you know you're overwork,  you've made a covenant as you've offered yourself to the god of money or status or achievement. There's very many different ways for that. If you're in a relationship, and you know, and everybody knows, it's really a bad relationship.
+
+But you can't give it up. You can't give it up. You've made an idol out of male or female affection. You just can't imagine not being with somebody. These things got you, and here's what Paul is saying.
+
+Everybody in the world has got spiritual masters. No one in the world is free. You think you're in control. You think you're your own person, and you're not. And until you get rid of that illusion,  you'll never make the changes that you need to make in your life.
+
+And so you see his first answer to the question. When a person says, well, you know, if it's all by grace and you know,  why do gods will? Why not do my own will? He says, if you say, why not live any way I want? You are comically.
+
+You are fatally naive about how the human heart works. If you're not doing gods will, if you're not given wholly to him,  you're absolutely out of control. And everyone's shape is different. Everyone's spiritual masters are different. So the first step in any kind of major change is to understand yourself,  and you have to recognize the shape of your particular spiritual service.
+
+Number one, number two. Secondly, and two and three go together, but secondly,  if you're going to get the resources that Christ gives you to change,  you have to realize the scope and the breadth of the cosmic unity you have with him. The heart of this passage, this chapter in these whole three chapters,  are in these verses up here, verse three to five. Don't you know that all of us who are baptized into Christ,  Jesus who are baptized into his death in verse five,  if we've been united with him in his death,  we will certainly also be united with him in his resurrection. Now, first of all, who's he talking about?
+
+He's talking about the baptized, and what does that mean? And it's just his way of saying that converted. Who are the baptized? These are the people who have given their lives to Christ. Baptism is sort of like the wedding ring.
+
+It's one thing to fall in love to somebody. It's another thing to give your life to the person. It's one thing to be in love. It's another thing to commit yourself, and that's the ring that's baptism. And so when he talks about baptism,  he's not talking about super Christians,  or he's talking about everybody who's really given their lives to Jesus.
+
+What is true of these people? Verse five, they are united. We are united to him. And that word united is a strange word, actually. It's a horticultural word, and it means that we've been engrafted into the root.
+
+The root. Not engrafted up here, even though there's other places in the Bible that talk about that. The metaphor is trying to say that our life has been inserted into the very roots of his life. What does that mean? Well, look at verse five,  we have been united to the past and the future of Jesus Christ.
+
+Jesus past is now our past. Jesus future is not our future. That's what it's saying. I have a whole series to unpack this, but just give me a couple minutes right now. First of all, it says, we died in him.
+
+Our past is his past. What's that mean? Remember, I mentioned that Colossians three is another place where Paul goes into this,  even more succinctly, and in Colossians three,  he says, you have been raised with Christ,  where Christ is seated at the right hand of God, set your mind on things above. For you died and your life is now hid with Christ in God. You died in him, you're raised in him, you're seated at the right hand of God in him.
+
+What's that mean? Here's what it means. Imagine a person who has become rich, and how did he or she become rich? Here she became rich through the brilliance and the diligence of effort. So, riches came to this person through the brilliance and diligence of effort,  their efforts.
+
+But now they get married. How does all those riches come to the new spouse? Through legal union by grace. The one person has done everything in order to bring all this wealth,  bring all this wealth and mass this wealth. But the second person just gets married.
+
+Legal union by grace, like that. This is telling you this, why is Jesus Christ at the right hand of the Father? That's a place of honor. That's where you put the prime minister. That's where you put the returning conquering general.
+
+You know why he's at the right hand of the Father? Look at what he's accomplished. Look at his life. Look at the nobility and the goodness and the greatness and the courage of what he's done. And the Father looks at the Son and his heart literally bursts with delight.
+
+And this text is saying that everything Jesus Christ has done is now legally true of you. The determining factor in your relationship with God is no longer your past but Christ's past. And the Father dotes on you and accepts you and delights in you and sees you  as having all the beauty and the greatness and the glory of his Son. He sees you as a free from condemnation for the guilt of your sins as if you had died yourself  and already paid the penalty for all your sins. The Psalms can profoundly shape the way you approach God.
+
+Even Jesus relied on the Psalms to face every situation, including death. In Tim and Kathy Keller's 365 day devotional, the Songs of Jesus, you'll find daily readings  through the Psalms with fresh biblical insight. If you don't have a regular devotional practice,  this book is a wonderful way to start. And if you already spend time in study and prayer,  then reading and praying through the Psalms can help you bring your deepest emotions and questions  before God and discover a new level of intimacy with him. We'll send you Tim and Kathy Keller's  devotional is our thanks for your gift to help gospel and life share the love of Jesus with more  people.
+
+Request your copy today at gospelandlife.com slash give that's gospelandlife.com slash give. That's the first thing where United Christ passed but notice in verse five it also says  we will certainly be united in his resurrection. See that certainly it doesn't say conditional. Now if you really live a good life and you come to church and you come to Redeemer and take notes  on Tim and Keller's servants, you certainly will be you know it doesn't say anything like that. It says you you certainly period.
+
+What that means is there's an indesoluble connection. The moment  you believe with the future of Jesus Christ you are already connected to him. What does this mean? Well  there's a there's a fascinating Greek word that shows up twice in the Bible. It's a philosophical  term and it's a term that's the name of the term is Palingenesia.
+
+You hear the word Genesis  in there and it actually means the rebirth of the cosmos, the rebirth of the cosmos. And it came from stoic philosophy that believed that of course history was an endless cycle  and that the world would get worse and worse and worse and and there would be decay and  it would be brokenness and every so often the stoics believed there would be a purging  and a great fire would come and cleanse everything and purify everything and take away the old  and make everything new and fresh again and history was saw all over. That was the view of the  stoics. Endlessly enlist cyclical Palingenesia's birth and rebirth and rebirth and rebirth. Oh, what do we believe as Christians?
+
+Here's what we believe. In Matthew chapter 1928, Jesus Christ  takes that word and deliberately uses it in the most startling and astonishing way. He says in 1928  he says at the Palingenesia and it's usually translated at the renewal of all things. When the  son of man sits on his glorious throne everyone who has lost houses or brothers or sisters or  fathers or mothers or children or fields for my sake will receive 100 times as much an eternal life  for many who are first will be last and the last will be first. Jesus says there will be a  Palingenesia but one the there is a single point at which all of history toward which all of history  is flowing at which everything sat will become untrue.
+
+Everything will be purged. Everything will  become new and everything will dance and everything will be in fullness and wholeness. And what fire  is strong enough? What power is life giving enough to do such a thing? And the answer is when Jesus  Christ puts forth his royal power when this is when the son of man sits on his glorious throne in  the future.
+
+The entire world is going to be purged. Everything will be reborn. Cosmic rebirth,  everything sat will come untrue. History itself will be changed. Isn't that amazing?
+
+I'll tell you what's more amazing. That word shows up one more time in the Bible and an even more  surprising place. In Titus chapter 3 verse 5, Paul is talking about our salvation, our personal  salvation. And he says, Jesus saved us not because of righteous things we have done,  but through the washing of rebirth through the Holy Spirit. Do you know what that word rebirth is?
+
+It's the word Palingenesia. And it's totally inappropriate, at least at first glance. Because Palingenesia is talking about cosmic rebirth, not personal renewal,  but do you know what Paul is saying? Paul is saying, the minute you become a Christian,  the Holy Spirit comes into your life, we understand, right? But now do you understand what this is saying?
+
+The power of the future, the power of that future transcendent order, that absolute ultimate  life giving power that someday going to regenerate the entire cosmos comes into your life and begins  to work now. And therefore, when we say, if it's all of grace, why live a good life? Paul says,  you have a slightest idea what's happened to you, have you? He didn't just get a get out of jail  free card, you didn't just get a pardon? You were united to everything in Christ past and everything  in Christ's future.
+
+And you know what this means? You know, when you and I come, in fact me too,  when I came to Christ, when you come to Christ, when anybody comes to Christ, we come with  the most unbelievably small ambitions, we want inner peace. We want a little reorientation,  we want a little pickup, we want, you know, to feel like our life matters, you know,  we want some inspiration, you know. But boy, boy, there's a lot more to it than that. For  Kathy and me, this passage out of mere Christianity by C.S.
+
+Lewis has been a life shaping,  quote, listen, Lewis says, imagine yourself as a house. God comes into rebuild it. At first,  you can understand what he's doing, getting the drains right, stopping the leaks and the roof,  and so on. You know those jobs needed doing and so you were not surprised. But presently,  he starts knocking the house about in a way that hurts abominably and does not seem to make sense.
+
+What on earth is he up to? The answer is he is throwing out a new wing here,  putting on an extra floor there, running up towers, making court yards. You thought you were  going to be made into a decent little cottage. But he is building a palace. He intends to come and  live in it himself.
+
+If we let him, he will make the feeblest and filthiest of us into a dazzling,  radiant immortal creatures pulsating all through with such energy and joy and wisdom and love  as we cannot now imagine. A bright, stainless mirror which reflects back to God perfectly,  though of course on a smaller scale, his own boundless power and delight and goodness. The process will be long and in parts painful, but that is what we are in for. Nothing less. If becoming a Christian means union with Christ, I suggest two things.
+
+Get rid of your low goals. Get rid of all your goals. Get rid of your low goals and get rid of your  your goals. Get rid of your low goals. Instead of saying, what I am trying to say is people so  often say, well, if I become a Christian, what I have to stop doing that, will I still be able to do  that?
+
+Anticipate that you will not be able to anticipate the magnitude of the changes that when  they begin to come, you will be so grateful for. But they are way beyond anything that you could  ever dare ask or think. Nor, when you are getting started, is your mind open enough and alive enough  and that, frankly, spiritually smart enough to know what it is you need. So first of all, you have to  recognize the shape of your spiritual slavery. Secondly, you have to begin to grasp the scope and  the breadth of your cosmic unity with him.
+
+But lastly, you must, and here is the secret, you must live  daily out of your new identity. You must live daily out of your new identity. And two verses  that tell you about that, right here, verse six, we know that our old self was crucified with him so  that the body of sin might be done away with, that we should no longer be slaves to sin. Our old self, that's your former self, your old identity, crucified. It's a past tense.
+
+It's  perfect. It's done. Your old self, your former self is gone. When you become a Christian, you're  not the same person. So your old identity is gone.
+
+You've got a new identity. So that, and it's out  of this identity that the body of sin might be done away with. Now, that doesn't mean your body,  your physical body is sinful. What it's trying to say is your body under the reign of your spiritual  masters. Do you see the rest of the sentence?
+
+It means your life, your actions, your body is the  thing that Paul is using it as a way of talking about the way you actually live in the world, your  actions, your decisions. Through your new identity, you have the ability to break the reign of your old  spiritual masters in how you actually live. That's what verse six is saying. But in verse 11 says,  though, the identity is the secret. Look at verse 11.
+
+It doesn't happen automatically. In the same  way, count yourselves dead to sin. You are dead to sin. You are alive to God, but you've got to  treat yourself as dead to sin and life to God. You've got to remind yourself of who you are.
+
+In  verse 12 says, therefore, do not let sin reign in your mortal body so that you obey. It's evil  desires. And that simply means this. On the one hand, if you're not changing in the ways you  need to change, you don't lack any resources if you're a Christian. You got them all.
+
+You got  everything you need. On the other hand, they need to be deployed and they don't happen automatically. If you ever fail to live as you should, if you ever fail to change, you're not remembering who you  really are. You're not conscious of who you really are. You've forgotten who you are in Jesus.
+
+That's the point. That's the key. And let me close with three questions, which of course I'll  unravel over the next few weeks. Because as soon as you hear that, here's three questions. How does  that work?
+
+Why does it take so long? And why is that so hard? How does it work? Now, some of you  know that one of my favorite examples of this is Augustin. Santa Augustin, to put it mildly,  before he was a Christian, had a problem with sexual self-control.
+
+But after he became a Christian  one day, he was walking along and one of his old mistresses showed up. And she came after him. She was one of the people he was particularly attracted to. And she wanted to pull them off into a  fling, which those days would last for several weeks. And so she starts to try to invite him  up to her place and attack and attract and attach to him.
+
+And he says very kindly and very nicely  and very courteously. Thank you very much. Thank you. That's great. Thank you.
+
+Glad to see you. But  no, no, thank you. And it starts to walk away. And suddenly it occurs to her. Maybe he didn't really  recognize me.
+
+And she turned to him and said, Augustin, it is I. Augustin turned around and smiled  and said, yes, I know. But it is not I. See, she said, it's me, Augustin. And he said, yeah, I know.
+
+But it's not me. What's that mean? Here's what he was saying. I used to be a person that had to  have female affection. That's the reason I was in relationships, whether no matter how destructive  they were to you or to me, they were never about love.
+
+They were about me and about using you to  get to to fill the black hole which never was filled. I used to be a kind of person that had to have. I was driven, say, it was a spiritual master. But I have a new master. And when I think of what,  to the degree I think of who I am in him and what he thinks of me, I don't need this.
+
+I am free  to love. I don't need anymore the same things I used to need. That's what he's saying. And you know,  you can fill in the blank. This is how you change.
+
+You can say I used to be the kind of person  that crumbled under criticism because I had to have always perfect approval. I used to be a kind  of person that couldn't break up. But now I'm free to do what's really best for me and that other  person. I'm someone else in Jesus. That's how it works.
+
+Okay. So okay, second question. Why is it to take so long then? Because let's be honest about the fact that there's an awful lot  of people who have received Jesus and they've brought them, you know, and they got this new identity. They understand this.
+
+And yet the years go by and the years go by and they're not changing. Or should I  say, we're not changing. You're not changing. Why does it take so long? Dr.
+
+David Martin Lloyd-Jones  who in his 50s and 60s preached in London preached all long series on Romans chapter 6. And  that the heart of his series to understand what Romans 6 is talking about, he used an illustration. It's a fascinating illustration. He says, imagine a country in which one group of people has for  centuries enslaved to another group of people. And that's not very hard for Americans to imagine  that.
+
+Even though the illustration doesn't completely fit. Listen. So imagine a place where one  group has enslaved for centuries another group. And therefore, whenever a member of the enslaved  group would in the street meet a member of the oppressing group, the member of the oppressing  group could order that other person around to do anything. And if the person didn't obey,  the member of the oppressing group could have in beaten or killed.
+
+Had the right, had the power,  could do it. But then, a good king comes into power. And he decrees emancipation for all the  slaves. And he sets up his soldiers and he sets up his police in every town and puts his judges  in his place. And they're free.
+
+But the illustration goes on, do you think that's all it takes? It says the reality is that whenever a member of the enslaved group haven't been enslaved all  their lives haven't been enslaved for centuries. Whenever a member of the enslaved group would meet a  member of the oppressing group, they would tremble and quake. And when the members of the  impressing group would still order around the members of the enslaved group and tell them what to  do and say, go here and go there. They did it.
+
+They did it. Now, the member of the oppressing  group didn't have the power really to do that anymore. And if they'd stood up, they couldn't have  done a thing. And yet over and over and over again, the member of the enslaved group continued to  act like slaves because though their status had changed, really changed. The reality really changed.
+
+They were truly free. They hadn't grasped it. They hadn't realized it. They couldn't live  according to it. They remained as slaves.
+
+And Lloyd Jones said, he ends his illustration by  saying every Christian in this room is in that condition. It's the only reason you do anything  wrong is the only reason you cannot change is the only reason you are still all wrapped up and  absorbed in, you know, epi fears and epi anger and epi discouragement all the time. And while you  can't break your habits, you don't know who you are. You've got a real status change. It's really  there.
+
+It's not just in your mind. It's not just symbolic. It really happened. And yet you don't  know who you are. That's why it takes so long.
+
+It took long for that group. It's going to take  long for us. You say, well, I know. But you know what? I've even heard that illustration because  I've been here for 15 years.
+
+And I've heard you even say that. And I'm still not sure that I'm  still not changing like I should. One more question. One more answer. In verse 17, it says, you were slaves  as soon.
+
+But thanks be to God, you wholeheartedly obeyed the form of teaching to which you were  interested. Now, the form of teaching is the first part of Romans. It's the gospel. And it says,  you used to be slaves of sin, but the gospel set your heart on fire. And in the end, going through  a little set of steps with a counselor or with a pastor is still not really the secret.
+
+And here's  why. Years ago, in the beginning of time, according to the Bible, the serpent said to Adam and Eve,  if you utterly offer yourself to God, if you do whatever he says unconditionally, if you obey him  completely, he will abuse you. And you see, all of us sons of Adam and daughters of Eve have had  that lie come down into our hearts. It's still there. We believe, see, it says, offer yourself to  God.
+
+And there's a part of our heart that say he will abuse us like all the other masters. See, when we're living for career, or we're living for love, or we're living for these things,  we don't feel like we're enslaved. But when the idea of giving ourselves to God, offering ourselves  to God, unconditionally, we have to do whatever he says, anything in the Bible we have to say it,  we have no more freedom. That feels terrible. And so we say, I can't do it.
+
+I can't do it. We're  afraid to do it. And so we live in our kind of illusion of independence. We're actually in  slaves instead of going into what looks to us like slavery, which is actually the freedom of service  to God. How are we going to break that?
+
+And the answer is, the gospel, what Jesus did, has to  inflame the heart. I recently read an essay about a movie, which I haven't seen, but I'd like to  rent now that I read the essay. It was a movie about Vietnam right after the Vietnamese war,  you know, like in the 70s. And it's a movie called Three Seasons. And it's got four vignettes in it.
+
+And one of them is about a cyclodriver named Hai, H-A-I. And the cyclodriver is a bicycle  rickshaw. And he's poor, impoverished. And he loves Lawn, L-A-N, a prostitute, a beautiful  prostitute. Now both Hai and Lawn have completely unfulfilled desires because Hai can't afford Lawn.
+
+And Lawn, as a prostitute, is trying to sleep her way out of the life she hates. She hates the  life of poverty. She hates the dirty life she's in. And she longs to be able to go to the clean,  beautiful life of the people who live in those elegant hotels where she has to come and do tricks for  her customers, but she has to leave because she's never allowed to stay overnight. And she dreams  of someday leaving the world of poverty and getting into that world, the world of the hotel,  the world of the people who are able to live there.
+
+But it's not working because the more she  gives herself to prostitution in order to get out of her poverty, the more she's being brutalized,  the more she's being enslaved. But then Hai enters a cyclod race and to his surprise wins the grand  prize. And now he's got a bunch of money. And because he's got a bunch of money, maybe his  life can change, but guess what he does? He blows it all on one thing.
+
+He rents a room in this  elegant hotel overnight and he pays lawns fee. And so I want to see you in that room tonight. All the money. Okay, well, he's going to get his harsh desire, right? And so everybody, all the  viewers are expecting this steamy cinematic love scene.
+
+Of course, it's after all. It's a Sundance  Film Festival movie. There's going to be a lot of sex in it. So we're all expecting it and lawns  expecting it too. But then to everybody's shock, they get there and he says, I don't want to have sex  with you.
+
+And here's how the essay goes. This is what he actually says. He has only purchased her a  place as an actual guest in the normal world she dreams of joining. And he asks only permission to  watch her fall asleep in it. Slowly, comfortably, she falls asleep and he's gone by the morning.
+
+Having demanded nothing from her except the chance to fulfill her desire to belong. But something snaps in her. She finds she can't go back to her whole job of prostitution. Having experienced for the first time someone who used his power to serve her rather than use her,  she gets a new sense of her own dignity. She's not the same person.
+
+She's changed by the transforming  grace of selfless love. Now, Jesus Christ had all the power in the world. And he looks down at us and he sees us trapped in the things that we think are going to free us,  but they're enslaving us. And what does he do? Philippians 2 says he emptied himself and became a servant.
+
+Mark chapter 1045 says, I came not to be served. He says, but to serve and give my life a ransom for many. John chapter 13 says he took off his outer garment and he girded himself as a servant in order to  wash her feet. And what does this mean? He laid aside the infinities and the immensities of his being  and he purchased not just at the cost of money, but at the cost of his life.
+
+A room in the only place there are hearts can rest his father's house. He denied himself to love us and if Lawn was transformed by the knowledge of his selfless love,  how much more will we be able to say like a gustan to all the spiritual masters and all the  spiritual mistresses out there? It's not me. Now, why wouldn't you want to offer yourself to the  only master in the universe who's offered himself for you? He's offered himself absolutely utterly.
+
+Trust him then. Your career, give yourself to your career, careers never going to die for you. Your career is never going to offer itself for you. If you don't fulfill its dictates,  it will punish you all of your life. Give yourself to him.
+
+Give yourself to the one master who became  a servant and you'll know what Thomas Kramer in the old prayer book said that his service alone  is perfect freedom. Let's pray. We thank you father for this overview of how we can change  and what true freedom is and we ask that you would help us to apply it to our hearts  with your Holy Spirit and we ask it through Jesus and His name we pray. Amen.
 
 ---
 

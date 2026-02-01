@@ -7,6 +7,8 @@
 
 ---
 
+---
+
 ## Outline / 讲道大纲
 
 ### 1. Introduction: The Human Condition / 引言：人类的状况
@@ -25,33 +27,259 @@
 
 ## English Transcript / 英文原文
 
-### Introduction: The Human Condition
+today's message, Tim Keller explores the human condition through stories in the Bible,  uncovering what Scripture says about sin and why it's the only explanation deep enough  to face the truth about ourselves. I'm going to read you from Isaiah chapter 49. I'm going to read verses 8 down to 16. It's  in your bulletin. I'm going to read to verse 16.
 
-You don't have to look far to see that something's deeply wrong with our world and with us. But is there an answer that gets to the root of why? In today's message, Tim Keller explores the human condition through stories in the Bible, uncovering what Scripture says about sin and why it's the only explanation deep enough to face the truth about ourselves.
+This is what the Lord says. In the time  of my favor, I will answer you and in the time of day of salvation, I will help you. I will keep  you and I will make you to be a covenant for the people to restore the land and to re assign its  desolate inheritances to say to the captives, come out and to those in darkness be free. They will  feed beside the roads and find pasture on every barren hill. They will neither hunger nor thirst,  nor will the desert heat or the sun beat upon them.
 
-### God's Promise and Human Despondency
+He who has compassion on them will guide  them and lead them beside springs of water. I will turn all my mountains into roads and my highways  will be raised up. See, they will come from afar, some from the north from this west, some from  the region of Aswan. Shout for joy, oh heavens, rejoice so earth, burst into song, oh mountains,  for the Lord comforts his people and will have compassion on his afflicted ones. But Zion said, the Lord has forsaken me, the Lord has forgotten me.
 
-I'm going to read you from Isaiah chapter 49. I'm going to read verses 8 down to 16. It's in your bulletin. I'm going to read to verse 16. This is what the Lord says. In the time of my favor, I will answer you and in the time of day of salvation, I will help you. I will keep you and I will make you to be a covenant for the people to restore the land and to reassign its desolate inheritances to say to the captives, come out and to those in darkness be free. They will feed beside the roads and find pasture on every barren hill. They will neither hunger nor thirst, nor will the desert heat or the sun beat upon them. He who has compassion on them will guide them and lead them beside springs of water. I will turn all my mountains into roads and my highways will be raised up. See, they will come from afar, some from the north from this west, some from the region of Aswan. Shout for joy, oh heavens, rejoice so earth, burst into song, oh mountains, for the Lord comforts his people and will have compassion on his afflicted ones. But Zion said, the Lord has forsaken me, the Lord has forgotten me. Can a mother forget the baby at her breast had had no compassion on the child she has born? Though she may forget, I will not forget you. See, I have engraved you on the palms of my hands. Your walls are ever before me. Let's end there. This is God's Word.
+Can a mother forget  the baby at her breast had had no compassion on the child she has born? Though she may forget, I will not forget you. See, I have engraved you on the palms of my hands. Your walls are ever before me. Let's end there.
 
-### God's Response to Despondency
+This is God's Word. Now, if you've been coming over the weeks, you know, this is the actually end of a series on what  the Bible has to say about what's wrong with the human heart, what's wrong with the human race,  what the Bible calls sin. And if you're part of this series, you need to know that if you've  been following this series, this is the ultimate cure. Well, we actually have here, let me remind you  this when we've been in Isaiah for a while, what we have here is something written to people who are  going to face our facing exile. The Jews had Jerusalem destroyed.
 
-Now, if you've been coming over the weeks, you know, this is the actually end of a series on what the Bible has to say about what's wrong with the human heart, what's wrong with the human race, what the Bible calls sin. And if you're part of this series, you need to know that if you've been following this series, this is the ultimate cure. Well, we actually have here, let me remind you this when we've been in Isaiah for a while, what we have here is something written to people who are going to face our facing exile. The Jews had Jerusalem destroyed. That's the reason why there's discussion about Zion's wall. Zion was the hill on which the temple was built. And therefore, the word Zion can mean the city of Jerusalem. It sometimes can mean the temple, but the point is that when the Babylonian Empire came and besieged Jerusalem and destroyed it, everything was torn down. The walls of Jerusalem were torn down. The temple was torn down. The people were sent into captivity. And what Isaiah is giving us is a prophecy from the Lord to the people. And here he's asking, here he's answering the question. And the question is going to be, how can we face this? What are you going to do about this?
+That's the reason why there's  discussion about Zion's wall. Zion was the hill on which the temple was built. And therefore,  the word Zion can mean the city of Jerusalem. It sometimes can mean the temple, but the point is  that when the Babylonian Empire came and besieged Jerusalem and destroyed it, everything was torn down. The walls of Jerusalem were torn down.
 
-### The Nature of God's Love
+The temple was torn down. The people were sent into captivity. And what Isaiah is giving us is a prophecy from the Lord to the people. And here he's asking,  here he's answering the question. And the question is going to be, how can we face this?
 
-First of all, God stops. That may not be as easy for you to see unless you read in the whole chapter, but God sees on his way. He's talking about things. And he's actually got, he's, verses 1 to 13 is really a wonderful, a wonderful, there's the structure of this discourse is wonderful. And I'm not even going to talk about it here tonight, because I don't think that's what we're going to, we're not going to dwell on that. But he actually talks about three great stages in history of salvation. He's moving from the cross to a new community to a new creation, from cross to community to new creation. It's really wonderful. And then suddenly he looks down and he says, any questions, I mean, this is like it like sure. He's I'm going on to say any questions. And somebody puts up their hand and say, I'm depressed. I'm despondent. I don't understand what you're talking about. I feel cast out. I feel like it's all over. God stops. Because verse 15, verse 16, in fact, all the rest of the chapter. God stops what he's saying. He changed the subject because they say, you've forgotten me and everything about the rest of the chapter is about that idea. In other words, God, God lets himself be interrupted. He stops. And that's very important.
+What are  you going to do about this? Now, up to verse 13 and we didn't print all of it in this chapter,  we have a typical theological discourse. Isaiah, through Isaiah, God is saying what he's going to do  about it. And verses 1 to 8, we start with verse 8, but verses 1 to 8 of chapter 49 talks about  the servant, this mysterious figure who's going to come, the servant of the Lord. And what he's  going to do is he's going to suffer.
 
-### The Cross and God's Justice
+And as a result of the suffering, we say in verses 9 to 12,  he's going to gather a new people. He's going to create a new community of people from the east  and the west, pardon not from the east actually, from the desert over there, but from the north and  the west and the south. And there are going to be people who have been brought out of darkness,  people who have been set free. And so because of his suffering, he's going to create a new  community. And then lastly, when you get to verse 13, which is the climax, this enormous theological  discourse, we're told here that what God is going to do through the servant and in this group  of people, is going to be a such power that is going to actually redeem all of the world.
 
-Recently I have a, when I think about my own pastoral career, I realize that no matter what gender you are, no matter what race you are, no matter what age you are, we're all stupid in our own, special way. And when I was a young pastor, I had a tendency not to stop. When someone spoke despondently, there's a tendency to just pour on the theology. So, well, let me finish my lecture. Let me, you know, don't you know, you're just a fight by faith. You're adopted into the family. You're going to rule and reign. Don't you know, you're theology. It's when you're younger, when you're a younger band, when a younger pastor, there's a tendency to just say, well, I can fix this. Let me keep on going with my, my thing. You know, let me just pour the theology on. But God stops. Now, on the other hand, as I'm becoming an older minister, as it's obvious, I realize I still don't want to stop, but for different reasons. Well, you know, now when you see somebody despondent, in spite of all these great claims, now when you see someone say, I know what Christianity teaches, and I know what the Bible says, and I know all that, I'm still depressed. There's a tendency to look down and say, well, get over it. But you know, when you get older, you've seen people get through things and you say, come on, you'll survive. This will be all right. You know, what are you wallowing for? People have had much worse problems than you have, and you get through it, and I've been through. So when you're younger, it's a tendency not to stop and really listen, and when you get older, it's a tendency not to stop and really listen. I don't know when I'll be a good pastor. I do know this. God is interrupted. He stops. But the other general principle, he stops, but he argues, because verse 15 and 16 is an argument. Verse 15 and 16 is pugnacious. Verse 15 and 16 is contradicting what the despondent heart says, and this is a perfect balance, because on the other hand, he's got the compassion to stop, but he argues.
+Because  when you see here, we see shop for joy or heavens, or earth person to song or mountains,  God is actually going to renew all of creation. Whatever God does is going to be so powerful that  all of creation, the heavens and the earth is everything's going to be renewed. Everything's going  to be brought into some kind of blossom. And that's what God is saying. He's going to do.
 
-### Application: Living in God's Love
+It's  sweeping. It's huge. It's immense. And it's too sweeping and it's too huge and it's too immense. Because verse 14 just hits you between the eyes.
 
-Now, here's the principle I mean. Before we move on to specifics, it's the general principle. If you don't listen to your heart, you'll be in psychological rubble. But if you only listen to your heart, you'll be in psychological rubble. If you don't listen to your heart, by the way, almost all of us fall into one of these or the other. One of these mistakes. Some of us just don't listen. We say, oh, well, you know, you, you, you deny it. You don't, you know, all that upset. I'm not angry. I'm not, I'm all right. I'm fine. And you just stay busy. And you don't sit down and listen to your heart. You don't listen to find out just how bad is it? And what's the cause of it? So a lot of us just, well, you know, we're kind of extroverts, you know, so let's get out and do things. You know, that'll, I'll just be fine. We don't listen to our heart. On the other hand, some of us do nothing but listen to our heart. We just let our heart forsaken, forgotten, forsaken, forgotten. You want chemistry? I'm forsaken. I'm forgot. Now listen, if you only listen to your heart and you never talk to it and you never grab hold of it and you say just the truth, you're out of touch with reality, buddy. I mean, you have to do that. If you don't, if you never listen to your heart and if you only listen to your heart, but see what God does is he stops to listen. He takes it very seriously, but he argues. And that's the general principles. However, what's the specific things he does with a despondent heart? And there's three things. And you know what? As I hinted at the beginning, these three things do not just cure a despondent heart, and this is the cure for a sinful heart. You know, the word forgotten for forsaken, the word for forsaken is kind of an external word. It has more to do with you haven't come through for me, but the word forgotten is more of an internal word, which is you've rejected me. For forsaken has more to do without a sight and forgotten, more out of mind. For forsaken, more is how can you have let these things happen to me? Forgotten is more like you've rejected me because there's something wrong, isn't there? I'm no good. And you know, sometimes despondency is made up more of anger than shame and sometimes it's made up more of shame than anger, but they're kissing cousins. They're very, very close. It's very hard to know, which is which sometimes. And so when God comes to the despondent sinful sick heart, he enjoins three things. He calls us to three things. And they're all here in verse 15 and 16, verse 15, 16 A and 16 B. Look, well, I'll just say what the three things are. He says, think of who you. Think of who I am. Look at what I have done. And practice who you are, okay? Think of who I am. Look at what I've done and practice who you are.
+If you're reading along, if you're reading through  the chapter, in a way, I can see this in a way that you can't because I didn't print you the whole  chapter here. But if you move on through the chapter, here's God talking about, I'm going to do  this. And I'm going to do that. And this is, of course, at least the Stoxology where he's calling  nature to blossom into praise God. And suddenly verse 14 comes along.
 
-### Conclusion
+And what is verse 14? What is it? The people listening to God respond. And what do they say? Wow, no, what do they say?
 
-Our Father, we ask that you would show us how this, how Jesus was destroyed by justice so that now justice is on our side, and your love for us is indestructible. Would you please show us how that works out? Would you please show us how we can apply that? Father, this is a strong medicine. It's the most difficult thing for many of us to grab hold on. We try to hold on to it, and we find that we have to beat it into our heads over and over again, and we lose our orientation towards so quickly. Would you, Lord, tonight, buy your grace and grave these truths into our hearts deeper than they've ever been engraved so that we can start to practice who we are and really see what you've done. We pray this in Jesus' name. Amen.
+Look,  I'm still depressed. Here's God saying, oh, look at all the things I'm going to do. And what it says,  but Zion said, the Lord has forsaken me. The Lord has forgotten me. Now what you have here  is God giving this theological discourse to the people.
+
+And the people responding by saying  that, say, saying this, the realities of my present life are overwhelming such remote, abstract,  distant, lofty promises and claims. All your theology. All I know is Zion's broken down. My life  is broken down. How could you let this happen to me?
+
+In other words, here's God giving this great  theological discourse. And the people say, I'm still depressed. You forsaken me. You forgot me. I don't even know what you're talking about all this heavens and earth.
+
+I don't know who this  servant is. I don't know what's going on here. And therefore what we have is industrial strength  despondency, the human heart. It's very hard to make the human heart feel happy and loved. I mean, some of us are worse than others.
+
+Let's face it. But basically here, listen, you tell a human  heart. You're a disgrace. You're trash. You're despicable.
+
+And you never forget those. You never  forget statements like that. Never in your whole life. But you tell a human heart, you're wonderful,  you're great. I like you.
+
+And you need that. It fades so fast. Five minutes later, you need to hear  it again. Or you forget it. The human heart falls into respondents in spite of claims of love.
+
+And what does God do? We have here. It's very interesting. In verse 14, we see someone saying  in spite of all these great claims, I'm still depressed. You don't love me.
+
+I don't feel left by you. I don't feel that you're committed to me. And we see how God deals with a despondent heart. And that's pretty instructive. How does God deal with it?
+
+How does God deal with a person who's  despondent in despair? First of all, let me show you two general principles and then three specific  principles, two general ways in which God works with a despondent depressed person. And then three  very specific things that he joins us to do. First, there's two real general principles and they go  like this. First of all, God stops.
+
+That may not be as easy for you to see unless you read in the  whole chapter, but God sees on his way. He's talking about things. And he's actually got, he's,  verses 1 to 13 is really a wonderful, a wonderful, there's the structure of this discourse is  wonderful. And I'm not even going to talk about it here tonight, because I don't think that's what  we're going to, we're not going to dwell on that. But he actually talks about three great stages in  history of salvation.
+
+He's moving from the cross to a new community to a new creation, from  cross to community to new creation. It's really wonderful. And then suddenly he looks down and he  says, any questions, I mean, this is like it like sure. He's I'm going on to say any questions. And somebody puts up their hand and say, I'm depressed.
+
+I'm despondent. I don't understand what  you're talking about. I feel cast out. I feel like it's all over. God stops.
+
+Because verse 15,  verse 16, in fact, all the rest of the chapter. God stops what he's saying. He changed the subject  because they say, you've forgotten me and everything about the rest of the chapter is about that idea. In other words, God, God lets himself be interrupted. He stops.
+
+And that's very important. Recently I have a, when I think about my own pastoral career, I realize that no matter what gender  you are, no matter what race you are, no matter what age you are, we're all stupid in our own,  special way. And when I was a young pastor, I had a tendency not to stop. When someone spoke  despondently, there's a tendency to just pour on the theology. So, well, let me finish my lecture.
+
+Let me, you know, don't you know, you're just a fight by faith. You're adopted into the family. You're going to rule and reign. Don't you know, you're theology. It's when you're younger,  when you're a younger band, when a younger pastor, there's a tendency to just say, well, I can fix this.
+
+Let me keep on going with my, my thing. You know, let me just pour the theology on. But God stops. Now, on the other hand, as I'm becoming an older minister, as it's obvious, I realize I still don't want  to stop, but for different reasons. Well, you know, now when you see somebody despondent, in spite of  all these great claims, now when you see someone say, I know what Christianity teaches, and I know what  the Bible says, and I know all that, I'm still depressed.
+
+There's a tendency to look down and say, well,  get over it. But you know, when you get older, you've seen people get through things and you say, come on,  you'll survive. This will be all right. You know, what are you wallowing for? People have had much  worse problems than you have, and you get through it, and I've been through.
+
+So when you're younger,  it's a tendency not to stop and really listen, and when you get older, it's a tendency not to stop  and really listen. I don't know when I'll be a good pastor. I do know this. God is interrupted. He stops.
+
+But the other general principle, he stops, but he argues, because verse 15 and 16 is an argument. Verse 15 and 16 is pugnacious. Verse 15 and 16 is contradicting what the despondent heart says,  and this is a perfect balance, because on the other hand, he's got the compassion to stop, but he argues. Now, if you want a perfect example of this principle, this balance that you've got to have, if you're  dealing with your own despondency, or somebody else's, the principle is best embodied in Psalm 42,  where you have a Psalmist who's discouraged, and the Psalmist says to himself, he says,  why art thou cast down on my soul? Why art thou cast down on my soul?
+
+And why art thou is  quite with him? Now, if you look here, that's the perfect balance, because on the one hand,  he's listening to a soul. He's listening to his heart. He's saying, what's the source of your  disquiet? What's the source of your casting down?
+
+He's listening to his heart. But on the other hand,  he's arguing with his heart. Why are you cast down on my soul? What are you doing down there? Now, here's the principle I mean.
+
+Before we move on to specifics, it's the general principle. If you don't listen to your heart, you'll be in psychological rubble. But if you only listen to your  heart, you'll be in psychological rubble. If you don't listen to your heart, by the way,  almost all of us fall into one of these or the other. One of these mistakes.
+
+Some of us just don't  listen. We say, oh, well, you know, you, you, you deny it. You don't, you know, all that upset. I'm  not angry. I'm not, I'm all right.
+
+I'm fine. And you just stay busy. And you don't sit down and  listen to your heart. You don't listen to find out just how bad is it? And what's the cause of it?
+
+So a lot of us just, well, you know, we're kind of extroverts, you know, so let's get out and do  things. You know, that'll, I'll just be fine. We don't listen to our heart. On the other hand,  some of us do nothing but listen to our heart. We just let our heart forsaken, forgotten, forsaken,  forgotten.
+
+You want chemistry? I'm forsaken. I'm forgot. Now listen, if you only listen to your heart  and you never talk to it and you never grab hold of it and you say just the truth,  you're out of touch with reality, buddy. I mean, you have to do that.
+
+If you don't,  if you never listen to your heart and if you only listen to your heart, but see what God does  is he stops to listen. He takes it very seriously, but he argues. And that's the general principles. However, what's the specific things he does with a despondent heart? And there's three things.
+
+And you know what? As I hinted at the beginning, these three things do not just cure a despondent heart,  and this is the cure for a sinful heart. You know, the word forgotten for forsaken, the word for  forsaken is kind of an external word. It has more to do with you haven't come through for me,  but the word forgotten is more of an internal word, which is you've rejected me. For forsaken has more to do without a sight and forgotten, more out of mind.
+
+For forsaken,  more is how can you have let these things happen to me? Forgotten is more like you've rejected me  because there's something wrong, isn't there? I'm no good. And you know, sometimes despondency  is made up more of anger than shame and sometimes it's made up more of shame than anger,  but they're kissing cousins. They're very, very close.
+
+It's very hard to know, which is which  sometimes. And so when God comes to the despondent sinful sick heart, he enjoins three things. He calls us to three things. And they're all here in verse 15 and 16, verse 15, 16 A and 16 B. Look, well, I'll just say what the three things are.
+
+He says, think of who you. Think of who I am. Look at what I have done. And practice who you are, okay? Think of who I am.
+
+Look at what I've done and practice who you are. Now, here's the three. First of all,  think of who I am. Who is he? Now, we have here a metaphor that God deliberately chooses to tell us  something about who he is.
+
+Verse 15, can a mother forget the baby at her breast and have no  compassion on the child? She is born. Yay, she may forget, but I will not forget you. Now, why does God pick a nursing mother to tell us something about himself? This is not  sentimental.
+
+As a matter of fact, it's not sentimental at all. If you think about it, because he's  really talking about mothers who sometimes forget. I mean, this isn't sentimentalizing. This is not a way of saying, oh, there's nothing like a mother's love. This is not what's going on here  because there are things like a mother's love.
+
+A love between husband and wife is certainly as deep,  really richer and certainly more satisfying, I think. But God has chosen this particular kind  of human connection to tell us something about himself that's incredible. I mean, well, here's what it is. What is a nursing mother like or in relationship to  what is this? Okay.
+
+This is the point. A nursing mother's relationship of love to her child is not  that volitional. It's not that it's not conditional. It's not volitional and conditional. You fall in love  with somebody.
+
+You choose that person. They choose you. You know, you do something. They do  something. If they don't reciprocate, you can't go on.
+
+Okay. There's conditions. There's volition. There's choices, but there's something incredibly powerful and virtually automatic. A mother's love for  her child is driven by her very nature.
+
+It's driven by her biology. It's hardwired. Let me give you  three examples of this. A nursing mother, first of all, a nursing mother's relationship to her child  is rigidly regular. I had a laugh, by the way.
+
+Matthew Henry is a Puritan who wrote a commentary at the  end of the 1600, 1690s. Puritans, they're a little straight-laced. Why would a man know this  except that I understand his wife had 11 children? Therefore, this is what he says in his commentary. A  nursing mother, most of all, cannot but be tender of her sucking child for her own breast will  soon put her in mind of it if she should forget it.
+
+Here's something. By the way, for some of you  guys, this might come as news for you. Unless a nursing mother regularly nurses her child,  unless she releases the milk, unless she is meeting the needs of her child, she's in pain. Your breasts hurt. Yes, love between a man and a woman.
+
+That might be people say, well, that's  hormones, but boy, this is hormones. You say, well, your hormones are driving, but not like this. Every so many hours you're in pain if you don't meet the needs of this loved one is unbelievably  regular, and then secondly, it's incredibly tender and emotional. There's another thing that  Matthew Henry and I have learned from talking to nursing mothers is that along with the milk  comes tremendous feelings of nurture and emotion. Sometimes the milk brings the feeling,  sometimes the feelings and the thoughts bring the milk.
+
+This is a part of the biology,  it's part of the hormone. It's part of who she is that as she thinks loving thoughts, the milk comes  and it's a tremendous tenderness. She takes that baby and she looks at every single thing about it. She looks at every hair. She looks at every eyelash.
+
+She's moved by who she is to this enormously  detailed and tender care. And then thirdly, it's not only rigidly regular. It's not unbelievably  emotionally tender, but it is utterly unconditional. When you enter into a relationship with a husband  or wife or you get romantically involved with somebody, there's got to be some reciprocity. Then the person's got to do something back.
+
+I'm sorry. The person never even speaks on your first  date. You know, you've had a bad date. But here's a woman that finds herself driven by her very being  to lovingly, suddenly new mothers, this happens. Your life stops.
+
+Everything in your life stops  and it's completely revolving around this little thing. Seven days a week, 25 hours a day,  seven days a week, 365 days a year. And the kid doesn't even burp. Thank you. Those burps are not thank you.
+
+So you can, you want to imagine it fine, but it's just not the case. The child does nothing. The child, there's no conditions. Doesn't matter what the child does,  what child looks like the child doesn't merit it. It is utterly, utterly regular.
+
+It is utterly tender  and it is completely unconditional. Imagine God to choose this to talk about how He relates to us. It's not the only image, friends. This is not the only image. Of course, we know there's others  to get across the idea.
+
+But do you see the power of this thing? He says that's  how I relate to you. That is one image that I can give you to give you some idea  about how strongly, how powerfully, how detailed and how unconditionally I love you. The Psalms can profoundly shape the way you approach God. Even Jesus relied on the Psalms to face  every situation, including death.
+
+In Tim and Kathy Keller's 365 day devotional, the songs of Jesus,  you'll find daily readings through the Psalms with fresh biblical insight. If you don't have a regular devotional practice, this book is a wonderful way to start. And if you already spend time and study and prayer, then reading and praying through the Psalms  can help you bring your deepest emotions and questions before God and discover a new level of  intimacy with Him. We'll send you Tim and Kathy Keller's devotional as our thanks for your gift  to help Gospel and Life share the love of Jesus with more people. Request your copy today at  gospelandlife.com slash give.
+
+That's gospelandlife.com slash give. Because you see when he says, yes, she may forget. What does she see? He's saying,  what he's saying is, yeah, mothers don't forget. I mean, nature only goes so far.
+
+There are women  who buck nature. There are women who don't do it. But what he's trying to say is simply this. He says, my love for you is not only exactly like a mother's natural love, but it's infinitely  greater. But don't you see the real point?
+
+He's not just saying, you see a mother's love? Mine's  more powerful. You see a mother's love? Mine's more free and unconditional. You see a mother's  love?
+
+My love is more detailed. Don't I say in Psalm 56? I know how many tears are going down your  cheek even a mother doesn't know that. But he's going beyond that. And he's trying to say,  I am misdriven by my nature to love you as a mother is to love her child.
+
+It is utterly natural. And when he says that, now there's a number of commentators that have helped me on this  and have said, this is astounding because if you think about it, especially since, and this is  one of the reasons why this sermon came after last week's sermon, last week's sermon tells us  something about the nature of God. He is holy. He's a judge. He is a, what, we talked about this  lot.
+
+He's an angry God. He's angry about evil. He's a God of tremendous justice. And in light of  that, what would you say? If God loves us, surely he's bucking his nature.
+
+If God loves us, surely  it's wonderful, but surely he's bucking it. And God says, no. If I would cease to love you, I'd cease  to be me. Everything about me, everything about my nature leads me to be absolutely,  powerfully, unconditionally, tenderly, emotionally, regularly. I hurt.
+
+It's hard to believe  that he would say, I hurt if I don't make your needs. How could that be? Well, it's the second. The first thing he says, this is who I am, but you don't understand how that could be unless  he's looked secondly at, look what I've done. And what has he done?
+
+Verse 16, the first, for  first clause is what he's saying. See? I have engraved you on the palms of my hand. Now this is the  answer to what we just asked. How could, how, I know, some of you are going to the bends.
+
+I mean,  last week, the whole point was, this is an angry God. And God says he's an angry God. He says, I am a  pure eyes that can be hold iniquity. And here he says, my very purity, my very, my very nature  has turned me into someone far more powerfully, far more driven to love you than a mother for an  infant. How could that be?
+
+Here's the answer. Look what he's done. I have engraved you on the palms  of my hands. Now what in the world is that mean? Let's let's break it into two pieces, engraved  palm of the hands.
+
+What is this image getting across? Everything. First of all, engraved. Listen,  there are some perfectly decent words they could have used. Or Isaiah could have used or God could have  used, however they worked this out, which I don't completely understand.
+
+But perfectly good words  for, for, for tattoo, they didn't use them. This isn't, it's not what it's saying. Nothing tattooed. It's not saying written engraved. And the word engraved, you say, what does the word, what it means exactly  what it means in English?
+
+It means to get out a hammer and get out a chisel and to actually cut into  stump something hard. That's weird. Why? Well, first of all, engraved means two things. First of all,  it means permanent.
+
+He's put his name, our names on his hands permanently. They'll never wash off,  they'll never wear off. There's two ways, you know, you put something on your hands. Sometimes  it washes off. Sometimes it just wears off with a lot of heavy use.
+
+Nothing. We'll take our name off his  hands. But it's not just permanent. The word engraved also means artistry. He doesn't say he  chipped it.
+
+Ingraved is a work of art. And it gets at this. What it's getting at is the other place  in the Bible that talks about our names being engraved is back in Exodus 28. In Exodus 28, we're told  the high priest when he goes before God into the tabernacle is wearing an effort, which is a  breastplate. And on the breastplate, there are two precious stones.
+
+They're in a gold. They're  encased in gold. So they're absolutely gorgeous. And on those stones is engraved the names of  the children of Israel. And why?
+
+Well, see, this is the connection between the two. In verse  in chapter 28, it says, why is the high priest doing that? It's very simple. It says in order  to be a perpetual memorial before the Lord. Memorial.
+
+In other words, whenever God minds us, this is  what Exodus 28 say. Whenever God remembers us, whenever God thinks of us, he looks at our names  and he sees a beauty. He says an unbelievable beauty. Now listen, just for a second, this is something  that no other religion, not only no other religion gives you, this is even something that most of us  who erased in Christian churches have never really come to grips with. This is an astonishing  statement.
+
+And grave means the work of art. And this is what God is saying. It is possible  to be in a relationship with me. So you are not just tolerated by me. So you don't just have  access to me.
+
+So that you don't just every so often you're able to come and get things from me. You don't have just a relationship in which when you die, you'll be able to have blessings  and paradise. He is saying, it's possible to be in a relationship with me so that you know that  when I look at you, I'm having an aesthetic experience. And you see the link  when a mother looks at a child because of her very nature, she just drools over the child. Literally.
+
+And God says it's possible to be in a relationship with me so that when I see you,  I'm ravished with your beauty, I can't get over you. I can hardly express the delight, I can hardly  understand. I can't hardly believe I'm just drawn to you. That's the link. We're engraved.
+
+It means we are an aesthetic experience. Here's another way to put it. When God, what do you  look like? Who are you? When it's possible to be in a relationship with God so that you know  this, that when God looks at you, he sees an absolute beauty.
+
+And of course, if God sees you that way,  then that's the definitive view. It doesn't matter what it doesn't matter what your friends say,  it doesn't matter what your parents say, it doesn't matter what the mirror says. It doesn't matter  if you put on five pounds, it doesn't matter. None of those things could pop. This is the ultimate  mind.
+
+This is the ultimate view. This is the ultimate you. And God says, yes, it's possible to be  in a relationship to me so that you're a work of art. When you say, how could that be? And here's  the answer.
+
+It's not, you see, if you go back to Exodus 28, it's almost completely inexplicable. How  in the world could we possibly be something that beautiful? Well, yeah, I see, we're engraved on  these beautiful stones on a high precephal. That's beautiful. It's wonderful.
+
+How, how could that  possibly be? This is ridiculous, maybe you'd say. But here we see something else. Here we see  our names are engraved on his hands. On the palms.
+
+Now, first of all, the palms of the hands means  this is the most visible place. If I, if I would engrave something anywhere else in my body, I might  not see it. But my palms, my hands, I can't help but see it. Secondly, what this means is it means  that absolutely everything he does, the palm is the way you do everything. This is how I move my  mic.
+
+Here's how I look at my watch. Here's how I turn off the light. I have to use my palms. And when  God says, I put your, your name on the palms of my hand, what he's saying is everything I do. I'm doing for you.
+
+It's like a mother. Everything I do, I'm doing for you. No matter what happens,  I'm doing for you. You know, so here's Joseph and his brothers grab him and throw him into a pit. Remember?
+
+And they sell him into slavery to Egypt. And he's down the pit. We're told  back in the passage in Genesis and he's crying out to them. And he's crying out to God. And God  seems like he doesn't remember him, doesn't hear him.
+
+But you see later on, Joseph was able to realize  if God had actually answered my prayer as I made it, I'd be dead now. I never would have become  Prime Minister of Egypt. I never would have run the family relief program. I never would have saved  all those thousands of people. I wouldn't even have saved my own family's physical life.
+
+And I never  would have led my own brothers to repentance. And therefore, they would have been spiritually dead,  they would have been physically dead. In other words, God, when he seemed to not answer my prayer,  was remembering me, everything that happens, everything he does is being done for me. It's amazing. You say, well, but that's not all.
+
+It's not just that it's on the palm of the hands  of the most visible place, not palms of the hands of the most active place, but it's the most vulnerable  place. You see, when somebody says, listen, see, my outstretched palms, this is the trans cultural  sign of vulnerability. If someone says, hands up, come out with your hands up, you don't come out  like this. They'll shoot you. I mean, hands palms means I have no weapon.
+
+A palm means I have to  open my palm to shake, to shake your hand. A palm means appeal, a palm means welcome, a palm means  receive. When my palms are open, I am vulnerable. Now, here's the question, how in the world,  why in the world would someone engrave the palm? That would be, if you're going to put a chisel,  that's just terrible.
+
+That must have hurt terribly. It did. Many centuries later,  somebody came to another doubter, another despondent person, his name was Thomas. And he said to Thomas, look at the palms of my hands. And when you look at Jesus Christ,  look at the palms of his hands to see where your name is, and you will see nail prints.
+
+Why? This is the reason why we're a beauty to him. The reason we're such a beauty to God is because  our names have been engraved in something more precious than stones, more precious than diamonds. The sufferings of Jesus, the nails of Jesus, are the tools with which  our names are engraved on the palms of the hands. And what that means,  finally we have an answer to how 15 can be true. 16,000 is how 15 can be true.
+
+If Jesus Christ has, is our high priest, if he stands before the Father's throne, and he says,  look at what I have done. Look at my suffering. Look at how I've paid for everything. Look at how I've made a sacrifice. Do you know what that means?
+
+Over the years, when I first heard  that Jesus Christ was our high priest, and this is in Hebrews chapter 7, I'll affect the whole book  of Hebrews, and it's in verse 1, chapter 2, where it says that Jesus Christ, it's just an image,  but it's getting a point across. Jesus Christ stands before the throne of God. And he shows  the wounds. And he pleads for us. When I first heard about that, I said, well, that's good,  but it's not completely comforting, because how many times will God finally listen to Jesus about me?
+
+I mean, I keep failing, and I keep failing, and I keep failing, and I guess every day,  Monday morning Jesus will come on up there and say, look, Tim did it again. But for my sake, would you please continue to love him? I see God up there on the throne saying,  well, all right. But that's to miss the whole thrust of everything this whole passage is about. When Jesus Christ stands before the father's throne now, we know this.
+
+He is not, when he says,  love my brothers and sisters. When he pleads for us, he's not demanding, he's not asking for mercy. You know that? He's not asking for mercy. He's demanding justice.
+
+Okay, give me 60 seconds, will you? Jesus Christ is saying this,  thy law, O God, the man's death. For sin, I have paid all their debts. They trusted me,  their debts are paid, and therefore for you to get any punishment from them would be to be getting  two payments. Therefore, O God, all thy holiness, all thy justice, not just thy mercy, not just  thy mercy, not just thy love, all thy holiness, all thy justice, all of your nature demands that you  see them as a beauty.
+
+Every other religion and probably most of you who went to churches, Christian  churches believe the same thing. Every other religion thinks that when it comes to my relationship with  God, it's sort of like a set of scales. You see the set of scales, right? You know, in old courtrooms,  they always have some blind lady or something like that. You know, the blindfold on with the blindfolds  on with the scales.
+
+And what does everybody think? Well, I have good deeds and bad deeds, and if I  have more good deeds and bad deeds of my good deeds, I weigh my bad deeds, then God will deal with me. And Christianity says, the very holiness of God, the very righteousness of God,  compared to which all the mountains of the world and all the planets of the world are like a piece of  dust, are on your side now. That's the reason why first John, if you think I'm exaggerating,  first John 1 verse 8 says, if we confess our sins, he is faithful and just to forgive us our sins. It doesn't say he's faithful and merciful.
+
+Oh, of course he is, but I didn't say that. If he  would not forgive, if he would not continually accept us, those of us who believed in Jesus Christ,  he would be unjust. And that means his whole nature is now for us. Let me put it to you in a  nutshell. What power could turn the holiness, the righteousness, the vengeance, and the wrath  of God against evil?
+
+What power could turn all that into mother's milk? What power in the whole  universe could change things so that every bit of God's holiness now demands that he loves you  like a mother? It's the cross. There's a hymn that goes, what wondrousness, what mysteries in this  appointment shine, my breaches of the law are his and all his obedience, mine. That's the gospel.
+
+Lay your deadly doing down, down to Jesus' feet, stand in him and him alone, gloriously complete,  and see if you see what he is and then see what he's done. You can start to live as you really are  because the last part of verse 16 says something very simple. What does it say? He says,  thy walls are ever before me. Well, you wait a minute.
+
+Wait a minute. Wait a minute. The walls  are broken. No, they're not. Not in God's mind.
+
+God says, I treat you the way you're going to be. I practice towards you, not the way you look right now, but the way you're going to be. And that's what we're supposed to be doing. It's another way to put it. It's simply this.
+
+We are supposed to also take what he has done for us and say, look, if this is how he sees me,  then that's how I have to see myself. You have to apply this and it will do anything. When you  suffer, what are you supposed to say? Why have you forsaken me? Wait a minute.
+
+Wait a minute. That word forsaken that's used in verse 14 is also used in Psalm 21, verse 1. It's the very same  word Jesus cried on the cross. Jesus Christ is saying, you are not forsaken. I was forsaken.
+
+I was forsaken so that even when you're thrown into pits and you cry out and say, please don't  sell me into slavery, God will never, never forget you. He'll never forget you because he forgot me. And you must never act as if he has. What that means is, when no matter what you're suffering,  you say, this can't be punishment. It's can't be punishment.
+
+It's all fallen into the heart of Jesus. It can't be. When you feel guilty, you have to say, this can't bring me into condemnation. And when you feel disappointment, when you feel discouraged, ultimately discouragement  forsaken is always comes from this. Discouragement and forsakenness means,  I'm sorry.
+
+I know this is going to be vivid, but this is the text. When God says,  you're going to mothers for something only I can give you. There is a milk that your soul needs. It's everlasting love. Mother's love can't be everlasting.
+
+Even the mothers who are great die. And most mothers aren't great. And whatever you're, if you're discouraged and you say,  I'm forsaken, I'm forsaken, it's because there's something that you've made your mother instead of me. There's something that you say, if I have this, then I'm beautiful. You're only beautiful in me.
+
+And that's the reason why he says, if you see in a sense this, no matter what your situation is,  whether it's guilt, whether it's lack of self-control, whether it's suffering, no matter what it is,  you apply this. Apply this. This is the health of my soul. Can I just be honest? This is the health of  my soul.
+
+Not just that in general, I'm living for Jesus, not just in general. He forgives me when I  fall down, but that every fiber of God's attributes are for me. Therefore, the stars will fall from  heaven, but his love for me cannot change. On the basis of that, I have something to stand on. Any other ground is sinking sand, some marsh, and it can be the healthier soul, too.
+
+Here's one  less thing. I did use to have a house in which we had babies. I just remember this. The only time  whenever it was quiet, my gosh, it's quiet. I suddenly realized why.
+
+It's because they were nursing. I mean, it was the only time they ever were, because they can't cry when they're nursing. How quiet is  your soul? This is what God is saying. If your soul's not quiet, if it's restless, if it's a mess,  you don't know what it's like to know who he is, to see what he's done, and to practice who you  are now in him.
+
+Because when you get a handle on that, you finally got the milk. You're finally  your soul's quieted. Let's pray. Our Father, we ask that you would show us how this, how Jesus was  destroyed by justice so that now justice is on our side, and your love for us is indestructible. Would you please show us how that works out?
+
+Would you please show us how we can apply that? Father, this is a strong medicine. It's the most difficult thing for many of us to grab hold on. We try to hold on to it, and we find that we have to beat it into our heads over and over again,  and we lose our orientation towards so quickly. Would you, Lord, tonight, buy your grace and grave  these truths into our hearts deeper than they've ever been engraved so that we can start to practice  who we are and really see what you've done.
+
+We pray this in Jesus' name. Amen.
 
 ---
 
