@@ -111,6 +111,96 @@ Father, we ask now that you would grant to us to see the repulsive attractivenes
 
 ## 中文翻译
 
+### English Transcript (for reference)
+
+### Introduction: Emmanuel
+
+Christianity isn't just a spiritual practice or set of moral teachings. At its heart, it's the person of Jesus actively pursuing us. In today's teaching, Tim Keller impacts how Jesus actively seeks us, reveals truth to us, and calls us to Himself. Gospel of Matthew, chapter 1, verses 20 to 23.
+
+> But after Joseph had considered this, the people of the Lord appeared to him in a dream and said, Joseph, son of David, do not be afraid to take Mary home as your wife, because what is conceived in her is from the Holy Spirit. She will give birth to a son and you are to give him the name Jesus, because He will save his people from their sins. All this took place to fulfill what the Lord had said through the prophet. The Virgin will be with child and will give birth to a son and they will call him Emanuel, which means God with us. This is God's Word.
+
+If there's one word that sums up Christmas, it comes up all the time in Scripture readings and in the carols at all the services, it's the word **Emanuel, Emanuel**. It means God with us. And it's only got in English eight letters. And yet I tell you it is heavier than the heavens and the earth.
+
+### The Offensiveness and Attractiveness of Emmanuel
+
+I would like to open it up for a moment this morning and I would propose to you that in that one word, Emanuel, you have the most offensive and the most comforting, the most repulsive and the most attractive message that the world has ever heard. It's the most repulsive and the most attractive. It's the most repulsive because it says Jesus Christ is God and it's the most attractive because it says Jesus Christ is God with us.
+
+Look. First of all, it tells us that Jesus Christ is God. It's ironic that of all the Christian holidays, this is the one that's most broadly accepted and so popular. It's ironic because of all the Christian holidays, this particular holiday celebrates the one Christian doctrine which is the most offensive, the most in your face. And seemingly, I said seemingly, the most exclusive.
+
+### The Only Wayness of Christianity
+
+You see, Easter says our founder Jesus Christ was raised from the dead. What's offensive about that? It's great. Great. He rose into the dead, he triumphed over death. Even Lent in Good Friday says that our founder Jesus Christ died for our sins and even that. What's offensive about that? Sacrifice is great to die for your friends, it's noble.
+
+But Christmas, at Christmas we say, our founder Jesus Christ is not just a human teacher, the way the Western scientific skeptics would say, and not just a manifestation of divine principle, a manifestation of divine consciousness, like the Eastern philosophers and mystics would say, Christmas tells us that Jesus Christ is the creator God Himself, the transcendent God Himself, who uniquely once and for all became a human being.
+
+This sets Christianity utterly apart from everyone else. This sets Christianity on a collision course with what every other philosophy or religion says about the nature of God. Because over here in the West you have both Jews and Muslims that say God could never become human. But then over in the East you've got the Hindus and the Buddhists that are saying God continually becomes human. And Christianity won't have anything to do with either.
+
+### Radical Inclusivity of Christianity
+
+Because Christianity says that what happened at Christmas was that the transcendent creator God once and for all took upon Himself human nature. See Eastern religion believes that God is constantly manifesting, is constantly manifest in human beings. It's constantly being reborn. But the doctrine of reincarnation is not at all the doctrine of incarnation, which is what Christmas is about, in which Christians believe and the Bible proclaims that Jesus Christ became once and for all human who was the transcendent creator God.
+
+Now that's very offensive to people. And that brings about what Christians, I guess you could call, only wayness. You know, Jesus says, I am the way of the truth in the life. No one comes to the Father but by me, he says in John 14, that's, there it is, only wayness let's call it. And many people are so offended and so irritated by it. And they say, I could accept classic Christianity. I love everything about classic Christianity except for that only wayness. But I can't stand. It's too exclusive, they say.
+
+Now let's say a couple things about that quickly. First of all, the only wayness of Jesus Christ, the only wayness of Christianity is not an intolerant attitude. Ah, people say that's the problem. If it was only, if only Christians could get rid of that intolerance, if they could only get rid of that exclusive attitude, then I could handle it a lot better. But don't you see? The only wayness of Christianity is not an attitude, it's not a psychological thing. It's intrinsic to, it's part and parcel of what Christmas actually proclaims.
+
+### Conclusion: Emmanuel as the Medicine
+
+Put it this way, it has nothing to do with attitude. If you want to get rid of the only wayness of Christianity, you can't ask Christians just to sort of loosen up their attitude. You have to destroy Christmas, you have to take it away forever.
+
+Then there's a man who's very rich, and before he dies, he buries an incredible treasure, and he says it's somewhere in Wyoming, Montana, or Ohio, and then he dies. And of course, a lot of people want to find it, but it's hopeless. Who in the world could ever find a treasure buried somewhere in such a vast track?
+
+Then all of a sudden, a small group of people come up and they publicly proclaim that they have found, from the hand of the man who had buried the treasure, the treasure map. The map that tells right where it is. And they say, we have the map.
+
+Now, how would the discussion go? On the one hand, there'd be some people who say, they have the map, and therefore they know the way to the treasure. And on the other hand, there'd be people who say, they don't have the map. And therefore, they don't have the way to the treasure. But there would be nobody who would rationally say, what gives you the right to think you have the map? Because you see, it's not a matter of tolerance. It's a matter of whether that's the map or not.
+
+Nobody would say, what gives you the right? How dare anyone think that they know the way to the treasure? That's silly. And in the same way, when Jesus says, I'm the way, the truth, and the life, no one comes to the Father but through me. You can't say, why don't you just loosen up, Jesus? Why don't you just loosen up Christians? Why don't you just have a more tolerant attitude? It's not an issue of tolerance. Is he the map?
+
+We have the only religion. The only founder of any religion who claims to be God. Is he the map or not? Either he is, and he's the way, because no other founder of any other religion claimed to be such a personage, or he's not the map and he's not a way, but how dare anybody say, how dare you even think that you had to have the right to have the map? Don't you see?
+
+And therefore, the only way to get rid of the only wayness of Christianity is to destroy Christmas because that's the premise on which it's based.
+
+You may know the story of the prodigal son, but it's not just about a wayward, younger brother. In fact, Jesus tells this story to speak both to those who run from God and to those who try to earn his love by being good. In his book, The prodigal God, Tim Keller shows how this well-known story reveals the heart of the gospel, a message of hope for both the rebellious younger brother and the judgmental older brother, and an invitation for all to experience God's prodigal, extravagant grace.
+
+Whether you're a Christian or you're still exploring faith, The prodigal God will help you see your relationship with Christ in a whole new way. The prodigal God is our thank you for your gift this month to help gospel and life share the hope and joy of Christ's gracious and relentless love with people all over the world. Request your copy today at gospelandlife.com slash give that's gospelandlife.com slash give.
+
+But before you try to destroy Christmas, that is, and get all the retailers on Fifth Avenue very mad at you whether or not they believe. I would suggest to you for a moment that you are wrong if you think the Christianity is an exclusive religion and that Christmas makes it an exclusive religion. All my friends, Christmas is telling us that Christianity is a radically inclusive religion and here's what I mean.
+
+When you hear someone say, ah yes, Christians believe they have to believe in Jesus to get to God. Well, I believe that all good people, all worthy people, all decent and moral and loving people, no matter what they believe, can find God. Does that sound more inclusive to you? I tell you that is actually a form of very, very narrow exclusivity.
+
+And here's why a person who says that may look more inclusive than a Christian, but actually their premise is that morality and goodness is enough to find God. That's their premise. Their premise is that that's enough to be loving, to be compassionate. That's enough to find the divine, that's enough to find the good. Anyone they say who is really wonderful and loving and disciplined and diligent and able can find God, what about the rest of us?
+
+You exclusive types who say anybody, no matter what they believe, any good person can find God. What about those of us who are not disciplined? What about those of us who are not unselfish? What about those of us who have lived lives in our record when we look at it, we're not proud of it at all? What about those of us who are nervous wrecks?
+
+Don't you see, you're so called exclusivity and basically all religions and all philosophies outside of Christianity say the same thing. They say here's how you should live a good and decent and moral life and anyone who lives a good and decent moral life can find the divine. That's radically exclusive because that means that your religion is only for the able, only for the discipline, only for the good. What about us failures?
+
+See Christianity is radically inclusive. It's the one religion that says no matter who you are, no matter what you've done, no matter what your record is. You can unite with God. You can be welcomed into his family because all other religions say we've got, here's what to do. Let's go to God. Christianity says God's come to us and he's come in the form of a person and all you have to do is believe in him, grab hold of him.
+
+When John the Baptist says to Jesus, how do we know you're the one to come? And Jesus says, Matthew 11, he says this, he says look it, the blind see, the lame walk, the lepers are cleansed, the poor have good news for each of them, the lepers, the poor, the outcast, the failures, the marginal people, the people that every other religion so-called inclusive religions to say all good and able when cultured people are able to find God. I have a religion says Jesus that's radically inclusive, that brings them all in because I'm not a prophet telling you how to get to God, I'm God who's come to you, I'm in man you well, I am God with you.
+
+It says in 1 Corinthians 1, the same kind of thing. Paul says consider your calling my friends, he says to the Christian church there. Not many of you were wise, not many of you were influential, not many of you were of noble birth, but God chose the foolish things to shame the wise, God chose the weak things to shame the strong, God chose the despised things and even the things that are not to bring to nothing, the things that are that no one will boast in its presence.
+
+Don't you see Christianity is radically inclusive, it doesn't just include the strong, but the weak, not just the wise, but the foolish. Everything else about Christianity makes no sense without Christmas. Jesus is God and that's why his death is so valuable, otherwise his death is of limited significance. Jesus says God and that's why his claims make sense. Jesus says God and that's why it does make all other religions obsolete. Oh, you hate to hear that because it's so much more radically inclusive than they are.
+
+Jesus says no matter who you are, no matter what you've done, take hold of me, rest of me, all you need is need, all you need is nothing. See, repulsive and attractive at once, he is not only God but God with us.
+
+Listen friends, as I conclude, let me just point this out to you. This is a medicine chest, Christmas is a medicine chest in which you've got the medicine to heal whatever ails you. And I wish you saw that and I every year I try to break through the sentimental feelings and the nostalgic feelings that you get whenever you come to a Christmas service. I want you to see what's really there.
+
+Let me give you just a couple real quick examples. Some of you have guilty consciences today. Like Lady Macbeth, you're walking around and you can't get out that damn spot. And somebody's told you, well, this is low self esteem, but if you're more candid, it's guilt. You failed, you've come up short and you are trying to pay for it and you'll never understand your life until you begin to understand it in terms of moral economics.
+
+You're trying to pay for your failures with your tears or you're trying to pay with your good deeds or you're trying to pay with your accomplishments or with your achievements or you're trying to pay through self destructive behavior or you're trying to pay through rescuing people with them, you're trying to pay.
+
+Look at Jesus through Emmanuel. Who was it that died on the cross for you? God. Not just anybody, not just a nice guy, God. It says in Acts 20 verse 28, God redeemed us with his own blood, the blood of God. What is that worth? Anything. So stop trying to pay. Stop trying to get that damn spot out, as the lady Macbeth would say, with your tears and with your efforts, come to him, he's a man you will. He died for you. God died for you. One drop of his blood will pay for anything. You can put it behind you. You've got to stop there.
+
+Don't you see, Emmanuel is a medicine that will handle anything. But most of all, let me say now what I said at the beginning of the service, Emmanuel is all about God coming to be with us. And if God, the great God of the universe, would become a wriggling little baby for us, what should you be willing to do to get near him? It cost him tremendously to get near us. It's going to cost you something to get near him, but nothing like what it cost him.
+
+You're going to have to give up your sins. You're going to have to give up your life. You may have to give up a lot more of your time. But if you have a God who's willing to come this far to get near you, don't you think that when you make the effort to get near him, he'll respond, claw, clutch, crawl, do anything to get near this God. Or there's anything in your life keeping you away from him now, get rid of it. He's God with us, Emmanuel. Come to him, let's pray.
+
+Father, we ask now that you would grant to us to see the repulsive attractiveness of this great truth. We pray that you would help us to use it on our lives and use it on our hearts so that we would see the radical grace that's therein. And we would also see that this is something that will cure us of anything, no matter what we've done, no matter where we are, no matter how far away we are, we can come near because your son came to us. We pray that you'd help us by your Holy Spirit to apply these great truths to our hearts and our lives now. We ask it in Jesus' name, amen.
+
+---
+
+### 中文翻译
+
 ### 引言：以马内利
 
 基督教不仅仅是一种灵修实践或一套道德教义。其核心是耶稣这个人主动追求我们。在今天的教导中，Tim Keller 讲述了耶稣如何积极地寻找我们，向我们揭示真理，并呼召我们归向他。马太福音第 1 章第 20 至 23 节。

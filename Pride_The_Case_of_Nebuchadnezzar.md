@@ -255,6 +255,234 @@ You can also stay connected with us  on Facebook, Instagram, YouTube, and X. Tod
 
 ## 中文翻译
 
+### English Transcript (for reference)
+
+Welcome to Gospel in Life. Why is the world so broken? And why are we capable of inflicting such harm even toward those we love? People point to politics, poverty, or psychology, but none of these fully explain what we see in  ourselves and in history. This month on the podcast, Tim Keller is teaching from a series exploring the question,  what's wrong with us?
+
+Knowing us how the Bible's teaching unsin offers the only explanation deep enough to face  the truth in all its complexity, and the only hope powerfully enough to transform us. Let me read you the story of Nebuchadnezzar, which you actually just listened to. This found in Daniel chapter 4, it really starts at the very beginning of the chapter. And in the beginning of the chapter, Daniel is called in by Nebuchadnezzar, the great king  of Babylon, to interpret a dream for him. And we'll get into that and describe that dream, but we take this up, our reading at verse  24, and this is Daniel speaking.
+
+This is the interpretation of King. And this is the decree the most high has issued against my Lord the King. You will be driven away from people and will live with the wild animals. You will eat grass like cattle and be drenched with the dew of the heaven. Seven times will pass by for you until you acknowledge that the most high is sovereign  over the kingdoms of men and gives them to anyone he pleases.
+
+The command to leave the stump of the tree with its roots means that your kingdom will  be restored to you when you acknowledge that heaven rules. Before O King, be pleased to accept my advice, renounce your sins by doing what is right  and your wickedness by being kind to the oppressed, it may be that then your prosperity  will continue. All this happened to King Nebuchadnezzar. Twelve months later, as the king was walking on the roof of the royal palace of Babylon,  he said, is not this the great Babylon. I have built as the royal residence by my mighty power.
+
+Only for the glory of my majesty. The words were still on his lips when a voice came from heaven. This is what is decreed for you, King Nebuchadnezzar. Your royal authority has been taken from you. You will be driven away from people and will live with the wild animals.
+
+You will eat grass like cattle. Seven times will pass by for you until you acknowledge that the most high is sovereign over the kingdoms  of men and gives them to anyone he wishes. Finally, what had been said about Nebuchadnezzar was fulfilled. He was driven away from people and ate grass like cattle. His body was drenched with a dew of heaven until his hair grew like the feathers of an eagle  and his nails like the claws of a bird.
+
+And at the end of that time, I Nebuchadnezzar raised my eyes toward heaven and my sanity  was restored. Then I praised the most high. I honored and glorified him who lives forever. His dominion is an eternal dominion. His kingdom endures from generation to generation.
+
+All the peoples of the earth are regarded as nothing. He does as he pleases with the powers of heaven and the peoples of the earth. No one can hold back his hand or say to him, what have you done? At the same time that my sanity was restored, my honor and splendour were returned to me for  the glory of my kingdom. My advisors and nobles sought me out and I was restored to my throne and became even greater  than before.
+
+Now I, Nebuchadnezzar, praise and exalt and glorify the king of heaven because everything  he does is right and all his ways are just. And those who walk in pride, he is able to humble. This is God's Word. Now, the only thing funny about Nebuchadnezzar's name, in the 6th century BC, he was the absolute  monarch of the kingdom of the empire of Babylonia. Now, what did that mean?
+
+You know, Tom Wolfe and Bonfire of the Vanities coined a phrase, Masters of the Universe. And these, of course, were a name that he put in the mind of some big Wall Street guy  who felt he was on top of the world because he made seven figures. And Tom Wolfe said in his heart, he thought of himself as part of that elite little group  of people, Masters of the Universe, by my mighty power, for the glory of my majesty. I have really gotten on top of the world. But you know, here it's a real master of the universe, not just somebody who lives, you  know, around the corner here.
+
+They were the absolute monarchs of every part of the world they knew of. Every part of the world that he knew or his civilization knew anything about, he was  the absolute monarch of. And so, he built the, maybe the most incredible city in history. He built Babylon as his personal residence. And proportionately, to the rest of the world, it was much bigger than New York City  as now.
+
+And he had had something else. Imagine New York, all of its power, all of its diversity, and green. Because what Nebuchadnezzar did, and you can, one of the seven wonders of the ancient  world, the hanging gardens of Nebuchadnezzar, what he did at Babylon was he made skyscrapers  of the kind they were able to do then. He created this incredible city and it was like a park. The hanging gardens of Babylon.
+
+And yet, though here's somebody at the pinnacle of power, maybe a kind of power that only  a half dozen people in all of history have ever known. His life falls apart anyway. And when it's done, here's the incredible part. He's glad it happened. He's glad.
+
+He praises God for having done it. You know why? Because he says there was a spiritual cancer in me. There was something in me that was so bad. It was so dangerous that it poisoned my soul so deeply that even as drastic as the treatment  was, it was worth it to get it out of my soul.
+
+What is it? Pride. Spiritual pride. And I think there's no place in the maybe the world where it's more important to talk  about this particular guy. In this particular case, because you know, people come to New York with dreams.
+
+Dreams. You come to New York because you're good at something and you come to New York with dreams  of becoming maybe the best at something. And therefore it is maybe no more important place to ask these questions. Could it be that our own minds are as clouded as his was? Could it be, as we're going to see, that our own sleep is being troubled by the same causes  as his was?
+
+Could it be that your life is falling apart right now or your life is about to fall apart  right now for the same reason that his did, for the same lesson that he learned. And if anybody here says, well, I'm not capable of spiritual pride, you should know that in  a biblical diagnostic manual, that's the first sign of it to say something. Let's take a look. What is this teacher's, that's a dirty trick, is it? That anyway, but that's what the Bible teaches.
+
+Listen, this text tells us about pride, four things. It tells us about the sleep of pride, the heart of pride, the outcome of pride and the healing  of pride. Sleep the heart, the outcome of the healing, go through. Sleep. See, you notice it says here 12 months later, you see this?
+
+It says 12 months later. Now what happened 12 months before? If you read the very beginning of the passage, it goes like this, here is one guy you'd think  in the world that would not have any worries, that there'd be nothing to disturb his sleep,  there'd be nothing to disturb him. Here's the one guy in the world that can't ever worry about being fired. See, you know, nobody will ever downsize, you see.
+
+Here's also, you have to say, ah, yes, but he's always worried some army, what army? He's the absolute monarch, nobody else has an army. And he says in verse four, early on in the chapter, we didn't read it, in verse four,  he says, I, Nebuchadnezzar, was in my palace, content and prosperous. And I fell asleep and I was terrified by a dream, content and prosperous, but I was terrified  by a dream. And the dream, in the dream, he saw a tree that reached to the heavens, and it was so  cosmically large that everything in the earth was under the tree.
+
+All the creatures of heaven, everything in the whole world, sheltered under the tree. And it was magnificent, but suddenly in the dream of voice from heaven comes and says,  cut down the tree, strip off its leaves, scatter its fruit, and let the dew of heaven lie upon  the stump for seven times. And what's the purpose of all this? The voice says, and I quote, that the living may know that the most high is sovereign over  kingdoms of the earth, and gives them to anyone he wishes and sets over them the loliest  of men. Well, he's very upset, of course, so Nebuchadnezzar calls Daniel a man of God and says,  Daniel, let me tell you the dream, tell me what it means.
+
+And Daniel, the man of God, when he heard the dream, were told he went white, he blanched,  he was terrified, and he says, and these are his words in verse 22, you, O King, are that  tree? And God is coming to humble you, God is coming to cut you down, God is coming to show  you that you are not a master of the universe, but that you are weak and you are loley and  you live only by his will. So look it, and you see Daniel speaking at the top of this text that we read, he says,  God is coming, he's coming to humble you, and he's concerning, he says, therefore, be  pleased to listen to me. Change, turn, repent, humble yourself, and maybe this won't happen to you. But we're told that 12 months later, something did happen.
+
+But what do we learn here? I'll tell you what we learned before we move on to really talking about the heart of pride. What does this teach us? It teaches us this. No matter how accomplished you think you are, or will be, no matter how successful you  think you are, or will be, contentment and prosperity, the two words that Nebuchadnezzar  used, he says, I was content, I was prosperous, I was Lord of all that I surveyed, but I couldn't  sleep.
+
+No matter how content, no matter how prosperous you think you can get, it's never complete,  never. Nebuchadnezzar knew what only a few people in the world know to really know this, to really  know this, you've got to get to the top, and very, very few of us ever will. I was reading, I was watching an A&E biography on Howard Hughes. Biographies, newspapers, personal acquaintance tells us that the people at the top, top,  the Nebuchadnezzars of life are deeply troubled people. Why?
+
+Because they come to learn what the rest of us deny, and that is that human soul wants  something that is so big, that you can pour all the empires of the world into that  whole, into that heart, you can pour all the empires of the world into your soul and  it not be satisfied. What then is it that we're really after? See only the Nebuchadnezzars of the world really understand this. That's why they're despair, because they can't get content, and they can't get prosperous,  they can't sleep. There's something wrong, there's something missing.
+
+What could it be that you could pour the entire world into? And the Howard Hugheses and the Nebuchadnezzars and the people like that are deeply troubled,  they know what we don't know. The human soul wants something bigger than the world, but what could that be? They didn't know that once, two thousand years ago, there was a little stable that contained  something in it bigger than the world. And at any heart, the simplest, the filthiest, the feeblest, can also have in it something  bigger than the world that really satisfies.
+
+Therefore, no matter how you see pride cannot bring sleep, success, achievement, a sense  of being master of your universe, you aspire to it. Most of us from all of our life trying to get there saying if we could finally get there,  but the ones who have gotten there, they can't sleep. The sleep of pride, okay, secondly, the harder pride. And by the way, another thing we learn from this is that because God's a merciful God and  He sees the terrible outcome of pride, which we're going to look at here in a second, He  will send you voices, He will send you dreams, and He will send you Daniels if only you recognize  them for what they are. What are they?
+
+They're things that are here to tell you you're not in charge. You think you're in charge or you want to be in charge of your life, but you're not. Maybe a Daniel brought you to church today. I hope you recognize these voices and these Daniels and these dreams for what they are,  the merciful messengers of God. Anyway, Nebuchadnezzar doesn't listen.
+
+Twelve months later, he gets up and he says, is not this the great Babylon that I have made  as my royal residence and I have made it by my mighty power and for the glory of my  majesty. That is pride. You want to see what pride is? When he talks about God humbling the proud, he's not talking, there's a kind of pride, there's  a kind of thing we call pride that's good. There's a kind of thing we call pride that's good.
+
+And of course, one of my favorite quotes in all of my life that I've ever read is that  one that describes it. It's by Esok Denison of all people who said pride is faith in the idea that God had when  he made you. And what she means there, see what the Bible teaches is that you are not an accident. God created you. He created with a dignity and with purpose.
+
+He created you with design. And when a human being comes to understand that and grasp what the Bible says, when you  rejoice in it and when you are ravished with that and when you reflect on that, it creates  a stability in you. It creates a joy in you. It creates a kind of confidence in you. That can be called pride, but that's not the kind of pride that Devakita is talking about  here.
+
+When he says, he is able to humble the proud. What he's talking about is this, pride, spiritual pride is that which says, looks at life and  looks at all the things in life and says, I did it and I'm doing it. I did it. By my mighty power, I'm do it for the glory of my majesty. Life is by me and for me.
+
+Let me break that down. Pride, first of all, is that which looks at the good things in your life and says, that's  by me. I did it. I accomplished it. If things go well in your life, you look at that and you say, ask because I worked harder.
+
+Reason I'm doing better than other people is because I've worked harder than other people. Or I worked smarter than other people or I worked more, or ethically than other people  or whatever you say, that's by me. I did it. Therefore, secondly, pride looks at life and the good things at life and says, therefore,  I deserve. Pride looks at life with a very deep sense of owedness.
+
+Pride makes us look at life and say, I am owed these good things. Now, I'll tell you something. Pride has many forms and you've got to be careful. Pride works in a good life or a hard life. Here's how pride works when your life is going well.
+
+You say, I'm getting these good things. I'm doing better than other people because I'm working better than other people. I'm working smarter than other people or harder. You say, and you say, therefore, I'm owed this. When your life is going badly, when things aren't working out, what do you do?
+
+You look at life and you say, I'm suffering more than other people. Things aren't fair. I'm having a harder life than other people. Therefore, I'm owed this. It's the same thing.
+
+Whether your life's going well or whether your life's going poor, poorly,  what it means to be proud is the spiritual pride makes you look at life and say,  I deserve more than I'm getting. Spiritual pride makes you look at life where the things are going well or not and you say,  I should be getting more than I have. I'm owed every bit of this and I'm owed more than what I've got. Now the contrast is humility in the Bible and humility is very different. Pride, let me give you a definition.
+
+Pride is that which claims to be the author of what is really a gift. Pride is what makes you look at your life and say, on the author of it, it's a sheer  gift. Pride is a form of cosmic plagiarism. Something else has been brought into your life. Something's been given to you and you say, I wrote it, I composed it, I did it.
+
+You claim to be the author of that, which is a sheer gift. Community is a completely different approach. Humility looks at life like this, it's a gift. Humility looks at everything. I don't deserve this.
+
+If God gave me what I deserve, I'd be lost, but look at this and this and this, all  these things. It's all gravy. It's all a gift. Now somebody says, oh, that's terrible. You mean you go around a humble person, you're saying a Christian person is humble and you  go around thinking you don't deserve anything?
+
+Boy, that's terrible. That's low self esteem. That's awful. You're saying, I don't deserve everything. That would make you hate life.
+
+No, listen, you're failing to make a distinction. Humility is that which receives life as a gift. There's a kind of false humility that says, I don't deserve this, so I don't want it. I don't deserve this, so I don't want it. I'm too awful.
+
+I'm a failure. I'm a bad person, so I don't want this and this and I don't want friends. I don't want joy. I don't want these things. That's just a reverse kind of pride, you see.
+
+What that is saying is I should earn it. I want to earn it and I won't take it if I haven't earned it and of course you're miserable  and of course you're saying I don't deserve it but deep underneath it is still that sense  of odeness. Real humility says, I don't deserve the good things in my life because if God gave me what  I deserved, I'd be lost but look here they come. See humility has completely gotten rid of the whole concept of pride, the whole system  of pride. Humility says, I couldn't possibly even begin to merit the good things that God's giving  me my health, my mind, my friends.
+
+What I do have, it's all mercy and you say, look at this and therefore everything you  enjoy every day is like this urge. Every day is a surprise. That's what a gift is, a good gift you're surprised, it's better than you thought. You didn't know it was coming. It's absolutely free.
+
+It's undeserved. And you look at everything that way. Everywhere we look we see brokenness, wars, cruelty and heartache. We feel it in the world around us and in our own lives. How did it get this way and what can be done about it?
+
+In his brand new book that's releasing this month, what is wrong with the world? Tim Keller offers a clear and compassionate answer. Drawing from a series of teachings given at Redeemer, Dr. Keller shows how the reality  of sin explains the pain we see all around us and how only the gospel offers lasting freedom  and healing. Whether you're overwhelmed by the state of our world struggling with your own mistakes  or choices or looking for hope and joy, what is wrong with the world will help you see  how the gospel speaks to both the heartache of our world and the pain within each of us.
+
+This newly released book What Is Wrong with the World is our thanks for your gift this  month to help gospel in life share the good news of Jesus. That's your copy today at gospelonlife.com slash give. That's gospelonlife.com slash give. Now here's Dr. Keller with the rest of today's teaching.
+
+Now what's so bad about pride? Somebody says, what's so bad about pride? I mean, Nebuchadnezzar looked around and said, didn't I earn this and didn't he? Do you know he was really the greatest military genius of his era? You know he risked his life every time I went into battle.
+
+He can beat all those people single handedly. He wasn't an arm short general in just push buttons. He got in the chair he went out front. He was maybe one of the greatest political leaders in history, didn't he do it? What's so bad about saying that and here's what's so bad in, listen, John wrote, where are  you John?
+
+John wrote, he composed that piece. What if I stole it? What if I put my name on it? If I took it to somebody and said, here, I wrote this and they say, incredible. Not only are you a preacher, you're a wonderful musician.
+
+You're an incredible composer, whoever heard of such a multi gifted person. What have I done? Why would John have the right to be absolutely outraged? Why would you be outraged if you found out about it? Why would you never come back if you found out about it?
+
+Why? Because you would say you've robbed him of his due and you've rested control of his art  from him. Because you see the author owns the work. The author has control over the work and the Bible tells us why we've got pride. Why we don't want to admit that everything in our life is a gift, that nothing we've  got we deserve, that we are dependent on God for every breath, because you see if you  admit that he's the author, if you admit that you are totally dependent on God, then  you have lost control.
+
+And we don't want that. Remember, Dorothy Sayers says, sin is a deep interior dislocation of the soul. It's a desire to keep control of the life and the only way to justify the control of the  life that you have. You have to blind yourself to how dependent you are on him. You say, I don't have control of my life, I'm a religious person, my friends, listen.
+
+This is how the human heart works, even if you're religious. You say, I'll take into consideration, religious tradition, I'll take into consideration, but  I am the final one who determines what I do with my body. I am the final one who determines what I do with my tongue, with my mind, with my money,  me. I have to decide whether it's practical to obey the Bible. If you ever, ever think like that, you're still in charge.
+
+And the only way to justify that is to say, I'm not utterly dependent. I've earned. Here's never can listen, friends, you're so self-made. How much of what you are is really under your control. You did not choose your race, you did not choose your gender, you didn't choose the century  and you which you were born.
+
+You don't think you had nothing to do with the fact that you were born here and now, instead  of in 14th century Europe during the bubonic plague, you don't think that that has a little  impact on what you are today. You say, I've worked hard with what, with the mind, with the talents, with the abilities,  with the friendships, with the connections that God and God alone gave you. You didn't choose your parents, you didn't choose your sibling, you didn't choose any  of your early childhood experiences, all of which we all say are so formative. You didn't choose your basic abilities and talents and the level of those abilities. God says, what, you want to know what humility is?
+
+You want to know what pride is? Paul says, and for as Corinthians 4, 6 and 7, you will not. You will not take pride in one man over another, for what differentiates you from any other,  what do you have that you did not receive as a gift? You will not take pride in one over another, for what makes you different? What do you have that you didn't receive as a gift?
+
+And the Bible says, that's what humility is, a joyous life is that which receives everything  as a gift and a self-absorbed and therefore miserable life is that which looks at everything  I'm owed this, I'm owed this, I'm owed this. Now, Nebuchadnezzar becomes an animal. We understand what happened, we understand now that he went insane, it was a physiological  thing, it was a brain chemistry thing, we know something about this. He thought he was an animal, he began to live as an animal for seven times, which probably  means seven months or maybe seven seasons, which would have been a year and a half or  so. But for a period of time, he thought he was an animal.
+
+And we say, oh, this is one of those disasters that comes upon us, you know, mental illness,  it's not, it wasn't his fault and it wasn't, but it was a lesson. You know what it teaches us? God is showing us that pride defaces your humanity. God was saying to Nebuchadnezzar, Nebuchadnezzar, listen to me. Because you insisted on trying to become more than what I made you, you will become less  than what I made.
+
+Because you aspire to be more than a man, you become less than a man. And this isn't just an arbitrary action on God's part. He's trying to show Nebuchadnezzar what pride does to you anyway. I mean, when a child of mine lies to me, what do we do? Oh, good parents know that the discipline should be natural consequences.
+
+You say, honey, if you grew up to be a liar, you're going to have no friends, you're  going to be isolated, you're going to be in jail, your life will be a mess. Therefore, since we cannot trust you, because you lied, you can't go outside for a week,  you can't go play with your friends, you can't go out, because we can't trust what  you say. And he says, I've got to save you from the eternal consequences of what's happening to you. Pride where you aspire to be more than a man makes you less than a man. It's turning you into an animal.
+
+I've got to really turn you into an animal to show you what's happening to you. And you say, well, how does pride turn you into an animal? It's fairly simple, but look, listen, number one, how does this work? Pride makes you like an animal unable to empathize with people. And I live with an animal, it's a cat, and you know, cats sometimes look like they're  sympathetic.
+
+You know, they come and nuzzle you when you're feeling bad, you think, oh, and then  you realize she's hungry. Cats, animals have no imagination, and because they have no imagination, there's no art. And therefore there's no empathy. Animals cannot imagine what other people are going through. Animals cannot, as the Bible says, weak with those who weep and rejoice with those who  rejoice.
+
+Can't do it. And pride is a cancer that eats that up in you too. You see, there's nothing, you're never more human than when you're compassionate. You're never more human than when you're able to sense what somebody else feels. But what is pride?
+
+Pride is a way of justifying to yourself the control you have over your life. The only way to justify that is to be constantly saying, I deserve this, I'm owed this. And it's pride that makes you walk into a room, and I see this happen all the time. You come to a new church, maybe you're coming to a new church. You look around and you say, are these the kind of people I want to be with?
+
+Are these the kind of people that I feel like will understand me? Are these the kind of people that will sympathize with me? Are these the kind of people that will enhance my sense of who I want to see myself as? That's eating up your humanity. Pride makes you only think, are they weeping with me?
+
+Are they rejoicing with me? Pride makes you so miserable because you're so absorbed in yourself. That you cannot even notice people weeping over in this corner, and you can't even notice  people over in this corner. Pride makes you like an animal unable to empathize, and we give you another one. Pride makes you like an animal driven by ego-survival instincts.
+
+There's a great place in C.S. Lewis's book on Pride in which he says, in Mayor Christianity,  he's got a great place, a chapter on Pride in which he says this,  Pride makes the heart want to keep well away from anything better or stronger or higher than it. Anything that might make it feel small or that shows it,  it doesn't have the right to be the center of the universe it wishes to be. You know what he's saying? It's pride that makes you threatened.
+
+It's pride and only pride that whatever makes you unhappy when you're in a situation  where somebody makes you feel less attractive, somebody makes you feel less intelligent,  somebody makes you feel less sharp, you get threatened. Only pride can do that. It's that which makes you compare yourself to other people. Only pride makes you hate situations in which you've got to admit vulnerability,  you've got to admit weakness, you've got to admit I need some help. You've got to admit I'm powerless over my problems.
+
+We hate it. We won't admit it. And therefore, like a scared animal, we run from things that threaten us. We run from people that threaten us. You're ever threatened by somebody.
+
+If you ever, S.Y.C.S. Lewis at one point says, you know why? You know who hates bragging people the most? You have to be very proud to hate proud people. You have to be very proud because people who hog the center stage,  the reason they hate you, that you hate them so much is because you feel like  I deserve that center stage more than he or she.
+
+Pride makes you like an animal driven by ego survival instincts. Maybe last of all, pride like an animal makes you incapable of joy. You say, wait a minute, wait a minute. Now you're being unfair. All along, I've been upset about this.
+
+I'm kind of an animal lover. Animals can be happy. Don't tell me animals can't be happy. Haven't you ever heard of cat purr? And the answer is, well, yeah, a cat can be satisfied,  but a cat can't have joy.
+
+A cat, an animal can only be happy under the right circumstances. Animals cannot rejoice in their tribulations. Animals can never rise above their circumstances. Animals never have anything, don't you see? They never have anything that enables them to have joy  in spite of what's going on around them.
+
+Pride sucks all joy out of your life. You know why? Here's how it does it. If things go well, you say, well, of course, it's about time. You don't say, oh, it's about time.
+
+This should happen five years ago. Don't you see what pride does? Everything is owed. I deserve this. See?
+
+And if things go really badly, you're so bitter, you say,  this isn't fair. Pride destroys your ability to handle bad times,  and it sucks the goodness and joy out of good times. There's only one way, then, to be healed. And Nebuchadnezzar finds it. You know how it is?
+
+How it happens? The only way for it to be healed is God has to do it. There's a great story in CS Lewis's Narnia tales about Eustace. He's a proud little boy. And in this particular fairy tale,  he falls asleep with greedy thoughts on the hoard of a dragon.
+
+And he wakes up and he's been turned into a dragon. And you know, he tries to get rid of his dragon skin by pulling it off,  but he finds that he's still a dragon underneath. And he finally has to go to the Christ figure to Aslan and say,  and here's the Aslan say, I'll have to address you. And he has to let Aslan do it. And of course, Aslan the lion.
+
+Aslan takes his paws and he rips. And Eustace says, I thought it was going to kill me. I thought it would go right to my heart. What Lewis is trying to show us is most of us realize  that so much of our problem comes from pride. We all sent, why is it that you toss and turn at night  because you've been snubbed?
+
+Well, don't you hate the self-concentration? Don't you hate the, don't you hate always thinking about yourself? Don't you hate the absorption? It's misery. And so you try to change it with an act of the will.
+
+I'm not going to think so much about myself. You can't do it. You have to let him undress you. And the only thing that will undress you  and that will heal your pride is you have to see two things together. You have to see that you don't deserve anything from God but judgment.
+
+You have to see that your cosmic plagiarism. You have to see that you're taking your life  and assuming you're the author one, actually,  you owe everything to him. It's terrible sin. And that you don't deserve anything from God but judgment. And yet, at the same time,  you've got to see that you are the object  of the greatest mercy of God.
+
+At together, you have to see them both. If you don't see them both. If you only see one and not the other, you won't be healed. But if you see them both, and that's what happens to Nebuchadnezzar. You notice, first of all, Nebuchadnezzar says,  look, he confesses all the peoples are nothing.
+
+All the peoples of the earth are regarded as nothing. He's talking about himself. He gets up and he says, I've learned when bad things happened to you,  when the stroke comes in, it almost seems to go to your heart. You can either receive it in pride  and say, I don't deserve this difficulty  or else you can do what Nebuchadnezzar did. And that is, Nebuchadnezzar realized, I deserve this.
+
+This shows me my fragility. This shows me who I am. And he lets the stroke humble him instead of harden him. That's the first thing. Then the second thing, he recognizes  that all the things that before he thought were his by right,  they've come back to him and he sees them all as a gift.
+
+You see his attitude, they were restored. My counselor still wanted to speak to me after all of that. See, now he sees everything as a gift  because God only cut down the tree to the stump. He didn't uproot the stump. He showed mercy on Nebuchadnezzar.
+
+How could he show mercy on Nebuchadnezzar? How could he forgive Nebuchadnezzar for all that? How could he do it? Well, Nebuchadnezzar didn't know, but you and I know. And you know why?
+
+Nebuchadnezzar was not master of the universe,  but he took it as if he was. Jesus Christ was the only one who ever stood on the face of the earth  who was the master of the universe and he let it all go. You know why? Isaiah 52 is a prophecy about the great coming servant,  the Messiah, and it says,  my servant will act wisely. He will be raised and lifted up and highly exalted,  but they will be terrified at him.
+
+His appearance was disfigured beyond human likeness  so that he shall sprinkle clean many nations  and kings will shut their mouths because of him. Jesus Christ came and was so beaten and gourd  and he was so slashed and gashed and so pierced  that people who looked upon him were terrified  because he didn't look human. You know why he did that? The sprinkler was clean to take our sins. You know why he did that?
+
+Because in our pride,  we try to be more than mere humans and we act like God. Therefore, Jesus Christ had to become less than he was. He had to become even beyond,  he was more beyond human likeness  so that we could become all that he was. God made him sin, who knew no sin,  that we might become the righteous of God and him. If you're healed of this pride,  Daniel tells you what you're going to be like.
+
+First of all, you're going to look up to heaven  like Nebuchadnezzar and you're going to say,  you are right in everything you do. You know why that terribly interesting  and seductive book sold so much  why bad things happen to good people? You know why people have so much trouble  with the suffering of this world? There's an assumption. And I want you to prove it to me.
+
+The assumption is the world is worse than we deserve. Oh, really, prove that to me. That's the reason why people look at life  and have so much trouble with it. When you're a Christian,  you realize the world is much better than we deserve. And therefore, though you leap over pain,  you leap over troubles,  you leap over tragedies,  but you look to heaven.
+
+And this is an asset test  of whether you've been healed  or you're prior to the gospel. You look to heaven and you say,  everything you do is right. Your ability to handle suffering will depend on  whether you believe this world is worse than we deserve  or whether you think it's better we deserve  and that will completely depend on  what you believe about the gospel. But secondly, Daniel says,  remember when he says that to Nebuchadnezzar,  please turn away and humble yourself  so that these bad things don't come upon you. You know what he says?
+
+You see what he tells me to do? He says, remember the oppressed,  remember the poor. Here's what he means. The asset test to know,  whether you've been humbled in your pride,  is what you do with your money. You know, you may say,  oh, yes, I believe everything is from God.
+
+It's all a gift,  but here's the asset test. Are you generous with your money? Or do you act as if it's all yours? You earned it. Imagine people over the years have told me  the idea, the biblical idea of tithing,  of giving away 10% to the poor,  to the church, the charity is unreasonable.
+
+What if you turn to somebody and said,  I'm in trouble, I need alone. And that person says, how much? You say $10,000. I'll pay it all back. The person says, I'll tell you what,  here's a $10,000.
+
+And all I went back is $1,000. The rest is a gift. What would you say? How unreasonable, unbelievable  that you would want $1,000 back on this loan? Incredible.
+
+Who do you think I am? No, you'd say unbelievable grace. But God looks at you and says,  give away 10% of your money to the people around you. And you say it's unreasonable. That proves that in your heart,  you still believe you're your own author.
+
+That proves that you haven't really seen yourself  as a sinner saved by grace,  so that everything, everything, everything's a gift. The irony is that unless you break yourself  so that second kind of pride, you'll never see yourself. You'll never get the first kind of pride. Remember the pride that Esok Denison talked about? Until you see that you are not in charge of your life,  that you're not your own author,  you will never see that he is your author.
+
+And therefore you are a work of art. Are you an accident? Are you a self-made person? Fine. Then you're free.
+
+You can live life the way you want. But you're just an accident. Do you believe what God says? That I created you? I am your author.
+
+Well, in that case you're not in control of your life. But now you're a work of art. And you know how artists feel about their art. They love their art. They labor over their art.
+
+They sweat blood over the art. They cherish their art. They love their art and that's how God looks at you. How will you know? You are ravishingly beautiful to God.
+
+How will you have that kind of poison and that kind of stability  that comes from knowing God loves me and values me? How will you know that? Only by losing control and saying, you are the author. Which way are you going to live? He is able to humble those who are proud.
+
+Let's pray. Father, as we go to your table,  we pray that you would give us the look at our sin  and the look at your mercy that will heal us of our pride. Many of us right now are experiencing the kind of difficulties  that come from being full of self-absorption,  comparing ourselves to others,  having our feelings hurt. Oh Lord, help us to see all life as a gift. Help us to see even our troubles as part of your mercy.
+
+Help us to see our material possessions  as all part of your gift to us. Help us to have the kind of easy joy,  generous spirit, incredible confidence  that comes from knowing that we don't belong to ourselves,  but we are a work of art, the creator of the universe. Help us to understand that as we pick up the bread and the cup. We ask it in Jesus' name, amen. Thanks for listening to today's teaching.
+
+It's our prayer that you were encouraged by it  and that it helps you apply the gospel to your life  and share it with others. For more helpful resources from Tim Keller,  visit gospelandlife.com. There, you can subscribe to the life in the gospel quarterly journal. When you do, you will also receive free articles,  sermons, devotionals, and other great gospel-centered resources. Again, it's all at gospelandlife.com.
+
+You can also stay connected with us  on Facebook, Instagram, YouTube, and X. Today's sermon was recorded in 1995. The sermons and talks you hear on the gospel and life podcast  were recorded between 1989 and 2017  while Dr. Keller was senior pastor at Redeemer Presbyterian Church.
+
+---
+
+### 中文翻译
+
 ### 引言：破碎的世界
 
 为什么世界如此破碎？为什么我们甚至能够对我们所爱的人造成如此大的伤害？人们将原因归结于政治、贫困或心理学，但这些都无法完全解释我们在自己和历史中看到的现象。本月的播客中，Tim Keller 从一系列探讨我们出了什么问题的问题中进行教导。圣经关于罪的教导提供了唯一足够深入的解释，能够面对真相的复杂性，并提供唯一足够强大的希望来改变我们。

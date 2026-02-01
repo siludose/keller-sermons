@@ -179,6 +179,164 @@ Thank you for coming into the world, immersing yourself in our suffering,  at Ch
 
 ## 中文翻译
 
+### English Transcript (for reference)
+
+Today, Tim Keller explores how lasting change actually happens in the life of a Christian  and why the Gospel offers a radically different process of transformation than anything  else. The scripture is found in Romans 8 verses 13 through 27. For if you live according to the sinful nature, you will die. But if by the Spirit you put to death the misdeeds of the body, you will live. Because those who are led by the Spirit of God are sons of God.
+
+For you did not receive a Spirit that makes you a slave again to fear, but you received  the Spirit of sonship, and by Him we cry, all the Father. The Spirit Himself testifies with our Spirit that we are God's children. Now if we are children, then we are heirs, heirs of God and co-heirs with Christ. If indeed we share in His sufferings in order that we may also share in His glory, I consider  that our present sufferings are not worth comparing with the glory that will be revealed in us. The creation waits in eager expectation for the sons of God to be revealed.
+
+For the creation was subjected to frustration, not by its own choice, but by the will of  the one who subjected it, in hope that the creation itself will be liberated from its  bondage to decay and brought into the glorious freedom of the children of God. We know that the whole creation has been groaning as in the pains of childbirth right  up to the present time. Not only so, but we ourselves, who have the first fruits of the Spirit, groan inwardly as  we wait eagerly for our adoption as sons, the redemption of our bodies. For in this hope we were saved, but hope that is seen as no hope at all, who hopes for  what he already has. But if we hope for what we do not yet have, we wait for it patiently.
+
+In the same way, the Spirit helps us in our weakness. We do not know what we ought to pray for, but the Spirit Himself intercedes for us with  groans that words cannot express. And He who searches our hearts knows the mind of the Spirit because the Spirit intercedes  for the saints in accordance with God's will. This is the Word of the Lord. We've been looking at Romans 678, which have to do with how the faith in Christ concretely,  but profoundly changes us.
+
+And now we get here, as we're going through, Romans 678 to this subject of suffering. And it's absolutely crucial if your life is really going to be equipped in any spiritual  way for real life. We have to see how it is that faith in Christ or how it is that Christ actually does prepare  you to face the brutality, is the unavoidable brutality of life. Now why talk about this at Christmas time? Suffering at Christmas time?
+
+I'll tell you why, because if you have a burden, if you're struggling with something, Christmas  time is the worst season, because you feel I'm the only one. Everybody else is happy, everybody else, but I'm the only one that's suffering. Of course, that's, as we're going to see, absolutely wrong, but it's very, very important  at this time, especially at Christmas time, to look at what this text teaches us. And it tells us three things. This text tells us, first of all, it gives us three things.
+
+One, it gives us a warning about suffering. Secondly, it gives us three resources for suffering. And finally, it tells us how you can be sure that those resources will work. A warning about suffering, three resources for dealing with suffering, and how you can  be sure that they'll work. Okay?
+
+First, a warning. Now, this is an amazing passage very long, and I certainly can't take a look at every single  thought unit, but in the middle, it talks about groaning. And this word groaning is a very, very strong word. And it has, it's a word that means an expression of pain, and it even goes beyond that. In many cases, this word in Greek literature often is used to express the cry of someone  who is facing death.
+
+It can be a death pain. So, for example, you notice in verse 23, it's associated with a woman giving birth to  a child, and we have to remember, especially in ancient times, that a woman groaning, crying  out, screaming, really, as she's giving birth, is not just an expression of pain, but she's  also in mortal danger, that in old, in ancient times, many, many women died in childbirth. Also this word is used to refer to the groanings of warriors on the battlefield, you know, when  the fighting is done, and the smoke clears, and the noise of the battle itself is over. One of the most horrible things that so many veterans and first-hand observers of warfare  tells you, one of the most horrible things is the groaning of the people, of the soldiers,  of the warriors out on the ground. They're crying out, they're groaning, because they see their blood, their lives literally,  they're desperately wounded, they see their lives literally ebbing out, and they're crying  out, and they're groaning, and saying, please come and staunch the wound, or I'm dead.
+
+Now, that's what this word means. It has that connotation, it's a death pain, it's a death  groan, and to our surprise, Paul actually speaks about the creation groaning. This world, this material  world, not just us groaning, we do too, but our material environment, the world itself, is groaning,  and it says it's groaning because it's crushed under a bondage to decay and the frustration. Now, what does that mean? It means this.
+
+Everything, everything, not just us suffering, everything  in this world is steadily, irreversibly, inexorably, unavoidably, falling apart,  wearing down, wearing out, giving out everything. Now, we have this thing called the  Second Law of Thermodynamics, which actually confirms this, that the universe itself is deteriorating,  it's running down, it's spending far more energy than it's ever able to restore, and so everything's  deteriorating, but we can be much more personal than that. Your heart, your physical heart,  you realize it's not an electric clock that just goes on. Your physical heart is like a wind-up  clock, it's been wound up once, there's a finite number of ticks in it, and even as we speak,  is running out. Or your body, your whole body is falling apart.
+
+Oh, we do awful lot to, you know,  retard or hide it. I mean, for example, one of the reasons you use cosmetics is you're trying  to restore the color and shame that you used to have naturally as a child. You had it once, you  didn't need the cosmetics, it's gone, it'll never come back. You can hide the process, some of you  can hide it extremely well, but you can't stop it. Or look at the closest circle of friends,  or the tightest family.
+
+You know what time and circumstances doing? It's picking it apart. One by one time and circumstance is going to separate you, it's going to remove you from one  another. Now, what's the point? Well, here's the point.
+
+We live in a culture in which suffering is  an anomaly. We think if you're savvy, if things are working right, we shouldn't suffer. We get,  when things, when we do suffer, we get angry. We think life is mistreating us, God's mistreating us,  somebody's mistreating us. But this text tells us, everything that your heart longs for,  everything that your heart longs for is a wave on the sand.
+
+It's receding from you, inevitably  receding from you. It's all going to go. And you can, you know, for various, in various ways, you can  you can avoid suffering for a while, maybe even in the early 30s. But eventually, it is unavoidable. Real, bad, horrendous, groaning suffering.
+
+It's just inevitable. It's unavoidable. So that's the lesson, a warning. You need resources. Don't  think, well, not if I'm smart, not if I'm savvy, not if I'm nimble.
+
+You need resources at a point  two. What are these three resources? The three resources that Paul tells come with Jesus. You bring  Jesus into your life. You get these three resources.
+
+We can name them under the headings, prayer,  pattern, perspective. Prayer, pattern, perspective. Okay, let's go through them. First of all,  prayer. When you suffer, you can process the suffering through prayer.
+
+Well, of course you say,  everybody prays. I mean, there's that, I mean, you know, the statistics tell us, you know,  how many people, what a high percentage of people pray. And of course, there's that, I know it's  an exaggeration and it's kind of an unfair exaggeration. There are no atheists and foxholes. I know a number of atheists that are particularly irritated by that statement.
+
+It's really not  fair. It's definitely an exaggeration, but it's trying to get at something. And that is that when  troubles happen, those of us who ordinarily don't pray, try. But generally, when problems happen,  it's emergency flare prayer. You know, it's like, if there's anybody up there help, you know, that's how  we pray.
+
+This is talking about something else. Something very, very different. At the beginning  at the end of the passage, at the beginning of the passage, we are told about Abba prayer. Now, it says, you notice up here in verse 14 and 15, it says that you've received the spirit of  sonship and by him, that's the spirit, holy spirit, we cry Abba, Father. Now, what's the Abba?
+
+That is  a universal language, you know, that in every culture, no matter what your culture, no matter what  your language background. Basically, when a little baby finally gives a name to one of the parents,  it always comes out kind of like this. Abba, Abba, Dada, something like that. What is this saying? Here's what it's saying.
+
+It's saying that because of what Jesus Christ has done for you,  because of what it means to be in Jesus Christ, when you grow, when you cry, when you scream, even like  Job who cries out in rather unattractive ways, that when you cry in Christ, God the Father hears  that cry the way a parent hears the cry of his or her child. When your child screams and pain,  what do you do? You say, oh gosh, no. When you sense, I mean, you know, there's, listen,  there's all kinds of cries. There's, you get to know them after, you know, even I, you know,  even a father gets to know the cries, and there's, there's the I'm irritated cry where I want some  attention cry, and then there's the I'm in trouble cry.
+
+And, and it's not like you love your child more  when your child gives the I'm in trouble cry. I mean, you can't really love your child more  principally, but your love is stirred. It's intensified. And this is telling us that even,  in spite of how you feel, when you're suffering, when you're in trouble,  you can know that God responds to your groaning the way a parent responds to the cry of pain  of his or her child. There's an intense love and intense care.
+
+Absolutely. Can you code a God  with that kind of confidence of that kind of care, that kind of attention, that kind of love,  but that's not the only kind of prayer that we're given here. We're told not just about, you know,  Abba prayer, but look at the end. Very, very interesting and very little odd at first. It says  when we're weak, and when we do not know what we ought to pray for, the spirit himself intercedes  for us with groans that words cannot express the spirit intercedes for the saints in accordance  with God's will.
+
+What is that talking about? Now, you know, some people have said that this is the  spirit helping you pray in tongues, and even though with all due respect to my charismatic  brothers and sisters, there's plenty of other passages that talk about tongues, but I don't  believe this is one of them because it's not talking about a sound that we make. This isn't us  making a sound. This is the spirit praying, not us praying. This is the spirit praying interceding,  means for us doing something in our place.
+
+What is it? When we don't know how to pray,  the spirit lays out our petitions before the throne as they ought to be coming. Now,  some of you know this story. The first year out of college, I had a relationship with this girl,  and she wanted to break up. So I prayed so fervently in great groaning and pain, really.
+
+Oh, Lord, please don't break up this relationship. Please don't break up this relationship. Now, of course, in hindsight, it was an absolutely stupid prayer. This is a different  girl than Kathy, who was my wife who I finally married, and it's a good thing that the relationship  broke up, but that's not how I felt at the time. So God didn't answer my prayers.
+
+Is that right? I mean, he denied my prayers. Is that right? Yes and no, because listen, there's always a  core part to a prayer, and then there's the stupid part. And the core part, see the core part is  the groan.
+
+The core part is help me. I think this is what I need to be the man you want me to be or  you know, the person you want me to be. I think this is what I need. And that's, you know, so please  help me be this and please give me this and please please help me. That's the core part.
+
+And then  there's a stupid part. And I happen to think that this is the girl that will do that. And there's  a certain sense in which what? Did he answer my prayer or not? Wouldn't it be great if God always  gave you what you would have asked for if you knew everything he knows?
+
+Wouldn't it be great if God  was so gracious that every time you prayed, he would give you and only give you thank goodness  because we're so stupid so often. Wouldn't it be great if you had a God who gave you and only gave  you what you would have asked for if you knew every single thing that he knew and you saw everything that  he could see? We do have a God like that because that's what that text is saying. It's saying the  spirit, even when you don't know how to pray, the spirit takes that core, the spirit prays as you  should be praying before the throne. And here's what this means.
+
+When you suffer, can you come before  God with that kind of confidence to know that he is going to give you what you would have asked for? In spite of the fact that right now you probably don't think what he is letting you experience is  a good idea, but he is going to give you what you would have asked for if you knew everything that  he knew and he does care and he does love you. He loves you intensely. If you are able to process  your suffering before God like that, there will be a calm, there will be a groundedness. Okay,  that's your first resource, but that's not the only one.
+
+There's another one. The second resource  is a pattern. Now what do we mean by a pattern? Well, Paul was a pastor and therefore I do understand  this part because I'm a pastor too. Constantly, there are people who come to pastors and say,  if God really loves me, why are all these problems happening to me?
+
+If God really loves me, why the  tragedy, why the suffering? If he loves me in Jesus like you say, why all this? Paul in verse 17 turns  the tables. He doesn't say in verse 17, oh, suffering doesn't disprove the gospel. He doesn't just say  that.
+
+He says, suffering is a sign that you're a Christian. It's not just, oh, you're a Christian  in spite of the suffering. He says, suffering is a sign you're a Christian. And look what he says. He says, now we're children if we share in his sufferings.
+
+The Psalms can profoundly shape the way you approach God. Even Jesus relied on the Psalms to face  every situation, including death. In Tim and Kathy Keller's 365 day devotional, the Songs of Jesus,  you'll find daily readings through the Psalms with fresh biblical insight. If you don't have a  regular devotional practice, this book is a wonderful way to start. And if you already spend time  in study and prayer, then reading and praying through the Psalms can help you bring your deepest  emotions and questions before God and discover a new level of intimacy with him.
+
+We'll send you  to Tim and Kathy Keller's devotional is our thanks for your gift to help gospel and life share  the love of Jesus with more people. Request your copy today at gospelandlife.com slash give  that's gospelandlife.com slash give. Suffering is a sign that we're his child. You say, well, wait a minute. I just let you  said, wasn't your point one?
+
+After all, I do listen to you. Wasn't point one that everybody suffers  that it's inevitable. Notice his sufferings that lead to glory. What is that? There was a pattern  in Jesus' life.
+
+The pattern in Jesus' life was rejection. You know, his family didn't understand him. His friends didn't understand him. He was despised. He was rejected.
+
+He wasn't beautiful. He had  no form by which we should desire him. You know, he was a victim of injustice. I mean, he had one  one suffering after another after another. But his attitude was not my will but time be done.
+
+He was faithful. He was trusting. He was obedient. And as a result, his death led to life,  his weakness led to strength. There was a death resurrection pattern.
+
+And what Paul is saying is,  if you do the same, then you share in his sufferings. And what does that mean? It means the  things that come into your life actually change you. The weakness turns to strength. You know,  when you're doing bicep curls, do you know you're honestly actually getting stronger?
+
+In spite of  the fact that it feels like it's getting weaker and weaker, it's getting stronger and stronger. Well, how does that happen? You know, I really don't understand physiology well enough to explain. Somebody out there, because this is New York, and there's all these smart people,  and there's a professional trainer, and you've got to tell me all about the amino acids and  your muscles or something. I don't know why, but I do know it's exactly this way.
+
+When Paul says in  Romans 5, he just said it just a few verses before, now we always rejoice in our sufferings. By the  way, notice, he didn't say we rejoice for our sufferings. This is not massacism. This isn't  spiritual massacism. We, I'm suffering, no.
+
+We always rejoice in our sufferings because we know  that our sufferings produce perseverance and perseverance character and character hope,  and hope does not disappoint us because God has poured out His love into our hearts by His Holy  Spirit, which He has given us. An acorn has got so much potential in it. You know, in the acorn,  there's enough power to create this huge tree with hundreds of other acorns, each of which  can produce a tree with hundreds of other acorns and hundreds of other acorns. In other words,  a single acorn has the power to cover the entire earth with wood. And yet, that acorn's potential can't be released unless it goes into the ground and dies,  and the Bible is constantly talking about that, unless you're humbled, unless you're broken  of your self-sufficiency.
+
+You are the image of God, and you have potential for understanding and  wisdom and insight and compassion for other people. You have the potential for greatness and for joy,  real joy and hope and character. And what we're being told here is unless that goes into the soil  of difficulty and trial, without weakness, there will never be strength. Without death, there will  never be a resurrection, but it's possible if you share in His suffering, if you follow His pattern,  if you do it looking to Him, remembering Him, seeing what He did, following Him, believing in Him,  trusting Him, then what happens? What actually happens is you become a diamond under that pressure.
+
+That's what it's saying. So first of all, you've got the processing through prayer. And if you process  it through prayer, then you have the hope of this pattern actually being reproduced in your life,  but that's not all. The third resource is prayer, pattern, perspective. And this is the most  powerful.
+
+Paul's constantly saying what you need in order to handle your suffering is hope. You  need patience. He says you have to look to the future, but the best thing he says is it's amazing  verse 18. Now I consider, in that word consider means consider. It means it's a word, it's a Greek  word that means to reckon.
+
+It means to count. It means it's an accounting word. It means to add it  up and to count on it and to think about it and reflect it and make sure you see every fast  and every aspect, every penny. I consider that our present suffering is not worth comparing with  the glory that will be revealed in us. Now we did a whole sermon series on this two years ago,  but here's the basic idea.
+
+Imagine two rooms and you put two people in these two rooms and you give  them absolutely identical tasks. Menial, boring, difficult, manual labor. And you say you're going to  work 80 hours a day. You're going to have no vacation for 12 months in this room. It's going to be  boring.
+
+It's going to be tedious. It's going to be so horribly hard. And so you put them both into  their into those rooms and they get started. And you say to the first guy, and at the end of the 12  months, you will get an annual salary $15,000 and you say to the second guy, and at the end of  the 12 months, you will get your annual salary $150 million. And those two guys are going to experience  that those identical circumstances in radically different ways.
+
+Because the first guy after about  three or four weeks is going to say, who could take anything like this? This is so hard. It's driving me crazy. I can't take it anymore. I quit.
+
+And the other guy is over there whistling. No problem. At all. Wait a minute. It's the same circumstances.
+
+Why? Because the tediousness,  the difficulty, the trial of it, is being absolutely overshadowed outweighed by the glory that will be  revealed. In other words, how you experience your present is completely shaped by what you  believe your ultimate future to be. Completely. And if you rest the deepest hopes of your heart  in anything but God, if the deepest hopes of your heart is anything but God, if it's a political  cause, if it's a relationship, if it's anything, if it's a career, if it's writing the great American  novel, if you put the deepest hopes of your heart in anything but God, it's a thing of this world.
+
+And it will be subject to suffering. And no matter how strong you think you are, no matter how  much you are stoic, no matter how stoic you are, suffering will take you out. And there will be an  anxiety ground note for your entire life. Your whole life will be characterized by a ground note  of anxiety. But if this is what you believe you're in for, what?
+
+God's future and what is it? Oh,  my word. Oh my goodness. Do you see what it's saying? It says creation.
+
+Now, creation is subject to the  K. Creation is awfully nice. I mean, when you look at the Grand Canyon, or you listen to the ocean,  or you look at the snow cap mountains, you know, it's pretty glorious. And yet this has the audacity  to say, the creation itself is just a shadow of what's going to be, just a shadow that's a disease  and the viruses and the nature, red and tooth and claws, is not what it originally was intended to be. So creation is groaning, right?
+
+What's going to liberate it? Look what verse 21 says. It's waiting for our liberation. We are groaning inwardly for the redemption of our bodies. And so is nature.
+
+In other words,  some kind of glory is going to come down on us on the last day. We are going to be so become so  radiant, so cleansed, so great. What do I mean by that? You know that if you have five senses and  somebody else has four senses like his blind or deaf or just like the difference between five  senses and four senses is huge. You know, in your ability to handle life and your ability to enjoy  life, the difference between five senses and four senses is huge.
+
+But obviously when we're glorified,  we'll probably have a thousand senses. And what you're going to be like then, you know, compared to  what you are now compared to what you're going to be like then, you're a tomato. You know,  you're a zucchini. There's going to be a glory, almost like a bomb of glory that comes down on us  and it's going to be so astounding that it is going to transform material universe as well. Where it's our glory is going to bring nature with it.
+
+And this is a material thing. The whole  idea is bodies, redeem bodies, a glorious creation. We're not just getting heaven, because see heaven  as great as heaven would be, an ethereal spiritual heaven, heaven would just be a consolation  for the life we've lost, or even the life we never had, but resurrection is the restoration of it. It's the undoing of everything that's wrong. It'll make everything sad come untrue, everything.
+
+It's landscapes and it's hugs and it's feasts and it's not just getting back the things that we've lost. It's doing the things that we never could do. You know, it's writing finally the poetry of  always wanting to write. It's performing the music that you never were good enough to perform,  or to compose. And that's the reason why Lewis puts it like this in his great essay, The Weight of  Glory.
+
+He says, if we take the scripture seriously, if we believe that God will one day give us the  morning star and cause us to put on the splendor of the sun, then we may surmise that both the ancient  myths and the modern poetry, so false's history will be very near the truth as prophecy. At present,  we are on the outside of the world. We're on the wrong side of the door. We discern the freshness  and purity and beauty of the morning, but they do not make us fresh and pure and beautiful. We cannot  mingle with the splendors we see, but all the pages of the New Testament are wrestling with the rumor  that it will not always be so.
+
+Someday, God willing, we shall get in. And when human souls have  become as perfect and voluntary obedience as the inanimate creation is in its lifeless obedience,  then they will put on its glory, or rather that greater glory, yes, of which nature itself  is now only the first sketch. We are summoned to pass in through nature and beyond her into that glory  which she so fitfully reflects. Do you believe that? I don't believe it anything like I ought to,  but I'll tell you this, to the degree it's real to me in prayer, to the degree I grasp it and  understand it and think about it and celebrate it.
+
+To that degree, it overshadows the tedious  circumstances of my life in that little room. Perspective, grasp it, prayer, process it,  and then you will find that suffering only reproduces the pattern of weakness into strength  and mediocrity into greatness of character in your life that you see in Jesus Christ, death,  into life. Now, finally, you say, well, wow, okay, but how do I know? I mean, you know, here you  are a preacher and you're telling me that God sees me in Christ as a child. But listen, when I  suffer, I don't feel that God loves me, or you say in the future, there's going to be this great glory,  well, when I suffer, I don't feel it at all.
+
+It's unreal to me. I feel maybe even unworthy of it. How can I be sure these resources will work? Here's all I can tell you from this text. Notice it says  that the Spirit of God groans.
+
+That's amazing. It's not just creation of groans and it's not just  we, the grown, the Spirit of God groans. And that's weird because remember, groaning, the word  grown means a death pain. It means a person in mortal danger of dying, it means a person in  enormous agony and pain. How can the Spirit of God, how can God who is immortal and eternal?
+
+An omnipotent and infinite possibly grown. How could an omnipotent God know what it's like to be a  woman screaming out in labor knowing that she may be about to be giving her life in order to bring  a new life into the world? How could God know the agony and groaning of the warrior out on the  battlefield, crying out for rescue, but knowing he's probably just given his life for his people in battle  and he sees. How could God know that kind of suffering? How could that God know that kind of groaning  and pain?
+
+You know what the answer is? Christmas. That's what Christmas is all about, you know? I know in  New York it's not, I mean what New York, New York surrounds you with Christmas, but of course New York  Christmas means shop, shop, shop, all right. But here's what Christmas really means that God was  plunged into an ocean of vulnerability.
+
+He came into this groaning world. He came in and he was subject  to rejection and to weakness. He was subject to hunger. He's subject to alienation, to torture  eventually and a death. And there's a place in Mark chapter 7 when Jesus is healing a man who's a  deaf mute and he's a suffering man.
+
+There's a place some of you might remember where Jesus looks to  heaven and it says he's size, but the word is literally in the Greek groaned. He's already groaning  because he's come into the world and he's standing alongside of sufferers and he's feeling, he's empathizing  with what they're going through, but it's on the cross that he went all the way because on the cross  Jesus Christ says, my God, my God, why has thou forsaken me? But he's quoting Psalm 22 verse 1 when he's  on the cross. He quotes a verse from Psalm 22 verse 1 and here's the whole verse. My God, my God,  why has thou forsaken me?
+
+Why are you so far from saving me? Why are you so far from the words of my  groaning? Jesus Christ on the cross was a warrior on the ultimate battlefield. Isaiah 53 says he went  forth to hand, he went forth to face our enemies. Evil and sin and death and he was crushed by them  and now he's groaning, see, he's groaning, he's dying and he calls out and no one comes.
+
+You know why? The Bible says this was God absorbing in himself the penalty that the human race has for all of the  evil that we've done to each other, to the world, even to God. He was paying the penalty of our  sins, so now you can know because Jesus Christ was abandoned in his groaning, you never will be  because Jesus Christ was forsaken in his death groan. When you groan, the Father hears it, the way  a mother or father hears the cry of a child and he loves you and he hears the inarticulate cry  and he takes the stupid part of the petition and drops it and he answers what you would have  asked for if you were smart enough to know and he surrounds you and he makes you something great  through the suffering and someday he's going to put an end to it. Jesus Christ died on the cross,  so someday God could enter end evil and suffering in this world without ending us.
+
+Do you believe that? If you do, you can sing this one song out of Ralph Vaughan Williams,  there's a line in one of his songs where it goes like this. When the strife is fierce and the warfare  long steals on the ear the distant triumph song, then hearts are brave again and arms are strong. In the midst of the strife you think about that future, the distant triumph song, get the  perspective, process through prayer and the pattern of Jesus Christ will reproduce in your life,  that's how you can handle it, even in Christmas, let's pray. Thank you, Father, for giving us this  set of resources and assuring us that they will work because of what your son did for us on the cross.
+
+Thank you for coming into the world, immersing yourself in our suffering,  at Christmas it must have been such a shock to the omnipotent soul of Jesus Christ to become a  helpless baby, to come into this world. But we thank you for doing that, and at Christmas  we draw all the infinite consolation and strength from it to face whatever life is  to us, and we thank you that we can do that through the Holy Spirit and through Jesus and his name  that we pray, amen.
+
+---
+
+### 中文翻译
+
 今天，提姆·凯勒探讨了基督徒生命中持久改变实际上如何发生，以及为什么福音提供了与其他任何东西截然不同的转变过程。经文出处是罗马书8章13到27节。
 
 你们若顺从肉体活着，必要死；若靠着圣灵治死身体的恶行，必要活着。因为凡被神的灵引导的，都是神的儿子。

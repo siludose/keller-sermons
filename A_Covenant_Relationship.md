@@ -145,6 +145,132 @@ Our Father, give us a deep understanding of the gospel. So our lives can really 
 
 ## 中文翻译
 
+### English Transcript (for reference)
+
+### Introduction: A Covenant Relationship
+
+How do we share what it means to truly know Jesus? Not just as a historical figure or moral teacher, but as Savior and King. This month Tim Keller explores what the Bible shows us about being public with our faith and sharing the hope we have in Christ. Our scripture comes from Deuteronomy 29-23.
+
+Moses summoned all the Israelites and said to them, your eyes have seen all that the Lord did in Egypt to Pharaoh to all his officials and all to all in his land. With your own eyes, you saw those great trials, those miraculous signs and great wonders. But to this day, the Lord has not given you a mind that understands or eyes that see or ears that hear. Carefully follow the terms of this covenant so that you may prosper in everything you do.
+
+> "All of you are standing today in the presence of the Lord your God, your leaders and chief men, your elders and officials, and all the other men of Israel, together with your children and your wives and the aliens living in your camps who chop your wood and carry your water. You are standing here in order to enter into a covenant with the Lord your God. A covenant the Lord is making with you this day and sealing with an oath. To confirm you this day as his people that he may be your God as he promised you and as he swore to your father's Abraham, Isaac and Jacob."
+
+I am making this covenant with its oath not only with you who are standing here with us today in the presence of the Lord our God, but also with those who are not here today. You yourselves know how we lived in Egypt and how we passed through the countries on the way here. You saw among them their detestable images and idols of wood and stone, of silver and gold. Make sure there is no man or woman clan or tribe among you today whose hearts turn away from the Lord our God to go and worship the gods of those nations. Make sure there is no root among you that produces such bitter poison.
+
+This is the word of the Lord.
+
+### The Uniqueness of the Covenant
+
+We've been saying that Deuteronomy is a series of sermons that Moses preached just before he died. And if the last thing practically that Moses said because here we are at almost at the end of the end before he died was you need to be in a covenant relationship with God. If Moses thought it was that important that it would be almost the last thing he says, then it would be who of us to figure out what that is. What's a covenant relationship with God?
+
+If we read the passage with that question in mind, we'll learn three things. The uniqueness of the covenant, the mystery surrounding the covenant, and the hero of the covenant. The uniqueness, the mystery, and the hero of the covenant.
+
+First of all, the uniqueness. People often will say maybe somebody's already thinking, can't you come up with a less archaic word than covenant? Don't you have a more modern word than covenant? And the answer is no. There's no more modern word because modern society and culture doesn't really even have a category anymore for it.
+
+If you want to understand what a covenant is, look at verse 12 in the beginning of 13. You are standing here in order to enter into a covenant with the Lord your God. A covenant the Lord is making with you this day and sealing with an oath to confirm you this day as His people.
+
+Now please notice two things. On the one hand, notice the language of love and intimacy, personal possessive pronouns. You see, for example, it says, we are His people, not just A people. He is our God, not just God. Whenever you hear personal possessive pronouns being used, you know it's talking about an intimate relationship.
+
+So if you were just overhearing somebody who you didn't even know, talk about my Johnny or my Susie, you would assume that person was talking about child, spouse or someone very close, someone very intimate. So first, when you look at a covenant, you see the language of love and intimacy.
+
+Secondly, however, you see the language of law. See, sealing with an oath to confirm and there you have it. What's a covenant? A covenant is a relationship, but it's a relationship more loving and intimate than a merely legal relationship yet more binding and enduring and accountable than a merely personal relationship. It's a stunning blend.
+
+The covenant is a stunning blend of law and love. It's stunning because it's a personal relationship made more loving and intimate because it's legal through voluntary, mutual, binding promises and vows to be loving and to be faithful, no matter what the circumstances. That's a covenant.
+
+Now, modern society doesn't really have a category for this, because modern society makes everything be ordered around the experiencing individual self and the happiness and fulfillment of the individual self. In modern society, your individual happiness and fulfillment and rights is the absolute and everything else is a means to an end. All other institutions, all other relationships.
+
+So in modern society, relationships more and more start like this. Two people look at each other and they say, I will be what I should be as long as and to the degree that you are what you should be. And if you're not, I'm out.
+
+But in a covenant, two people look at each other and say, I will be what I should be whether you are what you should be or not. I will be what I should be whether you are being what you should be or not. And therefore, it's scary to get into a covenant. And it only works if both people in a covenant say that.
+
+In a covenant relationship, both have to say, I'll be what I should be even if you're not what you should be. Now, if only once says that and the other does not, then what you've got is exploitation or even abuse. But if you really do get into a covenant relationship, where two parties are each saying, you are more important than me. The relationship is more important than my needs. I will be committed to your needs before my needs. I will be committed to the relationship even if it's not meeting my needs at the moment. I give you my independence. I give you part of my freedom as a gift of love.
+
+And if one side and the other side are both saying that. If both people are saying, I'm not after my needs, I'm after your needs. I will sacrifice for you. If both people are saying that, that is a far more fulfilling, far more deep and profound, far more life-changing and joyful relationship than a consumer relationship in which each side says, I'll be in this as long as you're meeting my needs.
+
+Now, I don't want you to give you the impression that all relationships ought to be covenant relationships. You should have consumer relationships. For example, I know my grocer. My grocer knows me. The grocer, as I guess, am I going to the grocery store? They know me. I know them and say, hi, hi. But if I find a grocery store closer with better food at lower prices, I'm out of there. I'm just out of there because that's a consumer relationship, not a covenant relationship.
+
+So then plenty of our relationships should be liked. And at one end of the spectrum, they are. At the other end, you have marriage. Relationship between parents and children. You have covenant relationships. And in the middle, you have various kinds of relationships. Some friends, the closest friends are more covenantal. Some are not so much.
+
+But here's my point. Here's the point. If the most profound, most joyful, most life-changing, most deep and glorious relationships are covenantal relationships, then your relationship with God has got to be through and through a covenantal relationship. That has to be.
+
+Now, here's the problem. Modern people, as I said, they can't have trouble mixing law and love together. And what they say is, oh, I'm spiritual, but I'm not religious. Sociologists for years, and I've been finding modern people like to say, I'm spiritual, but not religious, and what does that mean? Here's what it means. I believe in God. I want a relationship with God, but I don't want to go to an institution. I don't want to go to a church or a synagogue. I don't want people to tell me what I have to believe. I don't want to give up my freedom. I don't want to give up my right to determine what is right or wrong for me.
+
+In other words, what everybody's saying is, I want a personal relationship with God, but not a covenantal relationship. But the Bible says, as impossible, God only relates in terms of covenant. Every time he relates to somebody, Adam, Abraham, Isaac, Jacob, David, Moses, it's always covenantal.
+
+And so that's point one. The uniqueness, a category-busting thing is a covenantal relationship, a mixture of law and love that creates the most profound, fulfilling, life-changing relationships, and above all, the only way to relate to God.
+
+### The Mystery Surrounding the Covenant
+
+The second point, however, the second thing we learned here is there's a mystery surrounding this covenantal relationship. Now, what do I mean? All covenants have terms or conditions, because all contracts have terms and conditions. A covenant is more than a contract, but not less. All contracts have terms or conditions, and if you meet the terms or conditions, there are rewards or blessings. And if you fail to meet them, or if you violate the terms or conditions, there are penalties or in the biblical term, curses.
+
+So in verse 9, you see, it says, carefully follow the terms of this covenant so that you may prosper in everything you do. See, that's the blessings of the covenant. Carefully follow the conditions. But then, down to verse 18, it says, but make sure there's no man or woman, clan or tribe among you today, whose heart turns away from the Lord your God and worships other gods. And that's getting into the area of the passage that talks about the curse. If you violate the covenant, there are penalties. That's what makes a contract valuable. I mean, if you didn't have penalties, what good would the contract be? It's what keeps people honest. It's backbone in your commitment.
+
+And yet, listen, as you keep, let me keep reading. We didn't print the down to verses 19, 2021, but let me keep reading the passage. It says, don't let there be any man or woman, clan or tribe who begins to worship other gods. And it says, the Lord, this is verse 20, the Lord will never forgive the one who does this. His wrath and zeal will burn against that man. All the curses written in this book will fall upon him. The Lord will bring him disaster according to all the curses of the covenant written in this book of the law.
+
+Now, wait a minute. When you hear it say, I will never forgive you if you break the covenant. Never. All the curses will come down if you violate the covenant. You say, well, wait a minute. I thought God was a forgiving God. And yet, of course, if he's a covenant God, what good is a covenant? If you just ignore the penalty, say, well, who cares? I'll forgive you.
+
+And at this point, understanding the covenant gets us into the very heart of the central mystery of the Bible. And gets us right into the very heart of what the central message of the Bible is. Because if you read through the Bible, hold a New Testament on every page in every book, not just some books, not just the Old Testament or the New Testament, on every page in every book you have statements like this where God says, I cannot bless a disobedient people. I cannot. You must obey. I am a just judge. I cannot wink at guilt. An earthly judge who winked at the guilty would be run out of town. How much less can I? You must obey. I can't overlook it. I can't bless a disobedient people.
+
+There's a whole, there's hundreds of statements like that. But there are also on every page in every book in Old New Testament, hundreds of statements that say, I will never leave you or I will never give up on you. I will always accept you. I will never forsake you. Over and over and over. If you read to the Psalms regularly, you guess one after the other in the same Psalm sometimes. You have God saying, I can only bless you if you do this. And other times where God says, I'm going to bless you no matter what.
+
+And I had a professor years ago who said, this is the...this perceivably irreconcilable tension. This apparently irresolvable tension is the very plot line under all the other plot lines of the Bible. It's the thing that propels the narrative of the Bible forward. Because you see the people and you see God's people failing and failing and failing. And then the question comes up, will God give into His people and just accept whatever they do than what about His holiness? Or will God just give up on His people? But then what about His faithfulness?
+
+And let me put it to you, theologically, that's narratively. Are the blessings of God conditional or unconditional? That's the question. Class. Do the blessings of God come conditionally? You've got to be good, you've got to fulfill the cup. Or unconditionally, it doesn't matter what you do, you're going to get them anywhere.
+
+There's a conditional rank addition. Now listen. The problem is that the Bible over and over and over again seems to give contradictory answers. And this is so pervasive and it's so apparently irreconcilable that almost every one of us tends to come down on one side of the other instead of following the biblical balance. What do I mean by that? Most people either fall into one or the other. Most people either read the Bible in a liberal way. And that is they say, yes, you need to obey. Yes, you should obey the Ten Commandments. Yes, you should be good. But in the end God loves everybody and will accept everybody.
+
+Or you can come down on a conservative side. And you can say, well, yes, God is very loving. But in the end, you've got to be good or he won't love you. Everybody comes down on one or the other. Everybody says law is the reality and love is secondary. In other words, basically the promises and blessings of God are conditional. Or they say, no, love is more real than law. Love is the important thing. The law is secondary and therefore they believe that the blessings of God are basically unconditional.
+
+And so everybody, because they don't understand how to resolve this tension at the heart of the covenant, tends to slide toward relativism or moralism, toward being a sadducee or being a Pharisee, toward basically feeling like, I pretty much can live the way I want to, ultimately, because God's going to love me anyway, or feeling guilt-ridden and condemned because you're never living up.
+
+But the Bible doesn't resolve it all through the Hebrew scriptures, all through the Old Testament. And there's one place where God actually says, in Judges 2, verse 1, I said, I would never break my covenant with you. And then two verses later he says, I also said, I will not bless you if you disobey me.
+
+Michael Wilcock, who is a commentator, writing a comment here on the book of Judges, puts it like this. It's almost as if God is saying, I have sworn to bless you, and I also have sworn not to bless a disobedient people. What is this you have done to me? And by what fearful means do you think I am to solve this situation?
+
+Well, how do you resolve it? How do you resolve it? The answer is in the second half of verse 13, because in the second half of verse 13 it says that he may be your God as he promised you and as he swore to your father's Abraham, Isaac, and Jacob. Now, where did God take the covenant oath? Where did God take the oath? And where did he take the oath to Abraham? It's in Genesis 15. And if you understand what happens in Genesis 15, you are at the very heart of what the Bible is all about.
+
+In Genesis 15, God has said to Abraham, I will bless you. But Abraham says, how do I know? How can I be sure? So God says, well here's what I want you to do. I want you to kill some animals and to cut the animals into pieces and arrange the pieces in two rows with an aisle so you can walk through them. Now you and I are utterly confused by that, but Abraham wasn't. Because in those days when a great Lord wanted to make a covenant with a peon or a peasant or a lesser vassal or servant, that's how it was done. Animals were slain, the pieces were arranged, and when the servant took the oath of loyalty to the Lord, the servant did so as he was walking between the pieces. Why? He was acting out the curse of the covenant. He was saying, I swear loyalty to you, O Lord, and if I do not keep my promise, may I be cut into pieces like this.
+
+So Abraham figured if he was arranging a situation for a covenant ceremony, and so he cut the pieces up and he expected that he would be called to walk through because the Lord's never walked through the pieces. So he waited, and he waited. And then all of a sudden Genesis 15 tells us, incredible darkness came down. It was the darkness of judgment, and in the midst of the darkness was God. He appeared as a smoking fiery pillar just like at Mount Sinai later on. And he passed through the pieces as he promised to bless Abraham.
+
+Now Abraham was startled, and almost every commentator who's ever tried to come to grips with Genesis 15 is startled, because what that means is God is not just saying, I will bless you, but he's promising to die if he doesn't bless him. He's promising to be torn to pieces if he doesn't bless Abraham. Well, that's amazing. Sure, it's amazing, but that's not all. Abraham had two shocks. The first shock was that God went through the pieces, but the second shock was that Abraham was never called to go through the pieces himself. The ceremony ended, and we're told in chapter 15, verse 18, and therefore God made a covenant with Abraham, but this was unheard of. Unheard of. It was amazing for the Lord to come and walk through the pieces, but for the servant not even to make the oath?
+
+Do you know what that meant? Abraham knew what it meant, though he didn't see how it could be. It meant God was making the promise for both of them, and he was taking the curse of the covenant on for both of them. And what he was doing was he was saying, not only will I be torn to pieces if I don't keep my promise. I'll be torn to pieces if you don't. Oh, Abraham, Abraham, God is saying, and to all of us, oh, world, I will bless you no matter what. Even if it means that my immortality must become mortal. Even if my glory must be drowned in darkness, even if I have to literally be torn to pieces, and he was.
+
+Because centuries later, darkness came down on Mount Calvary, thick darkness, and the midst of the darkness, there was God in the person of Jesus Christ, and he was literally being torn to pieces, nails, spears, thorns. Why? He was taking the covenant curse. And it's Paul, who says, Christ redeemed us from the curse of the law by becoming a curse for us. He redeemed us in order that the blessing given to Abraham might come to us all through Jesus Christ.
+
+You know what that means? This is the answer to all the riddles. Paul says in Romans 4, this is how God can be both just and justifier of those who believe. I mean, this is the ultimate blend of law and love. How so? Don't you see? Class? Are the blessings of God conditional or unconditional? Yes. Yes, why? Because on the cross, Jesus Christ absolutely fulfilled the conditions of the law so that God could love you absolutely unconditionally. With his perfect life, Jesus Christ completely fulfilled the terms of the covenant, verse 9, and he earned the blessing. But with his sacrificial death, he completely fulfilled the curse of the covenant. And that leaves the blessing for you and me, and anyone who lifts the empty hands of faith and asks for it.
+
+Jesus Christ fulfilled the conditions of the covenant so that we could be received unconditionally. And that is the reason why when my wife and I, 33 years ago, Kathy and I walked out of a class in Old Testament covenant theology, 33 years ago this month. And for the first time that was explained to us, Jesus' perfect life earned the blessing, his sacrificial death, took the curse, that leaves the blessing for you. That's what God Paul is saying in Genesis in Galatians 3. When we walked out, we looked at each other and we said, I think I finally understand the gospel. We said it to each other. Do you?
+
+And if you do, let me just quickly apply this. If you understand this finally, number one, it will lead you into paradoxical obedience. What do I mean by paradoxical obedience? Until you grasp the covenant, until you grasp covenant theology, until you grasp the gospel. I said, you have a tendency to either look at the law as something that is you've got obey or God's going to get you. So you either look at the blessings of God as conditional. So you're always feeling like I'm not living up. You always feel kind of a sense of condemnation. Or you basically believe God just loves everybody unconditionally. And you feel like the law is a good thing, but you don't take it all that seriously.
+
+But when you understand that Jesus Christ fulfilled the conditions at radical, infinite cost to himself, so that we could be loved unconditionally. Now, when I look at the law of God, first of all, the law of God is the conditions of the covenant. And I say, I've got to take those things seriously, really seriously, because Jesus died to fulfill this. This is important. And so with all my might, I try to obey. With every fiber of my being, I try to obey the will and will of God in terms of the covenant. But when I fail, and I will fail, and I do fail, I know there's no condemnation for those who are in Christ Jesus. Because my obedience is a way of saying thank you to God. And it's a way of becoming like God, but it's not a way of earning my way into God.
+
+And therefore, if you understand the gospel, there's this fascinating balance in your attitude toward the law. You resist sin like crazy, and you never have a sense of condemnation and despair when you fall into it. Huh? Isn't that amazing? And no one else has that kind of balance.
+
+So first of all, it leads to paradoxical obedience. Secondly, it leads to absolute trust. It's scary to get married, you know why? Because two people say, I'm going to give everything for you. How do you know? How do they know? How do they know about you? How do you know about you? See, when two people come together, you say, I'm going to sacrifice for you. I'm going to give my life for you. I'm going to do everything for you. And you're not really sure whether the other person will do it. You're not even sure if you will do it. It's kind of scary to get married. That's another sermon.
+
+But when Jesus Christ calls you into a covenant relationship, you know what He's saying? I want to marry you. I want you to come into a legally binding, intimate love relationship with me. I want to marry you, but you don't have to be uncertain because I've already taken the plunge of love. I've already gone to the mat. I've already died for you. Oh, trust him. What more could anyone do than that?
+
+Thirdly, covenant theology not only gives you paradoxical obedience and absolute trust, it also leads to church membership. Oh yeah, you know why? Because once you understand the gospel, accountability is not this horrible thing. In fact, you also understand accountability is good for you. And therefore, throughout the history of the Bible, you'll see that people who get into a covenant relationship with each other are also in a covenant relationship with God, are also in a covenant relationship with others who have that covenant relationship with God. They are accountable to other believers. They don't just come to church like a consumer, but they covenant and they say, I'm accountable. I support. I'm responsible here. In other words, they join the churches. They don't just come.
+
+Do you understand the gospel? That's one of the implications. Paradoxical obedience, absolute trust, church membership, and getting serious, finally, about God. You see, modern spirituality gives you a wispy God who's kind of anything you want Him to be, but covenant theology gives you a crunchy God. A God that's real, a God that bites back.
+
+C.S. Lewis puts it like this.
+
+> "An impersonal God, well and good. A subject of God of beauty, truth and goodness inside our own heads. Better still. A formless life force, surging through everyone, a vast power which we can all tap. Best of all. But a living God, pulling at the other end of the cord, approaching at infinite speed, the hunter, the covenant lord, the husband, that is quite another matter. There comes a moment when people who have been dabbling in religion suddenly draw back. Supposing you really find Him, we never meant it to come to that. We're still supposing He found you. If there is a God, you are in a sense alone with Him. You cannot put Him off with speculations about your neighbor's hypocrisy or memories of what you have read in books. What will all that chatter in hearsay count when the anesthetic fog, we call the real world, fades away, and the divine presence in which you have always stood, becomes palpable, immediate and unavoidable."
+
+I invite you into a serious relationship with a covenant God.
+
+Let's pray.
+
+Our Father, give us a deep understanding of the gospel. So our lives can really be changed, buy it and through it. We thank You for giving us Your Son. And therefore, we now, in turn, give You ourselves. We pray this in Jesus' name. Amen.
+
+---
+
+### 中文翻译
+
 ### 引言：立约关系
 
 我们如何分享真正认识耶稣的意义？不仅仅是作为一个历史人物或道德教师，而是作为救主和君王。本月，Tim Keller 探讨圣经如何展示我们在信仰上公开，并分享我们在基督里的希望。我们的经文来自申命记 29-23。

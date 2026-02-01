@@ -271,6 +271,254 @@ Keller was senior pastor  at Redeemer Presbyterian Church. Thank you.
 
 ## 中文翻译
 
+### English Transcript (for reference)
+
+Welcome to Gospel and Life. How do we share what it means to truly know Jesus? Not just as a historical figure or moral teacher,  but as Savior and King. This month, Tim Keller explores what the Bible shows us  about being public with our faith  and sharing the hope we have in Christ. Tonight's Scripture comes from a book of John.
+
+Chapter 4, verses 27 through 42. Just then his disciples returned  and were surprised to find him talking with a woman. But no one asked, what do you want or why are you talking with her? Then, leaving her water jar,  the woman went back to the town and said to the people,  come, see a man who told me everything I ever did. Could this be the Messiah that came out of the town  and made their way toward him?
+
+Meanwhile, his disciples urged him,  rabbi eats something, but he said to them,  I have food to eat that you know nothing about. Then his disciples said to each other,  could someone have brought him food? My food, said Jesus,  is to do the will of him who sent me  and to finish his work. Don't you have a saying it's still four months until the harvest? I tell you, open your eyes and look at the fields.
+
+They are ripe for harvest. Even now the one who reaps draws a wage  and harvest a crop for eternal life  so that the sower and the reaper may be glad together. Thus the saying one sows and another reeps is true. I sent you to reap what you have not worked for. Others have done the hard work  and you have reaped the benefits of their labor.
+
+Many of the Samaritans from that town believed him  because of the woman's testimony he told me everything I ever did. So when the Samaritans came to him,  they urged him to stay with them  and he stayed two days. And because of his words, many more became believers. They said to the woman,  we no longer believe just because of what you said,  now we have heard for ourselves  and we know that this man really is the Savior of the world. The Word of the Lord.
+
+We're beginning a new series called Public Faith. Sharing the hope that s within. We live in a very pluralistic society,  New York particularly. Your neighbor probably holds deeply sharply divergent beliefs  about things to your beliefs. Now in a situation like that,  pluralistic everybody s so different in their beliefs,  here s the question,  how can people be true to themselves  and not hide who they are and still get along?
+
+I mean no matter who you are,  if you care about the social fabric,  that s a huge question to answer. Because there s really only three,  I think possible alternatives. Either you hide who you are  for fear that your neighbor will be angry at you  or you speak out about your beliefs and who you are  in such a way that you provoke anger in your neighbor  or you learn how to share who you are  and you are open about who you are,  but to do it in such a way that creates peace and civility  and of course the third alternative  is the only one that has integrity  and is the only one that really is,  it holds out a prospect of hope for a pluralistic society  and therefore even though we re going to be looking  at what the Bible says each week about how Christians  should be public with their faith,  this issue should concern everybody  and my goal is to show Christians  how they can be part of the solution. And that means whether you re a Christian  or whether you don t believe in Christianity  or whether you re not sure what you believe,  this will be of relevance to you. And we re all very excited about the fact that thousands  of people in not only the beta groups  but the small groups in our church  are studying this material every week  and applying it to real life.
+
+Now the first week we re just looking at the very subject  of what public faith is and why faith should be public. And we re looking at what was read to you  was the last half of a great story about Jesus Christ  meeting a woman of Samaria at the well. It starts at the very beginning of chapter 4  and in a minute I re going to recount it  but what I want to do is look particularly at the  aftermath and that s here in verses 27 to 42. Immediately after speaking to this woman,  Jesus talks to his disciples  and he gets real metaphorical  and he talks about spiritual sewing,  seed and reaping. Now what is that?
+
+What is he trying to get across in that metaphor? I want to delve into that and ask that question. What is he talking about there? And I like to look at that under three headings. Jesus here actually gives us a call to spiritual sewing of seed  and then he shows us in this passage  the method of doing it, how to do it,  and then thirdly the power or the inner motivation for doing it.
+
+So the call to it,  the method of it, the power for it. Okay? Now let s first of all,  let s look at the call to spiritual sewing of seed. What is this? Let me give you the context.
+
+What s happened right before this part? I told you that Jesus has had a very famous and very intriguing encounter  with a woman of Samaria at the well. Jesus has been traveling with his disciples  and as he s traveling through Samaria he stops at a well. His disciples go into town to get some food,  leaving him alone at the well. A woman also comes out from the town to draw water from the well  and they engage in a conversation.
+
+And Jesus very gently and persistently tries to draw her out  and get her attention and he does it by using a metaphor,  an illustration. And he says, I have water that if you drank it,  you d never thirst again. And she says, really? All right? Let me have that water.
+
+And he says, okay, you want the water? Go get your husband. She says, I don t have a husband. Right? He says, and very matter-facally, non-condemnally,  and gently says, you re right.
+
+You don t have a husband. You ve had five husbands and the man you re living with right now is not your husband. Wait a minute. Why, when she said, give me this water of life, this water that satisfies,  so you never have to be thirsty again, give this water to me. And he says, go get your husband.
+
+What is he doing? He s brilliantly showing her that he s not talking about physical water,  that he s talking about soul satisfaction, soul satiation,  the satisfaction of a soul thirst. And it s what she s been looking for and hoping to get that soul satisfaction  in men, in family, in romance, in sexual relationships,  and it hasn t happened to her. And now amazed with his insight, surprised at how much he knows about her,  impressed with how loving it is for him to be talking to woman in public,  and perhaps sensing a hidden power. And she calls him out, and she says, you know,  when Messiah comes, he will tell us about all these deep things.
+
+And Jesus very dramatically says,  I, the one speaking to you, am he. And that is verse 26, that s the first 26 verses of chapter 4. And immediately upon him telling her this,  did disciples come back? See, verse 27, the disciples returned. She, verse 29, leased her water jug and goes into the town to start talking to her friends about what just happened to her,  and we ll get back to that in a second.
+
+But in this context of him pointing her to eternal life and pointing her to belief in himself,  and then her going off and pointing the people of the town to him,  he gives this metaphor. He says, first of all, I have a food, this is now in verse 33,  he's using the kind of enigmatic, cryptic, metaphorical way that ancient sages would speak to the disciples  as a way of trying to get them to think, draw them out, focus their attention. And he says, I have a food,  and that food is to do the will of him who sent me into finishes work. Now right there, even that sentence all by itself is fascinating,  because he's actually saying, my meat and my drink,  that which gives me sustenance. The main thing I do is the work that God has given me, the one who sent me has given me this work.
+
+Well, what is this work? Then he calls it harvesting or spiritual sowing and reaping. And the reason we know is spiritual, the reason we know that what he's talking about as a metaphor,  is because he talks about here in verse 36,  he says, we're talking about a crop of eternal life,  and therefore here's what he's saying, especially in context of,  he's talking metaphorically about what just happened with the woman,  and what's happening now between her and her friends. Spiritual sowing is pointing people to eternal life through Jesus Christ,  and spiritual reaping is seeing some of them believe. Spiritual sowing is pointing people to Jesus Christ and saying there is eternal life,  spiritual reaping is sometimes seeing them believe.
+
+And Jesus makes a couple of amazing statements about this. First of all, he's telling his disciples, this is a, remember, this is food, what does that mean? That being public with your faith, pointing people to eternal life through Jesus Christ  is not dessert, it's not hors d'oeuvres, it's not optional, it's not a treat, it's not something special,  this is meat and drink, this is what you should be here to do,  and this is what God has put me here to do, and you should be doing it too. Not only does he show that how important it is to be public with faith,  telling people about eternal life through Jesus, but he even makes,  he bursts the boundaries of this metaphor when he says,  so that sower and the reaper may be glad together. Do you know how radical it is?
+
+The reason it doesn't immediately hit you is because you are not farmers. Sowers go out, and months later reapers go out, right? He even mentions the fact that very often there's months between sowing and reaping. He says, ah, but when it comes to the gospel, the message of eternal life through Jesus Christ,  the sower and the reaper rejoiced together, what does that mean? There is no natural seed that's so powerful that the sower and the reaper can go out together.
+
+You know what he's talking about? He's talking about the sower going out like this,  and the reaper can be right alongside and picking up, you know, the sower puts in the sea. Up it comes, the reaper takes, and they're working together. Sowers and reapers can never work together because there's no seed that powerful,  but the gospel is that powerful. So Jesus is saying, don't say this isn't the harvest time, lift up your eyes.
+
+I'm here. Got it? This is really very, very strong. Never say this isn't the right cultural moment. Never say this isn't the time.
+
+Never say, well, sharing faith publicly, that's something for certain people. No, it's meat and drink. It's for my disciples. It's the work I've been given to do. Don't say this isn't the time.
+
+It is the time. And do you see the power so powerful that the spiritual sea, in this spiritual sea,  the sower and the reaper rejoice together? This does not mean, by the way, that everybody who hears the gospel believes immediately. It's not talking individualisticly. It's not just, you can see in the book of John,  you can see in your own life, that people come to faith in different stages.
+
+But what he's saying is in the past, John the Baptist, the prophets,  they spoke enigmatically, vaguely about it, but now I'm here. It's clear the gospel message is here, and now it's got power. So today is the day of salvation. So that's the first thing we learn here. He's calling us the spiritual sowing in very powerful terms.
+
+If you're his disciple, if you follow him. Well, that makes us a little bit nervous. What exactly is it that he's calling us to? What does this mean? So let's take a look.
+
+What he's talking about metaphorically, the woman is doing right now. Look at what she's doing. It says, leaving her water jar, verse 29,  the woman went back to the town and said to the people, and these are people that she lives with,  these are people she knows. Come see a man who told me everything I ever did. Could this be the Messiah?
+
+So they came out of the town and made their way toward him. There it is. Okay, how do we analyze this? What does this mean? First of all, please notice that she doesn't get up on a box and start preaching.
+
+Now, to get up and preach to a group of people at once is fine, I do it myself. And as Jerry Seinfeld has said, nothing does anything wrong with that. But she doesn't do that because, of course, not everybody's called with that. That's not the essence of what Jesus is calling his disciples to do, to get up like this. Also notice she goes to people she knows.
+
+She doesn't go grab strangers. Again, not that there's anything wrong with that. But that's still not the essence. And by the way, I don't care who you are. We'll get back to this in a minute, but you can already tell.
+
+She has a kind of checkered sexual history. She is not a moral pillar of her community. But in every community, there's always a ladder. Even we Americans who love to say we're part of a egalitarian meritocratic society,  there's always pecking orders. There's always ladders.
+
+You know, there's people above you in your career. There's people below you. There's people older than you, younger than you. People got more. The things you want, people who got less.
+
+And therefore, it doesn't matter if you're high up on the ladder. Talking about your faith is scary. Why? Because you got a lot to lose. What about other people up there who are going to say,  what am I?
+
+Are you a fanatic or something? If you're in the middle of the ladder, that's not easy either. Why? Because you don't want the people above you to think you're kind of... And they want...
+
+They want them to be able to open doors for you, think well of you. But even if you're at the bottom of the ladder, like her,  you don't want to add insult to injury. I mean, you don't want people to say, look, we always knew  you're kind of a shady character. We know you're crazy, too. There's always something to lose.
+
+But she goes, and she speaks. And she... And this one statement actually can be broken into two parts  to show us the essence of what it means to be publicly your faith. What it means to do this spiritual selling that Jesus calls all of us disciples to do. He says, come see a man who told me everything I ever did.
+
+Now, the two essentials of this, of being publicly your faith are  simple transparency and pointing to Jesus himself. First of all, simple transparency. Look, what does she say? He told me everything I ever did. Now, look, this is...
+
+She does not have a set of bullet points. There's not much theological content here. She's not explaining substitutionary atonement. She is just saying, here's what happened to me. She is simply being transparent about what's going on inside.
+
+And this is the first thing you have to understand. Basically, being publicly your faith simply means not hiding your heart. Not hiding the wellsprings of your life. Not hiding from other people who you really are. If you just stop hiding and you're just natural  and letting people know how you make decisions,  how you deal with your problems, if you're a Christian,  you're just letting people see who you are,  and then it becomes very natural.
+
+See, look, you don't necessarily talk to anybody about these things,  but a person doesn't have to be a dear friend for you to share three things. One is, do you ever talk to people about how you're dealing with a problem  or your stress is in your life? Do you ever say... Does anybody say I've been pretty stressed out lately? You know, and I've had a deal with it.
+
+Do you ever talk to people about decisions you make? Do you ever talk to people about priorities that you set? Now, you can talk to people who are not necessarily your closest friends,  but when you are getting to know people,  you disclose a little bit more and a little bit more. And when you get to that level, if you're a Christian,  and you don't disclose the fact that Jesus is always part  of how you deal with your problems,  the Jesus is always part of how you make your decisions. If you get to the level where you can be disclosing that,  but you don't share that part of your heart,  you are short-circuiting the natural level of disclosure and transparency that happens  as you're getting to know somebody better.
+
+So, in other words, public faith is just don't short-circuit it, don't hide it. Look, we all know that people don't want to hear it, especially in our culture. But the point is that it's unnatural, it's wrong. It's a lack of transparency. So, you don't have to learn a bunch of bullet points or get up on a box,  you just have to stop being dishonest about how you make your decisions  and how you deal with your issues.
+
+Just don't hide. Just don't hide. That's the first thing, personal transparency. But the second thing, notice is this. She doesn't say, come to a seminar, come read a book,  she says, come see a man.
+
+Now, I already said this. She doesn't understand too much about Jesus yet. I mean, she says he's the Messiah or he might be the Messiah, all right. But does she know he's going to die for her or for me and you? No.
+
+Does she know he's going to rise from the dead? No. And those are really big things. She definitely doesn't know too much theology here. And yet somehow,  she has grasped the essence of the distinction between Christianity  and all of the religions.
+
+She's actually grasped the genius of Christianity. What is that? Well, I would say that every other religion, the main thing in that religion,  is the way. The way. So, for example, the founder, the teacher, the prophet, the sage,  the founder of the religion comes and says, here's the five pillars.
+
+Here's the eightfold path to enlightenment, the ten-nubbelchers. In other words, they're giving people the way. They're saying if you want to find God, if you want to find salvation,  if you want to connect to the divine, if you want to be enlightened,  if you want salvation, if you want favor with God,  if you want a relationship with God, here's the way. You do this and do this and do this and think about it. Buddhism has a very well laid out path.
+
+Four noble truths and the last noble truth is the eightfold path. And do you have to know all about Buddha for the way to work? I mean, couldn't you find enlightenment without necessarily knowing that much about Buddha? Of course not. The answer is you don't need to know a lot about Buddha.
+
+Why not? Because Buddha brought the way, but the main thing is the way. There's someone to touch from the person who brought it. The main thing is, since you're the one, through your efforts,  that they kick God's favor and get the relationship with God,  then the important thing is the way. It's the steps.
+
+It's the plan. It's the formula. That's the important thing. Not the founder, not the prophet, but totally different in Christianity. In John 14, when someone says to Jesus,  Lord, you know the way.
+
+Jesus says, I am the way. Lord, you have the words of truth. I am the truth. I am the way. I am the truth.
+
+When Martha says to Jesus, Lord, my brother died, but he will rise again  at the resurrection on the last day. What does Jesus say? Martha, I am the resurrection in the life. I am the way. I am the truth.
+
+I am the way. Why is he talking like that? Is he just being arrogant? No. Here's what he's saying.
+
+I am the way means all of the religious tell you what to do to find God. I am God come to find you. All of the religious tell you what to do to find God. I have come to do what you couldn't do for yourself. I have come to give you salvation as a gift, see.
+
+We always say the gospel changes everything and we believe it really does. That's why here at Gospel and Life, August is Go and Share Month. Throughout August, we're inviting thousands of our listeners to take a small step in sharing the gospel  with someone God has placed in your life. For those of you who make a gift to Gospel and Life this month,  we'll send you two copies of making sense of God by Tim Keller. It's a powerful resource that explores how Christianity makes emotional, cultural, and rational sense in today's world.
+
+It's our thanks for your gift and provides a way you can do a small act to share the gospel  by reading the book with a friend giving one to a coworker or passing on both copies to people  who are exploring the Christian faith. It's a simple way to start a Gospel conversation or continue it. To request your two copies of making sense of God,  simply go to Gospel and Life.com slash give. Again, that's Gospel and Life.com slash give. Now, here's Dr.
+
+Keller with the remainder of today's teaching. And therefore, every other religion, the teacher, the founder, that's not an important thing. What's really important is that you're good and that you do the thing. You follow the way. But in Christianity, it's all about Jesus.
+
+Jesus is the one that you rely on. Jesus is the one. He's the way. He's the truth. He's the life.
+
+People are constantly saying to me, over the years, so often I've heard people say,  look, I'm glad you're a Christian, that's great. But I believe that all good people can get to heaven. Let me repeat that just so you hear it and see the false assumption there. Oh, I'm glad you're a Christian. But I believe all good people can get to heaven.
+
+What's the assumption? The assumption is that Christians think that their goodness gets them to heaven,  but they shouldn't be so narrow as to think that only Christians are good. But Christians don't believe that goodness gets them to heaven. In fact, the genius of Christianity, the heart of Christianity,  is we've stopped the exhausting activity of trying to depend on our own goodness. We've escaped the exhaustion of depending on our own goodness  and we're depending on Jesus' goodness, which means you can't talk about what's happening in your heart as a Christian  without talking about Jesus.
+
+You can't avoid it. You have to be pointing to his beauty. You have to be pointing to him, and she understood that. And so there's the essence of what it means to be public with your faith. Just be transparent about what's going on in your heart,  but you must talk about, you must refer to, you must point to Jesus.
+
+Now, this is New York City, and many of you who live here know  that the 18 minutes that I've just spent are completely offensive  to most New Yorkers. Because most New Yorkers say this,  it's all right for you as Christians to believe what you believe,  but you should not convert people. You should not tell people that Christianity is better or truer than their beliefs  and that they should change. You should not try to convert people. You should not say your beliefs are better or truer than theirs  and that they should change.
+
+You mustn't do that. You've heard that statement before. Maybe you believe that. I want to show you for two reasons that that's absolutely wrong. That statement's absolutely wrong.
+
+It's absolutely wrong personally, and it's absolutely wrong logically. First of all, personally. I mean, the heart doesn't work that way. Imagine a group of families all of whom had one member with MS,  multiple sclerosis, a terrible, terrible disease. And imagine that they all had those members using,  taking a treatment using a particular medicine, the same medicine.
+
+And what they found that most of the families found that their MS  member was cured. And what if some of the other families found that because of the medicine,  they were dramatically improved. And they got together and they began to compare notes and compare experiences  and study, and they came to the conclusion that this is the cure for MS. And the world needs to see it. So they create a foundation and they create platforms and they get the word out.
+
+Now, how would you regard them? I think you would look at them and say, they may be right. They may be wrong. But there's nothing narrow about them saying, this is the cure. They may be right.
+
+They may be wrong. But of course, if they think they have the cure and they've experienced it like that,  of course, they're going to do that. Now, you may think a couple of them are a little overbearing. Maybe they kind of come on kind of hard. But there's absolutely nothing wrong with the campaign.
+
+There's nothing wrong with them wanting to do this and to come to the world  and say, this is the cure. Okay, well, why would Christians be any different? They aren't different except that they're more so. Because Christians don't just believe they have a cure for one disease. They believe they have something even more foundational.
+
+And so they have to go to the world and say, this is the cure. And so you ought to say, well, they may be right or they may be wrong. And some of them may be overbearing. And by the way, a lot of Christians are overbearing. But there's nothing particularly narrow about it.
+
+There's nothing narrow about it. It's absolutely natural. In the Atlantic Monthly, recently, there was an interesting article. It was actually quite a cool article on college atheists. In other words, people who've raised in the church go to college and become atheists.
+
+The whole article about them. And there's this one line I want to or this one couple of sentences I want to read you. In it, there's this quote, quote,  without fail, former church attending students express similar feelings to Michael,  a polypsych major at Dartmouth who said, quote,  I really can't consider a Christian, a good moral person if he isn't trying to convert me. See, now that's exactly right. Why?
+
+If you're a Christian and you believe the claims of Jesus  and you really think that you've got this cure as it were,  then Michael's trying to say, if you're a good moral person,  you've got to be trying to convert me. Oh, I'm sure he doesn't want this to be overbearing. He doesn't want Christians to be, you know, uncivil, you know, I don't know that stuff. But he's trying to say is, if you believe this, then you're not a good person  if you're not trying to convert me because you're not trying to convert me. You don't love me or you don't believe it.
+
+But it's not just so to say, well, Christians can believe what they believe,  but they shouldn't try to convert people. They shouldn't try to say that their beliefs are better or brighter  than other people ought to abandon their beliefs and adopt you. You shouldn't do that. First of all, I try to show you personally that doesn't make sense,  but secondly, it doesn't logically make sense. I'm going to be brief about this, but it doesn't logically make sense.
+
+To say, you must not say that your beliefs about spiritual reality are better than anybody else's. You know, all religions are equally important and right or valuable to the people. If it helps them, it helps them. You should say that your take on spiritual reality is better than anybody else's. Do you realize what you're doing?
+
+At that very moment, you're doing the very thing you're telling other people they can't do. So, for example, there's a couple of ways to put it. If you say no one's faith position about the nature of spiritual reality is the superior one. But to say that is a faith position, you can't prove it scientifically,  and you're saying that it's superior. You're saying that the idea that all religions are equally right is superior  to the view that one religion is wrong.
+
+Listen, if it's arrogant to say that one religion is right,  why is an arrogant to say one way of thinking about religions is right? Because what you're really trying to say is my thinking that all religions are right  is better than your thinking than only your religion is right. Which means, I think I'm right. And I think it would be better if you believe what I believe. And I think you should change your beliefs.
+
+Uh-oh. You see, you can't avoid making truth claims. Exclusive truth claims. As soon as you say nobody should make a truth claim, that's a truth claim. As soon as you say nobody should say you shouldn't say your beliefs are righter than my beliefs.
+
+But at that moment you're saying that your beliefs are righter than my beliefs. You can't overcome this. Now, as soon as you realize that everybody makes exclusive truth claims,  Christians are no different than anybody else. Everybody, therefore, has faith in things that they can't prove  and is trying to get other people to believe what they believe  because they think it'd be better for the world if you believe this way rather than this way. Everybody's doing that.
+
+Now, okay, can I step out for a second and say some of you may conclude rightly  that I've had a lot of conversations like this in my lifetime, and I have. And let me just tell you that when you get to this place where the person who is saying,  oh, you know, Christians shouldn't be converting people and they shouldn't be public with their faith  and they shouldn't be telling them that they're other people are wrong. When I get into this place where I say you're doing the very thing you're telling me not to do  and they say, no, I'm not. And then you say, but you're doing it again. You're doing it again.
+
+You're doing it again. At a certain point, they get a little frustrated, not with me, I'm sure. And they say something that I'm actually very sympathetic to. They say, but how are we going to have world peace then? If everybody's out there saying my religion is the right religion, we're going to have violence.
+
+How are we going to have world peace? Okay, that's right, that's the problem. But for a moment, may I just ask you to do something with me? Actually, I'm going to play the age card on you, in fact, my age card. I'm old enough to remember when the people who are trying to blow us up literally,  were the communists.
+
+They're the ones who were trying to blow us up. Therefore, and they were atheists. So the atheists were the enemies of freedom and democracy. And the religion, of course, is the friend of freedom and democracy. That's what it was in the 50s and 60s and all that when I was growing up.
+
+But now we live in an era in which religious fundamentalists are trying to blow us up. Isn't that right? It's not the atheist anymore. It's religious fundamentalists. So now everybody says, the enemy of freedom and democracy is religious fundamentalism.
+
+And of course, atheism now looks like it's free thinking and free. Could we please escape our cultural moment for a second and rise up, not grow up. Rise up and be objective for a minute. Religion is not the source of violence. And atheism is not the source of violence.
+
+Because actually you have Pol Pot, Cambodia, killing fields, atheists, communists. You've got the crusades. No, no, no. It's human nature. That's the source of violence.
+
+It's not religion or irreligion or atheism. It's human nature. And I can tell you what is not going to help human nature. What's not going to change human nature. Telling people don't make any truth claims when you actually are.
+
+That's just irritating. If you think, if violence is coming from human nature and you think,  oh, the solution is, let's everybody get private. Nobody say that anybody is claiming to have the truth, which of course is the truth claim,  which doesn't work at all. It just frustrates everybody, furiates a lot of people. Well, then what are we going to do about human nature?
+
+Ah. Point three. Look at Jesus. Look at His motivation. Jesus, of course, is pointing this woman away from her natural beliefs to new beliefs.
+
+But look how He's doing it. See, the real question is not. The real question is not. How do we get people to stop making truth claims? Because you can't do that.
+
+The real question is, whose truth claims are going to lead most to peace? Or whose view of things is going to produce in them the ability to speak respectfully and gently  and lovingly to people with whom they deeply differ? Do you hear that? Well, let's take a look. First of all, look at verse 27.
+
+Just then is disciples returned and were surprised to find Him talking with a woman. But no one, why were they surprised? Do you know? This was a patriarchal society in which men did not speak to women in public usually. Why?
+
+Because they were beneath. It was beneath them. This was also a racist society in which Jews saw Samaritans as half-breeds. Thirdly, this was a moralistic society. And a moralistic society in which here's a rabbi talking to a woman who's had five husbands and is living with a man  who probably came in midday to draw water and not come in the early in the morning to draw water with the other woman  because he was probably something of a social outcast.
+
+Here's a man speaking to a woman. Here's a Jew speaking to a Samaritan. Here's a rabbi speaking to a fallen woman. And that just wasn't done, but he's doing it. And not only that, by the way, some commentators point out that a well was a pickup place.
+
+And here's Jesus with a woman alone at the well and he's engaging her. And when the disciples come, they're amazed. And by the way, if you go up into the narrative in the early parts, she was also just as shocked that this guy would even talk to her. She was on the wrong side of every fence the world puts up. She was a moral outsider, a racial outsider.
+
+She was a woman, not a man. She was Samaritan, not a Jew. She was immoral, not moral. And yet Jesus engages her. Why?
+
+He doesn't care what anybody thinks. Why? There's basically there's two motivations for telling people you ought to change your beliefs. One is pride. I'm right and you're wrong.
+
+The other is love. I want you to have what I have. And Jesus Christ is just filled with love. This isn't the way an arrogant, proud, self-righteous person operates. So he was that way he wouldn't be talking to her at all.
+
+And so he is pointing her to eternal life and he is trying to change her beliefs. But so obviously out of love, how do we get that? If you could be open with who you are and be able to be public with your faith. But like that, then you'd be part of the solution in the world, right? That's what we need.
+
+Not people that hide who they are. Not people that speak out in a way that's belligerent and that aggravates people. But a way that's true to who you are, but at the same time respectful and gentle. How do we get that? Here's how we get it, the way she got it.
+
+Look at verse 29. Then leaving her jar, water jar, the woman went back to the town  and said to the people, come see a man who told me everything I ever did. Now look carefully. This is, you know, in small towns, everybody knows everything. So notice what she's saying.
+
+She's not just saying, gosh, is he clairvoyant or something? Oh no. Oh no. What are you saying? There's a Jewish rabbi offering me the water of life  and he knows all about me.
+
+He told me everything I ever did. Can you imagine her friend saying, he knows everything? Yes. He knows about Harry and Peter and Joe and, yes. And she said, he saw me to the bottom.
+
+He saw me at my worst, but he was offering me the eternal life. You know, this is very weird. Here's a rabbi in Jesus. And he's offering her eternal life. He's offering her, remember what that water is?
+
+He calls it the water that, if you drink it,  you'll never be thirsty again. What do you mean? It's soul satisfaction. And he is saying, though, you've been looking for it all the wrong places,  I can give it to you now. Now, as a Jewish rabbi, why wouldn't he say and said, well, look, you know, dear?
+
+I know you mean well, but you know, you've had a really bad track record. And maybe what you need to do is I'd like to see you just sort of keep your nose clean  for six weeks, you know, pull your act together, you know,  straighten up and fly right for about six weeks, come back and we have a second appointment. And maybe then you'd be ready for the water of life. You know, maybe then you'd be, you know, worthy of it. No, no, no, no, no, no.
+
+He sees her to the bottom and still offers. See, he saw everything I've ever done. He said, I don't care about your sexual history. Now, you know why Jesus can do that? He can offer us the water of life free, even though we don't deserve it.
+
+Because on the cross, he said, I thirst. When he was up on the cross at one of the things he cries out, I thirst. Was he just physically thirsty? Probably not. He was being separated from God.
+
+His soul was shriveling up. He was experiencing what we deserve to experience because we don't live the life we should. But because Jesus Christ went onto the cross and took our sins,  and took the punishment we deserve so that when we believe in him,  God can accept us and he can give us the water of life freely. That's grace and you know that changes your identity. What do I mean by that?
+
+Sociologists talk to say, in fact, some social theorists actually say,  that everybody has their identity based on difference. That is, I feel good about myself because I'm not like them. I feel good about myself because I'm not like them. You know that the old prayer that Jewish men prayed centuries ago,  you get up in the morning and say, oh Lord, I thank you that you didn't make me a slave,  a gentile or a woman. I got self-esteem because I'm not a woman because I'm not a slave because I'm not a gentile.
+
+What is that? That's pretty obvious. And yet, you know, that is an identity based on difference. In other words, I'm better than you. And honestly, even though it's not usually that overt,  when people say, I have traditional values.
+
+And somebody else over there says, well, I'm a progressive open minded person. Somebody else says, well, I am a religious moral person. Somebody else says, well, I'm a free thinker. You can just tell the background is, I'm not like them. And if you belong to any other religion of Christianity  or if you actually think you're a Christian and pretty much don't understand the gospel,  which is true of many, many people,  you believe that you have a relationship with God because you're a good person,  because you've tried hard, because you're moral.
+
+And therefore, when you meet somebody who doesn't believe in God,  you can assume that you're better than they are. And then your motivation for sharing your faith publicly is one of pride and arrogance,  and you just like telling people they're wrong. What if your salvation was not achieved but received? What if it comes in unmerited? What if your self-esteem is based on a gift?
+
+What if your salvation comes not because you're better,  but because you have admitted that you're not better than anybody else,  and that you need great salvation? And you know your loved, despite your bad record,  that creates a new kind of identity,  a new kind of identity so that when you talk to someone,  if you know you're saved by grace,  not because you're better, not because you're wiser,  and you talk to somebody who doesn't believe, doesn't have salvation,  you would never assume that person you're necessarily better than they are,  because you're not saved because you're better. They might be better. They probably are better. They're probably wiser in some way or more self-controlled in some way.
+
+Maybe a better husband, a better wife, a better father,  a better mother than you, why not? Because you're not saved by being a good father, a good mother,  a wise person. No, no, no. All the superiority is gone. You have a different kind of identity.
+
+And because you have a different kind of identity,  because you've seen that Jesus has died on the cross for you,  because you see that because he said I thirst,  you can get the water of life freely,  you become part of the solution. You become someone who can talk about your faith out of love,  but without the haughtiness, without the self-righteousness. Look at this. She was able to say to her,  I don't care about your sexual history. I don't care if you're a hitman for the mob.
+
+I can offer you this water of life because I said I thirst. And she goes back to her friends and said,  he saw me at my worst and loved me. I've never met a man like this. Come see this man. He saw me to the bottom, but loved me to the skies.
+
+You know, she was a great witness  and she didn't know much about Christianity really. You and I know a lot more. What is our excuse? Let's pray. So Father, thank you so much for eternal life.
+
+It comes to us through the thirst, the cosmic thirst,  the death of Jesus Christ. We do want to be part of the solution. We live in a pluralistic society. We desperately need people who know how to share who they are,  that is disarming, respectful, loving, brave. And we pray, Father, you would make us that,  those kinds of people.
+
+Thank you for giving this to us through the grace of Jesus Christ  who came not to be served, but to serve,  and to give his life a ransom for many. His name we pray. Amen. Thanks for listening to Tim Keller on the Gospel and Life Podcast. If you'd like to see more people encouraged by the Gospel Center teaching  and resources of this ministry,  we invite you to consider becoming a Gospel and Life monthly partner.
+
+Your partnership allows us to reach people all over the world  with the transformative power of Christ's love and forgiveness. To learn more about how you can become a Gospel and Life monthly partner,  just visit gospelandlife.com slash partner. That website again is gospelandlife.com slash partner. Today's sermon was recorded in 2013. The sermons and talks you here on the Gospel and Life Podcast  were recorded between 1989 and 2017,  while Dr.
+
+Keller was senior pastor  at Redeemer Presbyterian Church. Thank you.
+
+---
+
+### 中文翻译
+
 ### 引言：公开信仰的挑战
 
 我们如何分享真正认识耶稣的意义？不仅仅是作为一个历史人物或道德教师，而是作为救主和君王。这个月，Tim Keller 探讨了圣经如何指导我们公开我们的信仰，并分享我们在基督里的希望。
