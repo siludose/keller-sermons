@@ -522,6 +522,7 @@ Keller was senior pastor  at Redeemer Presbyterian Church. Thank you.
 
 
 
+
 欢迎收听 Gospel and Life。我们如何分享“真正认识耶稣”意味着什么？不仅把他当作历史人物或道德导师，而是当作救主和君王。本月，提姆·凯勒将带我们探讨：圣经如何教导我们在信仰上保持公开，分享我们在基督里所拥有的盼望。今晚的经文选自《约翰福音》。
 
 第四章 27—42 节。正当那时，门徒回来了，惊讶地发现他在和一个女人说话；只是没有人问：“你要什么？”或“你为什么和她说话？”那女人就留下水罐，往城里去，对众人说：“你们来看！有一个人把我素来所行的一切都给我说出来了。莫非这就是基督吗？”众人就出城，往他那里去。
@@ -1117,4 +1118,3 @@ Keller was senior pastor  at Redeemer Presbyterian Church. Thank you.
 谢谢。
 
 ---
-
