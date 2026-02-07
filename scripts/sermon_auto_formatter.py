@@ -241,8 +241,32 @@ def main(argv: Optional[List[str]] = None) -> int:
         return 0
 
     if args.batch:
-        print("Batch processing not yet implemented")
-        return 1
+        # Process all available sermons
+        transcripts_dir = ROOT / "transcripts"
+        transcript_files = sorted(transcripts_dir.glob("*_transcript.txt"))
+
+        print(f"Processing {len(transcript_files)} sermons...")
+
+        processed = 0
+        for i, transcript_file in enumerate(transcript_files, 1):
+            sermon_name = transcript_file.name.replace("_transcript.txt", "")
+
+            try:
+                transcript = transcript_file.read_text(encoding="utf-8")
+                existing_md = read_sermon_md(sermon_name)
+                formatted = format_sermon(sermon_name, transcript, existing_md)
+
+                output_path = ROOT / f"{sermon_name}.md"
+                output_path.write_text(formatted, encoding="utf-8")
+                processed += 1
+
+                if i % 10 == 0:
+                    print(f"  [{i}/{len(transcript_files)}] Processed {sermon_name}")
+            except Exception as e:
+                print(f"  Error processing {sermon_name}: {e}")
+
+        print(f"\nCompleted: {processed}/{len(transcript_files)} sermons")
+        return 0
 
     ap.print_help()
     return 0
