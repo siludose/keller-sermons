@@ -26,7 +26,7 @@ Welcome to Gospel in Life.  What does it really mean to live in a way that refle
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。耶稣给我们灵性的模型。耶稣通过祷告、禁食和与上帝的关系示范了真正的灵性。耶稣教导我们如何服事他人。当我们跟随耶稣的模型时，我们变得属灵上成长。
 
 
 ---

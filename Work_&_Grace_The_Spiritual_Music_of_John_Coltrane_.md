@@ -26,7 +26,7 @@ Welcome to Gospel and Life.  If you have a job, it's likely that you think about
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。工作与恩典：约翰·柯川的精神音乐。音乐可以表达灵性的真理。约翰·柯川的音乐反映了他对上帝的搜索。他的音乐提醒我们上帝是伟大的。
 
 
 ---
