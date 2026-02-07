@@ -3,6 +3,13 @@
 # Chunk workspace (generated + not meant for git)
 _chunks/
 
+# Local Bible sources/downloads (large, reproducible)
+bibles_downloads/
+bibles_sources/
+
+# Workspace symlink
+keller-sermons
+
 # macOS
 .DS_Store
 
