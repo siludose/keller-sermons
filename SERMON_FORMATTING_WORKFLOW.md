@@ -42,12 +42,35 @@
 - 需要补充的引用位置
 
 #### 步骤 2: 获取准确的和合本经文
-**重要：必须使用官方和合本版本**
+**重要：项目已内置和合本圣经数据（CUNPS.json）**
 
-获取准确经文的方式：
-- 使用官方和合本圣经网站
-- 使用可靠的圣经查询工具
-- 或由用户提供验证过的经文
+快速获取经文的方式（自动化）：
+
+```bash
+python3 scripts/cuv_bible_query.py --book [书卷名] --chapter [章] --verse [节]
+```
+
+**示例：**
+
+```bash
+# 查询雅各书 2:5
+python3 scripts/cuv_bible_query.py --book 雅各书 --chapter 2 --verse 5
+
+# 查询以弗所书 4:28
+python3 scripts/cuv_bible_query.py --book 以弗所书 --chapter 4 --verse 28
+
+# 查询马太福音 5:3
+python3 scripts/cuv_bible_query.py --book 马太福音 --chapter 5 --verse 3
+
+# 查询整章（如路加福音第8章）
+python3 scripts/cuv_bible_query.py --book 路加福音 --chapter 8
+```
+
+支持的书卷名称（完整列表见脚本中的 BOOK_NUM_TO_NAME）：
+- 旧约：创世记、出埃及记、利未记...
+- 新约：马太福音、马可福音、路加福音、约翰福音、使徒行传...
+- 书信：罗马书、哥林多前书、哥林多后书、加拉太书、以弗所书、腓立比书、歌罗西书、帖撒罗尼迦前书、帖撒罗尼迦后书、提摩太前书、提摩太后书、提多书、腓利门书、希伯来书、雅各书、彼得前书、彼得后书、约翰一书、约翰二书、约翰三书、犹大书
+- 启示录
 
 #### 步骤 3: 替换经文内容
 对每处经文引用：
@@ -64,11 +87,24 @@
 > "偷窃的人不要再偷，总要劳力，亲手做益处的事，叫有缺乏的人有分受。"
 ```
 
-#### 步骤 4: 验证准确性
-- 逐一验证每处经文
-- 确保书卷、章节号准确
-- 确保是和合本版本（不是其他版本如 NIV、ESV 等）
+#### 步骤 3.5: 快速获取多个经文（批量方式）
 
+如果需要一次性获取多个经文，可以创建一个简单的脚本：
+
+```bash
+#!/bin/bash
+# 查询多个经文的脚本
+
+python3 scripts/cuv_bible_query.py --book 以弗所书 --chapter 4 --verse 28
+python3 scripts/cuv_bible_query.py --book 马太福音 --chapter 5 --verse 3
+python3 scripts/cuv_bible_query.py --book 马太福音 --chapter 18 --verse 33
+python3 scripts/cuv_bible_query.py --book 雅各书 --chapter 1 --verse 27
+```
+
+#### 步骤 4: 验证准确性
+- 脚本直接从 CUNPS.json 获取数据，准确性有保障
+- 如果需要验证，对比原始数据源或官方和合本圣经
+- 仅需关注 `text` 字段的内容（脚本会自动过滤 HTML 标签）
 ### 第三阶段：Git 提交
 
 ```bash
@@ -114,18 +150,27 @@ git push origin main
 ```
 
 ### 经文引用改进示例
-**改前：**
+
+**改前（仅提及）：**
 ```
 马太福音 5:3 说虚心的人有福了，因为天国是他们的
 ```
 
-**改前：**
+**改后（添加完整经文）：**
 ```
 **马太福音 5:3（和合本）：**
 
-> "虚心的人有福了，因为天国是他们的。"
+> "虚心的人有福了！因为天国是他们的。"
 
 这表明...
+```
+
+**获取准确经文的方法：**
+```bash
+python3 scripts/cuv_bible_query.py --book 马太福音 --chapter 5 --verse 3
+# 输出：
+# 马太福音 5:3
+# 虚心的人有福了！因为天国是他们的。
 ```
 
 ## 注意事项
