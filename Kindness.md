@@ -26,7 +26,7 @@ Welcome to Gospel in Life. The Bible says there's a world of difference between 
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。什么是仁慈？仁慈是关心他人的福祉。仁慈是以温和和同情对待他人。当我们仁慈时，我们反映上帝的性格。基督改变我们，使我们更仁慈。
 
 
 ---

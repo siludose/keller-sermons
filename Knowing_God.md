@@ -26,7 +26,7 @@ Welcome to Gospel and Life.  How do we share what it means to truly know Jesus? 
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。认识上帝意味着什么？认识上帝不仅仅是知道关于他。这是与他建立关系。这是经历他的爱。这是让他改变你的生活。
 
 
 ---

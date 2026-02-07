@@ -26,7 +26,7 @@ Welcome to the Gospel and Life podcast.  Do you believe Christ's resurrection is
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。复活节提醒我们什么都不能动摇我们。基督已经复活。基督已经战胜死亡。基督已经战胜罪恶。所以我们可以有信心。
 
 
 ---

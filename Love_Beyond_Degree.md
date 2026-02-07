@@ -26,7 +26,7 @@ Welcome to Gospel in Life.  Are you longing to see real change in your life, in 
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。上帝的爱超越我们能理解的程度。它是无条件的。它是永久的。它不能被破坏。这个爱改变我们。
 
 
 ---

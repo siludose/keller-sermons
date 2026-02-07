@@ -26,7 +26,7 @@ Welcome to Gospel and Life.  Who is the Holy Spirit?  And why is the Spirit's wo
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。在圣灵中的生活意味着什么？这意味着被圣灵充满。这意味着由他引导。这意味着经历他的权力和平安。
 
 
 ---

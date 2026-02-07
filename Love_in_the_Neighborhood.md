@@ -26,7 +26,7 @@ Welcome to Gospel and Life.  This month on the podcast, we are featuring a serie
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。我们如何在我们的邻里中表现爱？我们通过关心邻舍。我们通过公正工作。我们通过服事有需要的人。我们通过建立社区。
 
 
 ---

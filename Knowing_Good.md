@@ -26,7 +26,7 @@ Welcome to Gospel and Life.  When someone you know is contemplating life's deepe
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。什么是真正的好？在这个信息中，蒂姆·凯勒探讨了我们如何知道什么是好的。我们不能依靠我们自己的判断。我们需要上帝的启示。我们需要圣经。
 
 
 ---

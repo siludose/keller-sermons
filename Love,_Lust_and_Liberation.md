@@ -29,7 +29,7 @@ Welcome to the Gospel and Life podcast.  Today Tim Keller is teaching on perhaps
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。爱、欲望和解放之间有什么区别？真实的爱来自上帝。欲望来自罪。真实的爱释放我们。欲望使我们成为奴隶。
 
 
 ---

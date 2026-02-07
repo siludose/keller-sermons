@@ -26,7 +26,7 @@ Welcome to Gospel in Life. Many of us try to change through sheer willpower, con
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。圣灵的果子是什么？首先是爱。爱是所有其他果子的基础。当圣灵在我们身上工作时，他生出爱。这个爱改变我们和他人。
 
 
 ---
