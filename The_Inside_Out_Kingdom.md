@@ -26,7 +26,7 @@ Welcome to Gospel in Life.  What does it really mean to live in a way that refle
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。上帝的国从内向外工作。它从心开始。当我们的心被改变时，我们的行为改变。当我们的行为改变时，世界改变。
 
 
 ---

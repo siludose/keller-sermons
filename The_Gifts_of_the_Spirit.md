@@ -26,7 +26,7 @@ Welcome to Gospel and Life.  Who is the Holy Spirit?  And why is the Spirit's wo
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。圣灵给了信徒什么礼物？圣灵给了我们传讲、教导、医治、预言等的礼物。这些礼物是为了建立教会和帮助他人。
 
 
 ---

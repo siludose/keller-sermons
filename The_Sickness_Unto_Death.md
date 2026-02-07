@@ -26,7 +26,7 @@ Welcome to Gospel and Life.  When someone you know is contemplating life's deepe
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。死亡的病是什么？这是精神的死亡——与上帝分离。但基督可以治愈这个病。基督给了我们永恒的生命。
 
 
 ---

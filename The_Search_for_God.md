@@ -26,7 +26,7 @@ Welcome to Gospel and Life. Have you ever found yourself asking, what if nothing
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。我们如何搜索上帝？上帝说"你们寻求我，若全心全意地寻求我，就必寻见。"搜索意味着诚恳和坚持。
 
 
 ---

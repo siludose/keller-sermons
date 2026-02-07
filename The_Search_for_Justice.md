@@ -26,7 +26,7 @@ Welcome to Gospel in Life. Have you ever found yourself asking, what if nothing 
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。我们搜索正义。我们想要事情被修正。但真实的正义来自上帝。上帝是完全公正的。我们可以相信他。
 
 
 ---

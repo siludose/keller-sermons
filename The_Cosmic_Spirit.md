@@ -26,7 +26,7 @@ Welcome to Gospel and Life!  Who is the Holy Spirit?  And why is the Spirit's wo
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。圣灵是宇宙的灵。他充满一切。他知道一切。他在一切中工作。当我们敞开自己接受他时，他赋予我们力量。
 
 
 ---

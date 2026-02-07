@@ -29,7 +29,7 @@ Welcome to Gospel in Life. Have you ever found yourself asking, what if nothing 
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。许多人搜索成就。他们试图通过成功来定义自己。但真正的成就来自基督。真正的成就是被拯救。
 
 
 ---

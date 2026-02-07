@@ -26,7 +26,7 @@ Welcome to Gospel in Life. You don't have to look far to see that something's de
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。罪有什么判决？罪的代价是死亡。但基督承担了判决。基督为我们支付代价。所以我们可以被释放。
 
 
 ---

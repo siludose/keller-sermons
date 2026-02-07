@@ -26,7 +26,7 @@ Welcome to the Gospel and Life podcast.  Today, Tim Keller is teaching on perhap
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。新社区是什么？新社区是教会——那些在基督里被救赎的人。这个社区由爱而联合。这个社区被呼召改变世界。
 
 
 ---

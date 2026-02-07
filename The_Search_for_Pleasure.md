@@ -26,7 +26,7 @@ Welcome to Gospel In Life.  Have you ever found yourself asking, what if nothing
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。许多人搜索快乐。他们试图通过娱乐、食物、性或金钱来填补空虚。但这些都不会满足。只有上帝会。
 
 
 ---
