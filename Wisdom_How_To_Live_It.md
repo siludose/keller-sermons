@@ -26,7 +26,7 @@ Welcome to the Gospel Unliked Podcast.  Many of the questions we face in life ar
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。我们如何活出智慧？我们通过做正确的选择。我们通过遵循上帝的道路。我们通过教导他人。
 
 
 ---

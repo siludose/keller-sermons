@@ -26,7 +26,7 @@ Welcome to Gospel in Life.  Why is the world so broken?  And why are we capable 
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。什么是愤怒？愤怒是当我们被激怒时感到的强烈情感。愤怒可以导致伤害和破坏。以扫的故事告诉我们愤怒的代价。
 
 
 ---

@@ -29,7 +29,7 @@ Welcome to Gospel in Life.  This month on the podcast, we are featuring a series
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。什么是真正的灵性？真正的灵性不是关于规则或仪式。真正的灵性是与上帝建立关系。真正的灵性改变我们。
 
 
 ---

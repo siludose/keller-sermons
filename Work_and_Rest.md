@@ -26,7 +26,7 @@ Welcome to Gospel and Life. Are you struggling to find meaning and purpose in yo
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。工作和休息之间的平衡是什么？我们被创造为工作。但我们也被创造为休息。上帝在第七天休息。我们应该也这样做。
 
 
 ---

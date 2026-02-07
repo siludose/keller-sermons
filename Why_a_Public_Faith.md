@@ -26,7 +26,7 @@ Welcome to Gospel and Life.  How do we share what it means to truly know Jesus? 
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。为什么要有公开的信仰？我们的信仰不应该隐藏。我们应该公开见证。我们应该让他人知道我们相信什么。
 
 
 ---

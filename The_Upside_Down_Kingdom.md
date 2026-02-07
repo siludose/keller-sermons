@@ -26,7 +26,7 @@ Welcome to Gospel in Life.  This month on the podcast, we are featuring a series
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。上帝的国是颠倒的。在世界的眼里，伟大意味着权力。但在上帝的国里，伟大意味着服事。这改变了一切。
 
 
 ---

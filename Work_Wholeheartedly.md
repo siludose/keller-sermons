@@ -26,7 +26,7 @@ Welcome to Gospel and Life.  If you have a job, it's likely that you think about
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。我们应该全力地工作。无论我们做什么，我们应该尽力。我们应该为上帝工作。这改变了我们对工作的看法。
 
 
 ---

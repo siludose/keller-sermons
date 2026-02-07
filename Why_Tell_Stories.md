@@ -26,7 +26,7 @@ Welcome to Gospel and Life. Are you struggling to find meaning and purpose in yo
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。为什么讲故事？故事很有力。故事改变我们的思维。故事改变我们的心。耶稣用故事教导。
 
 
 ---

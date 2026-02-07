@@ -26,7 +26,7 @@ Welcome to Gospel and Life.  Who is the Holy Spirit?  And why is the Spirit's wo
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。圣灵是谁？圣灵是上帝。圣灵是活的。圣灵与我们同在。圣灵在我们身上工作，改变和赋予我们权力。
 
 
 ---

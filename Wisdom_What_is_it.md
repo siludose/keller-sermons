@@ -26,7 +26,7 @@ Welcome to the Gospel Unliked Podcast.  Many of the questions we face in life ar
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。什么是智慧？智慧是知道什么是对的并做它。智慧是来自上帝。智慧比知识更有价值。
 
 
 ---

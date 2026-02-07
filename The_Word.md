@@ -26,7 +26,7 @@ Welcome to Gospel in Life.  Today, Tim Keller is looking at a passage from the o
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。上帝的话是什么？上帝的话是他的启示。圣经是上帝的话。耶稣是上帝的话。当我们听上帝的话时，我们听上帝。
 
 
 ---

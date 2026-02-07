@@ -26,7 +26,7 @@ Welcome to Gospel and Life.  This month on the podcast, we are featuring a serie
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。宝藏和金钱有什么区别？金钱是暂时的。宝藏是永恒的。当我们追求属灵的宝藏时，我们找到真正的财富。
 
 
 ---

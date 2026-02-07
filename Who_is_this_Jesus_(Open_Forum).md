@@ -26,7 +26,7 @@ Welcome to Gospel in Life. How comfortable are you when it comes to being open a
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。耶稣是谁？这是最重要的问题。在这个开放论坛中，蒂姆·凯勒回答了关于耶稣身份的问题。
 
 
 ---

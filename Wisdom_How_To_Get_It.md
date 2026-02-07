@@ -26,7 +26,7 @@ Welcome to the Gospel Unliked Podcast.  Many of the questions we face in life ar
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。我们如何获得智慧？智慧来自上帝。我们通过祈祷、阅读圣经和寻求他人的建议来获得智慧。
 
 
 ---
