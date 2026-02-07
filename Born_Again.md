@@ -908,3 +908,10 @@ C.S.刘易斯在他一本书的结尾这样写道：
 ---
 
 *2016 年，提姆·凯勒在救赎主长老会（Redeemer Presbyterian Church）录制的讲道*
+
+---
+
+## Scripture References / 经文引用
+
+- 约翰 1:12
+

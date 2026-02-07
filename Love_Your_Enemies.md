@@ -125,3 +125,11 @@ Let me conclude with this interesting story. True story. Years ago, the Tsar of 
 > "If you are a Christian, you will forgive because you will say in your heart, I was an enemy too."
 >
 > 如果你是基督徒，你会原谅，因为你会在心中说，我也是个敌人。
+
+---
+
+## Scripture References / 经文引用
+
+- 马太福音 5:21
+- 马太福音 5:38
+

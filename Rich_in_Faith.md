@@ -571,3 +571,10 @@ Last thing. Real faith is radically practical. And this is the way I can encoura
 > "I am not loved because I'm good. I will be good because I'm loved."
 >
 > 我不是因为我好而被爱。我会因为被爱而变好。
+
+---
+
+## Scripture References / 经文引用
+
+- 雅各书 2:1
+

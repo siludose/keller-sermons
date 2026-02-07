@@ -139,3 +139,10 @@ Our pleasure and our duty, though opposite before, since we have seen his beauty
 > "Jesus Christ was the ultimate covenant keeper so that we covenant breakers can now obey the law out of love and gratitude."
 >
 > 耶稣基督是终极的盟约守护者，因此我们这些盟约破坏者现在可以出于爱和感恩来遵守律法。
+
+---
+
+## Scripture References / 经文引用
+
+- 雅各书 2:10
+
