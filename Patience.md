@@ -26,7 +26,7 @@ Welcome to Gospel in Life. Many of us try to change through sheer willpower, con
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。什么是忍耐？忍耐是在困难中坚持。忍耐是不放弃。忍耐是相信上帝。当我们有耐心时，我们显示我们信任上帝。
 
 
 ---

@@ -26,7 +26,7 @@ Welcome to Gospel in Life.  Are you longing to see real change in your life, in 
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。什么是通过喜乐的自我否定？这是当我们放弃我们对属世东西的渴望，因为我们在基督里找到更大的喜乐。当我们拥抱基督时，虚假的欢乐失去其吸引力。
 
 
 ---

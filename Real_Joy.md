@@ -26,7 +26,7 @@ Welcome to Gospel in Life. The Bible says there's a world of difference between 
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。什么是真正的喜乐？真正的喜乐不来自物质。真正的喜乐来自与上帝的关系。真正的喜乐是持久的。真正的喜乐改变一切。
 
 
 ---

@@ -26,7 +26,7 @@ Welcome to Gospel in Life. The Bible says there's a world of difference between 
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。什么是自制？自制是能够控制我们的欲望和冲动。自制是圣灵的果子。当我们有自制时，我们做更好的选择。
 
 
 ---

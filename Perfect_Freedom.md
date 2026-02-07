@@ -26,7 +26,7 @@ Welcome to Gospel in Life.  Are you longing to see real change in your life, in 
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。完全的自由来自哪里？完全的自由来自基督。不是自由做我们想做的。而是自由成为我们被创造的。基督释放我们。
 
 
 ---

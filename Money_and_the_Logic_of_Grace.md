@@ -26,7 +26,7 @@ Welcome to Gospel in Life.  Why does the Bible talk about money so much?  How we
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。金钱与恩典的逻辑如何连接？恩典不是基于我们做的或我们拥有的。恩典是礼物。金钱是工具。当我们正确使用金钱时，我们显示上帝的恩典。
 
 
 ---

@@ -26,7 +26,7 @@ Welcome to Gospel in Life. You don't have to look far to see that something's de
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。欲望（色欲）是什么？欲望是过度的性欲望。欲望使我们成为奴隶。但约瑟的故事告诉我们如何抵抗诱惑。约瑟选择了诚实。他选择了尊重。他被上帝祝福。
 
 
 ---

@@ -26,7 +26,7 @@ Welcome to Gospel in Life.  Are you longing to see real change in your life, in 
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。分裂的自我是什么？这是当我们在不同情况下表现出不同时。这是虚伪。基督呼召我们整合和诚实。
 
 
 ---

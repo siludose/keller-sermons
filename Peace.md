@@ -26,7 +26,7 @@ Welcome to Gospel in life. The Bible tells us there's a difference between outwa
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。什么是真正的和平？和平不仅仅是没有冲突。真正的和平是与上帝建立正确的关系。当我们与上帝和平时，我们获得内在的平静。
 
 
 ---

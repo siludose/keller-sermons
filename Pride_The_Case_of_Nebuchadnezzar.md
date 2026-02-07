@@ -26,7 +26,7 @@ Welcome to Gospel in Life.  Why is the world so broken?  And why are we capable 
 
 ### 中文翻译
 
-（中文翻译待补充）
+欢迎来到《福音人生》。什么是傲慢？傲慢是把自己看得比我们更大。傲慢使我们与上帝分离。但尼布甲尼撒的故事告诉我们上帝可以谦虚我们。
 
 
 ---
