@@ -1,0 +1,28 @@
+{
+  "backends": [
+    {
+      "name": "ollama",
+      "type": "openai-compatible",
+      "base_url": "http://localhost:11434/v1",
+      "model": "qwen2.5:7b-instruct-q8_0",
+      "enabled": true,
+      "priority": 1
+    },
+    {
+      "name": "claude",
+      "type": "anthropic",
+      "model": "claude-opus-4-6",
+      "enabled": true,
+      "priority": 2,
+      "env_var": "ANTHROPIC_API_KEY"
+    }
+  ],
+  "translation_settings": {
+    "chunk_size": 2200,
+    "preserve_formatting": true,
+    "max_input_chars": 3000,
+    "max_output_tokens": 4000,
+    "temperature": 0.3,
+    "system_prompt": "You are a professional translator specializing in religious texts. Translate to Simplified Chinese. Output only the translation, preserving markdown formatting and Bible book names in English."
+  }
+}
