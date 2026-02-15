@@ -1,0 +1,527 @@
+# Splitness / Splitness
+
+## Chinese Translation / 中文翻译 / English Transcript
+
+Welcome to Gospel in Life. Are you longing to see real change in your life, in your habits, your relationships, your heart? Today, Tim Keller explores how lasting change actually happens in the life of a Christian and why the Gospel offers a radically different process of transformation than anything else.
+
+Today, Scripture reading is on page 9 in your bulletin and it comes from Romans 7 verses 1 through 9 and then 18 through 25. Or do you not know, brothers, for I am speaking to those who know the law, that the law is binding on a person only as long as he lives? Thus a married woman is bound by law to her husband while he lives, but if her husband dies, she is released from the law of marriage.
+
+Accordingly, she will be called adulterous if she lives with another man while her husband is alive. But if her husband dies, she is free from that law and if she marries another man, she is not an adulteress. Likewise, my brothers, you also have died to the law through the body of Christ so that you may belong to another, to him who has been raised from the dead in order that we may bear fruit for God.
+
+For while we were living in the flesh, our sinful passions aroused by the law were at work in our members to bear fruit for death. But now we are released from the law, having died to that which held us captive so that we serve not under the old written code but in the new life of the Spirit. But then shall we say that the law is sinned by no means, yet if it had not been for the law, I would not have known sin.
+
+I would not have known what it is to covet if the law had not said, you shall not covet. But sinned, seizing an opportunity through the commandment, produced in me all kinds of covetousness. Apart from the law, sin lies dead.
+
+I was once alive apart from the law, but when the commandment came, sin came alive and I died. For I know that nothing good dwells in me, that is in my flesh. For I have the desire to do it is right, but not the ability to carry it out.
+
+For I do not do the good I want, but the evil I do not want is what I keep on doing. Now, if I do what I do not want, it is no longer I who do it, but sinned that dwells within me. So I find it to be a law that when I want to do right, evil lies close at hand.
+
+For I delight in the law of God in my inner being. But I see in my members another law waging more against the law of my mind and making me captive to the law of sin that dwells in my members, wretched man that I am, who will deliver me from the body of death. Thanks be to God through Jesus Christ, our Lord.
+
+This is God's Word. He said last week that when I first became a Christian, there were some things in my life that profoundly needed changing, but they weren't changing. And then I read two authors, John Owen and John Stott, and in their books, they, as it were, led me to Romans 6, 7 and 8.
+
+And when I began to grasp what was taught there, that's when change, real change, began in my own life. And so I want to take you there for this brief series on Romans 6, 7 and 8, and ask the question, how does change really happen in somebody's life? How does Christ, how does faith in Christ very concretely and practically lead to change?
+
+Last week we looked at Romans 6 as a whole, and we saw some principles. This we look at Romans 7 as a whole, in which we have in very starkly, shockingly realistic terms, a depiction of the human heart, what we really have here. And then when we get to Romans 8, Romans 6 as the principles, Romans 7 as the heart that the principles have to be applied to, and Romans 8 will take two or three weeks looking at the more practical aspects of how do you apply the principles to the heart so as to bring about change.
+
+Now tonight I'm going to move from the beginning, the end of the beginning, we're going to look at the last part of the passage, the middle part of the passage, and then the first part of the passage. And when we look at Romans 7 like that, I think we'll learn three things. What our biggest problem is, what won't work against it, and what will.
+
+What our biggest problem is, what will not address or solve that problem, and what will. Number one, what's our biggest problem? And Paul very classically puts it in verse 18 and 19, when he says, I have the desire to do what is right, but not the ability to carry it out.
+
+There it is. I can aspire and envision the right, but I don't find in myself the power to actually execute and do it. Why?
+
+The answer is what we'll call here, the deep splitness of the human heart, the splitness because in verse 20 he says, now if I do what I do not want, it is no longer I who do it, but sin that dwells within me. He says, there's me, and then there's something in me, and he says, it's sin. In fact, notice a minute in verse 19, he talks about evil.
+
+There's evil and sin residing in him, residing in us. Then notice that word dwell, very, very important. Evil and sin is not something that just acts upon us from the outside, nor is it something that comes into us temporarily and camps out, and if you know what you're doing, you can shoot it away.
+
+It is at home in us. It dwells in us. It resides in us.
+
+It's deeply rooted in us, and as a result, there's this deep splitness about us of good and evil. Now the classic depiction of this in literature is Robert Louis Stevenson's book, The Strange Case of Dr. Jekyll and Mr.
+
+Hyde. Now have you ever really read the book? I bet you haven't, because what we do is we see movies and plays, and I like to work off the book.
+
+It's not very long. It's like 80 pages. It's a pretty short book, but a fascinating book, and you know basically the narrative.
+
+Dr. Jekyll came to realize that he was, what he called, quote, unquote, an incongruous compound of good and evil, of conscience and coveting. And he felt that because of this, his bad nature held his good nature back, and so he could aspire to do things, but he could never follow through on them, just like Romans 7.
+
+But he comes up with an idea, a potion. He's going to concoct the potion that will separate the two natures out from each other. And he intends to drink the potion at night to let his bad side out.
+
+But during the day when he's doing his work, he'll be his good self, and his good self will now be unencumbered. That will be free from the influence of the evil, and will be able to realize all of its goals. Nice theory.
+
+But when he takes the potion, and his bad nature side comes out to his shock, he's far more evil than he ever dared believe he was. That's the problem. And he says in the narrative in the book, he says, I knew myself at the first breath of this new life, to be more wicked, tenfold more wicked than I had thought, and the thought braced and delighted me like wine.
+
+This being Edward Hyde was inherently maligned. His every act and thought centered on self. His every act and thought centered on the self.
+
+Why is his bad side named Edward Hyde, you know why? Because of all because he was hideous. It's the hideousness, but also because he was hidden.
+
+He was hidden even from Dr. Jekyll, had no idea he was this evil. And so when Edward Hyde hears how the narrative goes on, Edward Hyde comes out, he's far more evil than Dr.
+
+Jekyll ever thought he would be. And he starts doing terrible things, including murder. And finally, we'll get back to this in a second.
+
+Dr. Jekyll says, I'm going to try to stop it then, I'm going to try to repress this evil side, but Edward Hyde more and more gets the upper hand and more and more is in control. And when Dr.
+
+Jekyll realizes he's about to lose complete control and not even become Dr. Jekyll anymore, but permanently become Edward Hyde, he kills himself. Very, very disturbing narrative.
+
+But right out of Roman 7, because Roman 7 is saying, and what Robert Lewis Stevenson is saying are the same thing. And that is number one, even the best people, even the most brilliant and decent Dr. Jekyll or Apostle Paul's, even the best people have at the core of their being, a hideousness, an evil, a capacity for incredible self-centeredness, because notice Robert Lewis Stevenson actually in a very biblical way defines what was so hideous about Hyde, absolute centering of every thought on the self.
+
+And it's that self-absorption and that self-centeredness and it's me, me and my needs and my interests and my desires, that incredible ability to center on the self is what leads to the evil. So even in the very best people, there's a core of evil, a capacity for doing terrible things way beyond what you believe it to be. Far greater, far worse than you ever imagined.
+
+It's hidden from you. But sometimes there are certain situations that act as a potion, stress, temptation, marriage to a difficult person. And the real wickedness, the real capacity for evil, that incredible hideousness, that enormous, almost endless capacity for self-centeredness, self-absorption, self-will, self-indulgence comes out and then you're dead.
+
+Do you believe this, that the very best person is capable of such awfulness and that you almost certainly, no matter what we're being taught here, is your assessment of your own capacity for evil and sin is way too small. Way too small. Sufjan Stevens is an indie rock artist, some of you know, has a song called John Wayne Gacy.
+
+It's a song about a serial killer. John Wayne Gacy who killed 30 people and hid them under the floorboards of his house. And Sufjan sings about this serial killer and the last two lines of the song are absolutely astounding.
+
+In fact, even the village voice was blown away by the music critic there because at the very, very end he's singing about this serial killer, how awful, what a terrible person, incredible serial killer and the very last lines go like this. But in my best behavior, I am really just like him. Look beneath the floorboards for the secrets I have hid.
+
+He says, look beneath the floorboards of my life and you will see the capacity to do terrible things. Do you believe that? Do you really, do you believe what Stevenson's saying, Sufjan Stevens is saying, Robert Louis Stevenson, what Paul is saying, that in you you've got a capacity for hideousness and selfishness and evil way beyond what you really think you're capable of.
+
+But at some point you might find some situation, bring it out and then you're dead. So if that's the case and it's important to understand and that is the case, what do we do about it? Point two, the main solution that most people try to bring to bear on it, Paul says doesn't work.
+
+What is that? It has to do with the moral law. Now when we see in here Paul talking about turning to the law and turning to the moral law, he's thinking of the mosaic law, he's a Jew, he's thinking about the ten commandments in the mosaic law.
+
+But what he says here really holds true across all the cultures. At the very end of C. S.
+
+Lewis's book, The Abolition of Man, he has an appendix which is incredibly valuable and in that appendix he compares the moral law of Confucianism and Hinduism and Buddhism and Islam and Christianity and Judaism. And he shows a remarkable convergence, a remarkable consensus about what the basic requirements that God has of us, what the basic requirements are of a moral life. And the moral law, therefore we do understand, we do know what it is.
+
+And across all of the cultures and across all of the religions, what most people do about the fact that we have a bad nature is we take the moral law and with an enormous exercise of willpower, we apply that moral law to our bad nature. In other words, we try to wipe out our hide with our jekyll. We try to deal with our Edward hide by just being incredibly jekyll, incredibly good, incredibly obedient.
+
+We form moral communities in which we read the moral law and every week and we applaud it and we obey it and we instruct our children in it and we say by applying the moral law of God to people's lives, that is how we're going to overcome our hideousness, that selfishness, that pride, that self-centeredness that destroys people, that's how we're going to overcome it. And Paul says, it won't work. In fact, Paul says in verse 5 something absolutely amazing.
+
+Look at verse 5. He says, while we were in the flesh, our sinful passions aroused by the law were at work in our members to bear fruit for death. Aroused by the law, our sinful passions aroused by the law.
+
+Paul says the law has a greenhouse effect on what's wrong with us. It doesn't shrivel it, it aggravates it, it prospers it, it grows it. You say what?
+
+Now how could that be? He's saying that applying the law of God through willpower, just insisting and bringing the law of God to bear on somebody's life and saying, this is what you have to do. This is what you have to do.
+
+This is what you have to do. It doesn't make you a better person. It makes you worse.
+
+It brings out. It aggravates what's wrong with you. How could that be?
+
+Well at one level, nobody talks about this better than St. Augustin, by the way, St. Augustin in his famous book The Confessions reflects on an incident in his youth.
+
+In his youth at one point, he broke into a private orchard and stole some pears off a tree that weren't his, of course. And later on, he reflected theologically and profoundly actually on that incident. And he thought back on it and he said, why did I steal the pears?
+
+A, I wasn't hungry. B, if I was hungry, I didn't like pears. After he stole the pears, he threw them the pigs.
+
+He didn't even like pears, but he went and stole the pears. And he said, why did I steal the pears? I didn't even like pears.
+
+And the answer is, I stole the pears because somebody told me that they were forbidden. In other words, someone says thou shalt not take those pears. And he says until someone said thou shalt not, I had no interest in the pears.
+
+But once they said, don't take those pears, I wanted them. There is something about the heart. Deep inside the heart, there's an aspect of our hideousness, of our self-centeredness, of that self-absorption that says nobody tells me how to live.
+
+Now there's a lot of people that that is right on the surface of your life because there's a lot of people who walk around talking like that all the time. Nobody tells me how to live my life, you see. But the rest of us, a lot of us, oh, we don't say like, we're very nice, but deep inside us, deep inside you, Mr.
+
+Ms. Jekylls, is a part of our heart that absolutely hates being told how to live. That's part of what's wrong with us.
+
+And when you bring the moral law to bear on a child or bring the moral law to bear on people, bring the moral law to bear on people, instead of it shriveling up that aspect of our beings, it actually aggravates it and people do things because they're forbidden. But there's more to it than that. How does the law act as a greenhouse on what's wrong with us?
+
+Paul actually says in verses 8 and 9, or Paul actually gives us a little autobiographical sketch of how he moved from being a legalistic Pharisee into being a Christian. And it's not an easy sketch to grasp, it's very, very sketchy. Well, he says, I was alive apart from the law, but then one of the 10 commandments that I'll show it not covet came home and slew me.
+
+The Psalms can profoundly shape the way you approach God, even Jesus relied on the Psalms to face every situation, including death. In Tim and Kathy Keller's 365 day devotional, the songs of Jesus, you'll find daily readings through the Psalms with fresh biblical insight. If you don't have a regular devotional practice, this book is a wonderful way to start.
+
+And if you already spend time and study and prayer, then reading and praying through the Psalms can help you bring your deepest emotions and questions before God and discover a new level of intimacy with him. We'll send you Tim and Kathy Keller's devotional as our thanks for your gift to help Gospel and Life share the love of Jesus with more people. That's your copy today at gospelandlife.com slash give.
+
+That's gospelandlife.com slash give. Now here's Dr. Keller with the rest of today's teaching.
+
+What's that mean? Now, here's what I think it means. Paul was saying, I was alive.
+
+Now what does that mean? I was spiritually alive. What does it mean?
+
+Well, you know, we talk about a team is still alive if it's in the running for the pennant. You know? And what Paul was saying is, when he looked at his life, he was a Pharisee.
+
+He was a pretty good person and he felt like I'm in the running. I'm alive, spiritually alive. I'm a pretty good person.
+
+I've got a real chance to be saved. I've got a real chance to get to heaven. I've got a real chance for God's blessing.
+
+I'm really good. And the reason he felt alive and like a good person was because he tended to look at the law of God the way most of us do. And that is he read the Ted Kim Amman's in terms of external behavior only.
+
+So he would go down the list and he could tick it off. He said, OK, I don't bow down to any statues. OK, that's good.
+
+I call my mother and father once a week from New York City. And so I'm honoring my parents, OK? And I'm not committing adultery and I'm not stealing.
+
+And I don't kill anybody. At least I haven't killed anybody really important. You know, it's Paul out.
+
+I killed a few Christians, but they had it coming. And so he goes down. He was alive.
+
+He said, hey, you know, as long as he was looking at the law in terms of external behavior, he said, hey, I'm OK. But then the 10th Kim Amman. And the problem with the 10th Kim Amman is there's no way to read it in terms of behavior.
+
+It's about motives. It's about your heart. It's about your intentions.
+
+Thou shalt not covet. You know what the opposite of coveting is, contentment. And he realized it was saying that if you really love God, if you really were resting in God, if you really had God, then the commandment is Thou shalt love God enough to be content.
+
+But when he looked inside his heart, he saw all kinds of coveting. He saw all kinds of stuff. He saw anger because he was killing people who didn't agree with him.
+
+You know, he was persecuting the church. He saw fury and self-righteousness and envy and comparing himself to other people. He saw the inside.
+
+He was a mess. And he says, it slum me. And you know what that means?
+
+I realized I was spiritually dead as the lawless people that underneath all my morality and underneath all my goodness. I realized that the law was actually creating something inside. It was creating all of this insecurity, creating all of this problem, creating all this anger, creating all this envy.
+
+What is he talking about? Why would he say, I'm just as lost, I'm just as dead spiritually as the immoral people out there. Robert Lewis Stevenson in Jekyll Hyde has a fascinating passage.
+
+When I read it, I was blown away by it. And I realized it never comes out in any of the kind of horror, you know, films and plays and things based on the story. When Dr.
+
+Jekyll realized that Edward Hyde was killing people, he made a resolution. What first of all, he said, no more potion, okay? I'm not taking that again.
+
+I'm never going to take the potion because that's how he became Edward Hyde. So I'm not taking the potion. And secondly, I'm going to live such a good life.
+
+I'm going to be more good, more moral, more generous, more kind, more upright than I've ever been, than anyone's ever been. And I'm going to with an act of my will, I'm going to obey the moral law and I'm going to actually squeeze out and repress Edward Hyde so he never shows up again. And he does a very good job, but we're told this, here's the passage.
+
+He says, I resolved in my future conduct to redeem the past. And my resolve was fruitful. You know how earnestly in the last few months of this last year, I labored to relieve suffering.
+
+You know how I lived. You know how much was done for other people. But on one fine, clear January day, I was sitting in the sun in Regent's Park.
+
+And I reflected in smiled, comparing myself with other men, comparing my act of good will with the lazy cruelty of their neglect of their fellow man. And at the very moment of that vain, glorious thought, a qualm came over me. A horrid nausea and dreadful shuttering.
+
+And I looked down and I was once more Edward Hyde without the potion. And see, this is the turning point. This is the beginning of the end because when he became Edward Hyde without the potion, he knew he was cooked.
+
+But why would he have become Edward Hyde without the potion? And the answer is not in spite of his goodness, but because of his goodness. Did you hear what he said?
+
+You hear what the passage said? It was as he was thinking about how much better he was than everyone else. As he was thinking about how other people are cool, other people are living selfish lives.
+
+And I'm not. I'm living a very good life. I'm caring about everybody at that moment he became Edward Hyde without the potion.
+
+Why? He became Edward Hyde through his goodness, not in spite of his goodness. Why?
+
+Because there's two ways to be self-centered, you know. One is by being very bad and breaking all the rules, but the other is by being very good and becoming a self-righteous Pharisee. There's two ways to be your own Savior and Lord rather than God and trample on other people.
+
+One is by saying, I'm going to live my own life, nobody tells me how to live my life. I'm going to break all the moral laws of I once, so that's being your own God, right? But see, if you say I'm going to be so good that God's going to have to bless me and take me to heaven, you're being your own Savior, right?
+
+You're not letting God be your Savior. And even though there's all kinds of moral behavior in your life, inside you are filled with self-righteousness and cruelty and bigotry and you're miserable because you're always comparing yourself to other people and you never are sure you're good enough. See?
+
+And what does that mean? It means that you can't deal with your hideousness, you can't deal with that self-centeredness, you can't deal with that self-absorption by trying to be a good person and by just bringing the moral law to bear so that you can say, now I'm going to be a really, really good person that can just make you worse. You don't deal with your hideousness with an act of the will, you need a complete transformation of the very motives of your heart or you're dead.
+
+So that's our problem and that's what will not solve our problem, but what will? Not just application of the will to the moral law, not just application of the moral law to your heart through an act of the will, what will, what will really solve it. And the answer is up in verses 1 to 7.
+
+The very beginning of this passage is kind of weird when you first read through it. Did you notice that? You really couldn't figure out what was going on in the beginning and then his time went on, you sort of figured it out.
+
+That first part is very weird and here's why. Paul is dealing with a question. He actually poses it in verse 7.
+
+He says, okay then, considering all that we've been talking about, that the law doesn't really sanctify us, the law doesn't really make us any better, the law if anything is a greenhouse effect on what's wrong with us. And he says, what then shall we say, that the law is bad, that the law is sin? Shall we just throw the law and say, oh, when you're a Christian, you don't have to listen to the law.
+
+Is that what he's saying? No. He says, by no means.
+
+He says, if it wasn't for the law, I wouldn't know what's wrong with me. I wouldn't know how I should live. And so every indication in verse 7 is as a Christian, you should follow the law.
+
+You do need to obey it. You do need to let it sift through you and guide you as to how you should live your life. You do.
+
+Well, then what is he saying? We shouldn't do. And that is, he's saying in verses 1 to 4, especially, we should obey the law, we should follow the law, but we mustn't be married to the law.
+
+Married to the law. Now, you miss that unless you read, rather carefully, and the metaphor is a little bit odd. In verse 1, 2, and 3, he's talking about a woman who's married.
+
+And he's saying, well, you know, if you're married, and there's a death, if you're married and one of the spouses dies, you're free to re-marry. Marriage is binding, he says, and you just can't go off and do anything you want. But if there's a death, see, if one spouse dies, then the other spouse is free to re-marry.
+
+That's what he's saying in verses 1 and 2 and 3. Then he suddenly shows what the metaphor is all about. In verse 4, he says, so you must die to the law to belong to another.
+
+And then what he means by that is, up to this point, we're married to the law. We're in the arms of the law. What in the world would that mean?
+
+Why would he talk about being married spiritually speaking to the law of God? What does it mean to be married to the law of God? Well, marriage, think about it.
+
+When you first become married, not only does your entire life revolve around your spouse but so does your self-image and self-program. I mean, here's what I mean by that. Your self-appreciation, your self-regard, your self-understanding, is massively reprogrammed by your spouse.
+
+Your self-image is the product of what everybody says about you. Your parents have said things about you. Your siblings have said things about you.
+
+Your friends, your parents, your teachers, your coaches. People have been saying things about you all your life. And they say you're good.
+
+They say you're bad. And you know, you call out of that a feeling of who you are, what you're good at, what you're bad at. But when you get married, because of the power of the relationship of marriage, you can look into the face of your spouse.
+
+And your spouse can overturn what everybody's saying about you. In the face of your spouse, you can have your entire self-image reprogrammed. In other words, if everybody calls you ugly, but your spouse looks at you and says, you're beautiful.
+
+You feel beautiful. Your spouse has that kind of power to massively reprogram your self-understanding, your self-image, your self-worth. What does it mean to be married to the law?
+
+It's not just you follow the law to please God. That's fine. You have to do that, or you follow the law in order to serve your neighbor.
+
+That's fine. You have to do that. To be married to the law means you're getting you very self from your performance.
+
+You're looking into the face of the law. And you're saying, because I'm good, because I'm obedient, because I'm moral, because I'm religious, because I read the Bible, because I pray because I do all these good things. Now I know I'm a good person.
+
+That proof, you're trying to prove yourself to God or to other people or to yourself by your moral performance. And if that's the case, you're married to the law. And verse 6 goes beyond that and says, you're a captive to the law.
+
+You're a slave to the law. You know why? Because the dominant motive in your life is fear.
+
+You may be incredibly good. You may be incredibly moral, but the dominant motive, the dominant motivational structure of the hardest fear. So for example, if you're married to the law and you're a very good person, you tell the truth.
+
+Do you not? You tell the truth. You don't lie.
+
+Why do you tell the truth? Because you're scared. You tell the truth because your scared God will get you, but he'll condemn you.
+
+He'll send you to hell. You're maybe went to Harvard Law School and you took an ethics course and you're scared because it'll ruin your profits. But see, everybody in this culture, everybody in this culture, whether it's inside the church or outside the church, gets you to be good through fear.
+
+You don't want to be like those awful people. You don't want people to find out. You don't want to be caught.
+
+You don't want God to punish you. Fear, fear, fear. And you know what?
+
+If you are, therefore, trying to, in a sense, earn your salvation, earn your self-image through your performance, you're driven. Inside, you're always comparing yourself to other people. You're crushed by criticism.
+
+You're furious and condescending toward people who don't have your beliefs. You can't handle failure. And if you try to deal with your fear and fear is basically self-absorption.
+
+You know what fear is? Fear is thinking of yourself. What about me?
+
+What about me? What about me? How am I doing?
+
+How am I looking? How are people treating me? Fear is incredibly self-absorbed.
+
+And you cannot deal, therefore, with self-absorption and fear by saying I'm going to be really good, and then God will have to bless me and people will really see that I'm a good person. It just makes it worse. A wretched people that we are, who will deliver us from this body of death.
+
+Thanks be. Verse 4 says, You can die to the law that you belong to another. Who?
+
+You need to become the spiritual spouses. You need to have someone else's love. You need to have someone else's face that you're looking into in order to find out who you are.
+
+You die, according to verse 4, to the law and you belong to another through the body of Jesus Christ, through the death of Jesus Christ on the cross. See, at the end of Jekyll Hyde, Jekyll kills himself, you know why? Because justice is at the door.
+
+Edward Hyde had murdered people. But he was never having to pay for his sins because the police couldn't find him because he kept becoming Dr. Jekyll.
+
+But when Jekyll realized that he was becoming Hyde permanently, he realized that he was going to be caught by the police. He was going to have to pay for his sins. Judgment day was at hand, so he killed himself anyway.
+
+And it's quite a metaphor, is it not? For judgment? No matter how hard you hide, no matter how often you put it off, eventually your sins will find you out.
+
+There will be a judgment day. Your hideousness will be revealed. And there's nothing you can do to stop it.
+
+Judgment day will come. Well, wait a minute. There is something.
+
+Isaiah 52 and 53 talk about Jesus Christ, the suffering servant who comes to save us and this is what it says about him. They were appalled at him. His appearance was disfigured beyond that of a man and his form marred beyond human likeness.
+
+He had no beauty or majesty to attract us to him. Nothing in his appearance that we should desire him. He was despised and rejected by men, like one from whom men hide their faces.
+
+He was despised and we esteemed him not. But he was pierced for our transgressions. He was crushed for our iniquities.
+
+The punishment that brought us peace was upon him and by his wounds we are healed. Did you hear this? We were appalled at him.
+
+He was so hideous, we couldn't look upon him. We turned our faces from him. What does it mean when 2 Corinthians 5.21 said, God made him sin, who knew no sin that we might become the righteousness of God and him?
+
+God made him sin, treated him as pure evil. Jesus Christ became the hideous one. And he took our judgment day.
+
+And he died for us while we were hideous. Ephesians 5. Husbands love your wives as Christ loved us and gave himself for us, that he could present us to himself pure, beautiful, without spot or blemish.
+
+The only thing that is going to silence that self-centeredness, that fear at the center of your life, that black hole that's making your life miserable and everybody else's, that says, oh my gosh, oh my gosh, oh my gosh, me, me, me, me. I've got to have this, I've got to do that. You know, there's a moral version of that.
+
+I'm afraid that God's going to get me, so I better be good. And there's an immoral version of that. I'm afraid that God's going to oppress me, so I got to live the way I want to live.
+
+But only Jesus Christ, as your new heavenly spouse, who has given himself for you unconditionally, when you were hideous to make you beautiful, only Jesus Christ looking at you in the face and saying, I love you, I love you unconditionally. I love you, only that. If you look into his face and see that, only that will destroy, eventually, the fear in the heart of your being that is just driving you into the ground.
+
+That fear, I've got to do this, I've got to do that. Jesus Christ says, I've got a new motive for you. Gratitude, security, and love.
+
+Tell the truth to resemble me and to please me and to delight me and to become like me. Out of gratitude, not because it could be condemned, because now there is no condemnation for those who enjoy Christ Jesus because of what he did. Tell the truth, give your money to the poor, out of love, out of joy, out of gratitude.
+
+That's the only motivation that won't drive you into the ground. Let the spousal love of Jesus Christ completely reconfigure the motivational structures of your heart. Lay your deadly doing down at Jesus' feet, stand in Him and Him alone.
+
+Gloriously complete. Let us pray. Thank you, Father, for giving us this very dark message.
+
+It's a dark chapter, but it ends on a note of joy. Oh, wretched man that I am, who shall deliver me from this body of death? Thanks be to Jesus Christ through Him.
+
+We die to our old spouse, the law, and die to the fear because of your reassurance. And we look into the face of our new heavenly spouse, and we hear Him say, I love you. And I died for you.
+
+And now there's no condemnation for those who are in Christ Jesus. And we ask that you would help us apply this to our own lives through your Holy Spirit. We ask it in Jesus' name, amen.
+
+Thanks for listening to today's teaching. It's our prayer that you were encouraged by it and that it helps you apply the gospel to your life and to share it with others. For more biblical resources from Tim Keller, visit gospelonlife.com.
+
+There, you can subscribe to the Life in the Gospel Quarterly Journal. When you do, you will also receive free articles, sermons, devotionals, and other great gospel-centered resources. Again, it's all at gospelonlife.com.
+
+You can also stay connected with us on Facebook, Instagram, YouTube, and X. Today's sermon was recorded in 2006. The sermons and talks you hear on the Gospelon Life Podcast were recorded between 1989 and 2017, while Dr.
+
+---
+
+欢迎来到《生命中的福音》。你是否渴望在自己的生活、习惯、关系和心灵中看到**真正的改变？今天，提姆·基勒将探讨基督徒生活中持久改变是**如何发生的，以及为什么福音提供了与任何其他方式截然不同的转化过程。今天的圣经阅读内容在传单的第9页，来自罗马书7章1至9节及18至25节。
+
+或者你不知道吗，弟兄们？我是在对那些熟悉律法的人说——律法只对活着的人有效。因此，在丈夫活着的时候，已婚妇女受婚姻法律约束；但若丈夫去世，她就不再受婚姻法律的约束。如果在丈夫还活着的情况下与他人同居，她会被视为通奸。
+
+但如果丈夫去世了，她就摆脱了婚姻法律的束缚，并且如果她再嫁给另一人，则不算是通奸。同样地，我的弟兄们，你们也因基督的身体而死于律法之下，好叫你们归属于另一个人——已经从死里复活的基督，为的是要结出果子给神。因为在我们还活着的时候，罪在律法的刺激下，在我们的肉体中活动，产生死亡的结果。但如今，我们在基督里已得释放，不再受那约束我们的律法辖制；而是服事新的生命——圣灵的生命。
+
+然而，那时我们会说：律法并没有使人犯罪，然而若没有律法，我就不会知道罪是什么。如果没有律法，我不至于想要贪恋什么。但律法既然吩咐不可贪恋，罪就趁着机会，在我里面发动，并且因着律法而生出各种贪欲来。若没有律法，罪就是死的。
+
+我在律法以外是活的；但是律法一来到，罪就在我的肉体中活跃起来，使我死了。因为我深知在肉身里没有良善——因为我想行善的事，便不作；我所不愿做的，那倒作了。我没有能力做到我想要做的事，反而做了我不愿意做的事。因为我所做的不是我所想要的，而是我不愿意做的恶却一直在做。
+
+现在，如果我做了我不愿意做的事，那并不是我自己在做，而是罪在我里面住着。所以我发现一条定律：当我想要行善时，邪恶就近在眼前。我在内心深处喜爱神的律法。但我也看到，在我的肢体中另有一条律法与我的心意相争，并使我成为罪的奴仆，真是苦啊！
+
+感谢神，藉着耶稣基督我们的主，使我们得释放。这是神的话语。上周他说，当我第一次成为基督徒时，生活中有一些事情需要彻底改变，但它们并没有改变。然后我读了约翰·欧文和约翰·斯托特两位作者的作品，在他们的书中，他们引导我阅读罗马书6、7和8章。
+
+当开始理解这些教导时，**真正的改变就在我的生命中开始了。因此，我想带你们进入这三章经文，提出一个问题：真正的生活改变是**如何发生的？基督的信仰如何具体而实际地带来这种改变？上周我们整体研读了罗马书6，从中看到了一些原则。
+
+今天我们将整体研读罗马书7，在这里我们以非常直接、令人震惊的方式，看到人类内心的真实描绘——这就是我们所拥有的真实状况。然后当我们进入罗马书8时，罗马书6是这些原则，罗马书7是需要应用这些原则的心灵，而罗马书8将用两到三周的时间探讨如何具体应用这些原则来改变心灵。今晚我们将从经文的开头开始，看中间部分，再回到结尾。当这样研读罗马书7时，我认为我们可以学到三点：我们最大的问题是什么，什么不能解决问题，以及什么可以解决。
+
+我们最大的问题是什么，什么不能解决这个问题，又有什么可以解决。首先，我们的最大问题是啥？保罗在第18和19节中非常经典地描述了这一点：“我愿意行善，却不能。”这里就是答案：我能憧憬正确的事，但找不到内在的力量去执行它。
+
+为什么呢？答案是人内心深处的分裂，这种分裂源于第20节所说的：“我现在所愿意的善，我反不实行；我所不愿意的恶，我倒去作。”他说，在我里面有一个“我”，还有一个“罪”。他明确指出：在19节中提到邪恶。
+
+在他的身体里有邪恶和罪。注意这个词“居住”非常重要。邪恶和罪不是从外部作用于我们，也不是临时进入我们体内停留片刻就可轻易摆脱的东西。它们就在我们体内安家了。
+
+它们住在我们体内，扎根在我们心中。因此，人内心深处存在着善与恶的深刻分裂。文学上对这种现象的经典描绘是罗伯特·路易斯·史蒂文森的小说《杰基尔博士与海德先生》。你真的读过这本书吗？
+
+我敢打赌你没有，因为我们通常只是看电影或戏剧。我喜欢根据原著来解释。这本书其实不长，只有大约80页，非常短小精悍，但内容十分引人入胜。基本情节是：杰基尔博士意识到自己是个矛盾体，他既拥有善的一面也拥有恶的一面，既有良知也有贪婪之心。
+
+他认为由于这种矛盾性，他的坏的本性抑制了他的好的本性，所以他能憧憬做正确的事，却无法付诸实践，就像《罗马书》第7章描述的一样。但杰基尔博士想出了一个办法：他要配制一种药剂来将这两种本性分开。他打算在晚上喝这种药剂，释放出他的坏的一面。但是在他白天工作的时候，他会是那个最好的自己，并且这个最好的自己将不再受到邪恶的影响，能够实现所有的目标。
+
+真是个好理论。但当他喝了药剂之后，他的坏的一面突然显现出来，让他大吃一惊，他发现自己比想象中还要邪恶得多。这就是问题所在。他在书中叙述道：“我在这新生命的第一个呼吸中便知道自己更加邪恶了，十倍于我所想的那样邪恶。
+
+”这个想法令他振奋和满足，就像喝了一杯美酒。爱德华·海德本性就是丑陋的。他的每一行为和每一个思想都围绕着自我展开。他的每一行为和每一个思想都围绕着自我。
+
+你知道为什么他的坏的一面叫爱德华·海德吗？因为他是如此丑陋。是丑陋，但也是因为他被隐藏起来。甚至对杰克尔博士来说，他也完全不知道自己有多邪恶。
+
+因此当爱德华·海德听到这个叙述时，他变得更加邪恶，比杰克尔博士想象中的还要多，并开始做一些可怕的事情，包括谋杀。最后，我们稍后再回到这一点。杰克尔博士说：“我要设法阻止它，我要压抑这邪恶的一面。”但爱德华·海德越来越占据上风，控制力也越来越强。
+
+当杰克尔博士意识到自己即将失去完全的控制，不仅无法再成为杰克尔博士，甚至会永远变成爱德华·海德时，他选择了自杀。这是一个非常令人不安的故事。但是从罗马书第七章中也可以看出这一点，因为罗马书第七章和罗伯特·路易斯·史蒂文森所说的是一样的。第一点是，即使是最好的人，即使是最聪明、最正直的杰克尔博士或使徒保罗，他们内心深处也有一种丑陋、邪恶，以及极强的自我中心性。
+
+请注意，罗伯特·路易斯·史蒂文森实际上以一种非常圣经的方式定义了爱德华·海德的丑陋之处——他的每一个思想都完全围绕着自我。而且正是这种自我中心和以自我为中心的心态，是“我”、“我”以及我的需求、兴趣和欲望。这种不可思议地专注于自我的能力导致了邪恶的发生。即使在最好的人身上，也存在着一种邪恶的核心，有着做可怕事情的能力远远超出你所能想象的范围。
+
+这种邪恶远比你想象中的要大得多，糟糕得多。这被隐藏着。但有时某些特定的情况会像魔药一样激发出来，比如压力、诱惑，或者是与一个难相处的人结婚。真正的邪恶，真正做坏事的能力，那种惊人的丑陋，那几乎无穷无尽的自我中心、自我沉迷、自我的意志和放纵就会显现出来，然后你就完了。
+
+你相信这一点吗？最好的人也有可能做出如此可怕的行径，并且无论我们在这里学到什么，你对自己邪恶和罪孽能力的评估肯定太小了。太小了。苏菲安·史蒂文斯是一位独立摇滚艺术家，有些人知道他有一首歌叫《约翰·韦恩·盖西》。
+
+这首歌是关于一个连环杀手——约翰·韦恩·盖西，他杀害了30人并将尸体藏在房子的地板下。苏菲安在这首歌中唱到了这个连环杀手，而且最后两行歌词真是令人震惊。事实上，甚至《村声》杂志的音乐评论家都被震撼了。在他最终的歌声里，他在谈论这个连环杀手是多么可怕、多么糟糕的人，而最后一句歌词是这样的： 但在我的最好行为中，我其实真的和他一样。
+
+看看我生活下的地板，你会发现隐藏的秘密。他说，在你生活的地板下，你会看到做可怕事情的能力。你相信这一点吗？你真的相信苏菲安·史蒂文斯所说的、罗伯特·路易斯·史蒂文森所说的以及保罗所说的——在你内心深处有着超出你想象的丑陋、自私和邪恶的能力吗？
+
+但是你可能会遇到某种情况，一旦说出来你就完了。所以如果真是这样，而且我们必须理解这一点，那么我们应该怎么办？第二点，大多数人试图用来解决这个问题的主要方法，保罗说这并不奏效。那是什么方法呢？
+
+它与道德律法有关。现在当我们看到保罗在这里谈论转向律法和道德律法时，他指的是摩西律法，因为他是犹太人，他在想十诫。但他说的话确实适用于所有文化。在C.S.刘易斯的《通往毁灭之路》一书的最后一部分，有一个非常有价值的附录，在那里他比较了儒家、印度教、佛教、伊斯兰教和基督教以及犹太教的道德律法。
+
+他展示了令人惊讶的一致性，即上帝对我们最基本的要求，道德生活的基本要求在所有这些文化中都惊人地一致。因此我们知道，道德律法是什么。无论是在哪种文化中，无论在哪种宗教里，当人们意识到自己有不良本性时，他们通常会采取的方法是运用道德律法，并通过巨大的意志力将其应用于自己的不良本性。换句话说，我们试图用我们的“杰克”来消除我们的“海德”，用我们的极其善良和顺从来处理我们的自私、骄傲和自我中心。
+
+我们在道德社区中每周阅读道德律法，在那里我们赞扬它并遵守它，教导孩子学习它，并声称通过将上帝的道德律应用于人们的生活，这就是我们要克服这种丑陋、自私、骄傲和自我中心的方法。但保罗说这不会奏效。事实上，他在第5节中说了令人惊讶的话。请看第5节。
+
+他说：“我们在肉身之中时，凭着律法激起我们有罪的欲望，在我们的肢体中运作，结出死亡的果子。”“凭着律法激起”，“凭着律法激起我们有罪的欲望”。保罗说，律法对我们的罪有一个温室效应。它不是让它们萎缩，而是加剧、助长和增长这些罪。
+
+你说这是怎么回事？那怎么可能呢？他说的是，通过意志力应用上帝的律法，只是坚持要求某人按照律法生活，并说：“你必须这样做。”“你必须那样做。
+
+”这并不能让你成为更好的人，反而会让你变得更糟。它会暴露并加剧你的罪恶。怎么会这样呢？实际上，在这方面圣奥古斯丁说得最好。
+
+圣奥古斯丁在他的著名著作《忏悔录》中反思了他年轻时的一个事件。在他年轻的时候，有一次，他闯入一个私人果园，偷了一些不属于他的梨子。后来，他深刻地思考了这件事，并回忆说：“我为什么要偷这些梨呢？” A、我不饿。
+
+B、如果我饿了，我也不会喜欢梨。但他在偷了梨之后，把它们扔给了猪。他甚至不喜欢梨，却还是去偷了梨。他说：“我为什么要偷这些梨呢？
+
+我自己都不喜欢吃。” 答案是：我偷这些梨是因为有人告诉我那是禁止的。换句话说，当有人说“你不能拿那些梨”的时候，我才对它们感兴趣。内心深处有一种东西——我们的丑陋、自私和自我中心，说没有人告诉我要怎么生活。
+
+在你的生活中有很多人表面上就是这样的人，因为他们总是自认为不需要别人告诉他们如何生活。但对我们大多数人来说，虽然我们不说出来，但在你内心深处，无论是先生还是女士，都有一部分心绝对讨厌被告诉要怎样生活。这就是我们内心的错误之一。并且当你用道德律法来对待孩子，或者用道德律法来对待人们时，不要让那方面的本质萎缩，而是让它变得更加突出。
+
+人们之所以去做某些事情，是因为它们被禁止了。但这不仅仅是这样。道德律法是如何在我们身上的错误上发挥作用的？保罗实际上在第8节和第9节中告诉我们，他从一个法律主义的法利赛人转变为基督徒的过程。
+
+这个过程并不是很容易理解，非常简略。他说：“我在律法以外是活着的。”然后有一条十诫中的命令——不可贪恋——突然间击垮了他。诗篇可以深刻地塑造你对神的态度，甚至耶稣也依赖诗篇来面对每一个情况，包括死亡。
+
+在提摩太和凯瑟琳·基勒的《365天灵修读经》中，《耶稣的诗歌》，你会发现每天通过诗篇的阅读，获得新的圣经见解。如果你没有定期灵修的习惯，这本书是一个很好的开始。而且，如果你已经花时间研读、祷告，那么阅读并祷告诗篇可以帮助你将最深的情感和问题带到神面前，并发现与祂更深层次的亲密关系。我们将为您寄送提摩太和凯瑟琳·基勒的灵修读经作为感谢您的礼物，帮助“福音与生命”向更多人传递耶稣的爱。
+
+这是您今天的礼物，请访问gospelandlife.com/slash-give。那是 gospelandlife.com/slash-give。现在是凯勒博士继续今天的教导。那是什么意思？
+
+我认为这意思是保罗说：“我在律法以外是活着的。” 那又意味着什么呢？精神上活着。这意味着什么？
+
+你知道，我们常说一个球队仍然活着如果它还在争取冠军。而保罗的意思是，当他审视自己的生活时，他是一名法利赛人，是一个不错的人，并且他认为自己在争取机会。我是在灵性上活着的，我是一个不错的人。我有机会得救，有机会进入天堂，有机会获得神的祝福。
+
+我真的很好。他之所以感到活着并且是个好人，是因为他看待上帝的律法的方式和我们大多数人一样——只从外部行为的角度来看待。所以他列出了清单，然后可以一一打勾。他说：“好的，我没有拜任何塑像。
+
+”“嗯，不错。” 我每周都会给在纽约市的母亲打电话。所以我尊敬我的父母，对吧？我没有通奸、没有偷窃，也没有杀人。
+
+至少我没杀过重要的人。我是保罗。我杀了几个基督徒，但他们罪有应得。所以他列了一番单子，觉得自己活着。
+
+他说：“嘿，只要他从外部行为的角度来看待十诫，他就说：‘嘿，我很不错。’但到了第十条诫命，问题就来了——你无法仅从行为的角度来解读它。” 这是关于动机的，是关于你的心和你的意图。“不可贪心。
+
+”你知道贪心的反义词是什么吗？是满足。他意识到这条诫命的意思是：如果你真的爱上帝、真正依靠上帝、真正拥有上帝，那么这条诫命就是说你要爱你的上帝到足以感到满足的程度。但当他审视自己的内心时，发现了很多贪婪。
+
+他看到了愤怒，因为他杀死了不同意他的人。你知道，他在迫害教会。他看到了愤怒、自义和嫉妒，还拿自己和其他人比较。他看到了内心的真相。
+
+他是个一塌糊涂的人。他说：“这让我惊恐。”你知道**这意味着什么吗？我意识到我的灵性就像那些没有道德标准的人一样死气沉沉。**
+
+我意识到律法实际上在内心深处制造了所有这些不安全感、问题和愤怒，以及嫉妒。他在说些什么？为什么他会说他和那些在外表上看起来道德败坏的人一样迷失、一样灵性死亡呢？罗伯特·路易斯·史蒂文森在他的《杰基尔与海德》中有一段非常有趣的论述。
+
+当我读到这段时，我被深深震撼了。我发现，在所有的恐怖电影、戏剧和基于这个故事改编的作品中，这种情节从未出现过。当德·基灵意识到爱德华·海德在杀人时，他做出了一个决定。首先，他说：“我不再喝药水了。
+
+” 我再也不喝那种药水了，因为正是因为它才变成了爱德华·海德。所以我不再喝药水。其次，我要过一种更好的生活。我要变得更好、更道德、更有爱心、更善良、更正直，比以往任何时候都要好。
+
+我要通过意志的力量遵守道德律法，并真正地抑制住爱德华·海德，让他再也不出现。他做得很好，但圣经中告诉我们： “我决心在今后的行为中赎回过去。” 他的决心是有效的。你知道，在过去的几个月里，尤其是在去年的最后几个月，我努力减轻人们的痛苦。
+
+你知道我是如何生活的，知道有多少人因我的帮助而受益。但在一个晴朗的一月日子里，我在摄政公园晒太阳时，我反思并微笑，将自己与他人进行比较，将我的善意行为与他们对同胞冷漠懒惰的行为进行对比。就在那个虚荣的想法出现的瞬间，一种不安和恐惧袭来。我低头一看，发现没有喝药水的情况下我又变成了爱德华·海德。
+
+你看，这就是转折点，这是事情开始走向终结的时刻，因为他没有喝药水就变成了爱德华·海德，他知道自己已经完了。但他为什么会没有喝药水就变成爱德华·海德呢？答案并不是因为他的善行，而是因为他的善行。你听到他说了什么吗？
+
+你看圣经中说了什么？当他正在想着自己比别人好得多的时候，当他正在想着其他人冷漠自私时，他意识到自己正在过着很好的生活，关心着每一个人。就在那一刻，他变成了没有喝药水的爱德华·海德。为什么？
+
+他通过自己的善良成为埃德蒙·海德，而不是因为他的善良而没有成为。为什么？你知道，自私有两种方式。一种是变得非常坏，破坏所有规则；另一种则是变得非常好，成为一个自以为义的法利赛人。
+
+有两条路可以让你自己成为救主和主人，而不是上帝，并践踏他人。一条是说：“我要过自己的生活，没有人能告诉我怎么活。”我会违背所有的道德律令，所以这就是你自己当上帝了吧？但你看，如果你说“我要变得如此好，上帝会祝福我并把我带到天堂”，那你就是自己救赎了，对吧？
+
+你没有让上帝成为你的救主。即使你在生活中表现出各种道德行为，内心却充满了自以为义、残忍和偏见，因此总是感到痛苦，因为你总是在与他人比较，永远不确定自己是否足够好。你看出来了吗？这意味着什么？
+
+意味着你无法通过试图做好人或仅仅运用意志力来道德律令来处理你的丑陋、自私和自我中心。你不能通过意志的力量来解决这些问题，你需要彻底改变内心动机的根源，否则就完了。这就是我们的问题，而这个问题不会得到解决。那么，什么会呢？
+
+不是单纯依靠意志力去遵守道德律令，也不是仅仅通过意志力将道德律令应用到你的内心，真正解决问题的方法是什么？答案在第1节到第7节中。这段经文一开始读起来有点奇怪，你有没有注意到这一点？刚开始时你真的无法理解发生了什么，但随着继续阅读，你会逐渐明白。
+
+开头这部分之所以显得很奇怪，是因为保罗正在回答一个问题。他在第7节提出了这个问题。他说，那么，如果我们已经谈论了这一切，法律并不能真正使我们圣洁，也不能使我们更好。实际上，如果有的话，法律就像温室效应，加剧了我们的问题。
+
+他接着说：“那我们该说什么呢？法律是邪恶的吗？或者在成为基督徒后，我们就不用听从法律了吗？” 这是他的意思吗？
+
+不，他说：“绝不是。” 他说，如果没有法律，我就不会知道我哪里出了问题，也不知道该如何生活。所以第7节中的每一个迹象都表明，作为基督徒，你应该遵守法律。你需要顺服它，让它通过你，并引导你如何生活。
+
+确实如此。那么，他在说什么呢？我们不应该做。而在第1至4节中，特别是说我们应该遵守和跟随法律，但不能与法律结为终身伴侣。
+
+“与法律结为终身伴侣”。除非你仔细阅读，这个比喻有点奇怪。在第1、2和3节中，他提到了一个已婚的女人。他说，如果你已婚，其中一方去世了，另一方是可以再婚的。
+
+婚姻是约束性的，他说，你不能随心所欲地做任何事。但如果有一方去世了，也就是说，如果一方配偶去世，另一方就可以再婚。这就是他在第1、2和3节中所说的。然后在第4节中，他突然揭示了这个比喻的意思：“所以你们必须死于律法，归于另一人。
+
+” 那么，**这意味着什么呢？为什么他会从灵性上谈论与上帝法律的婚姻呢？“与上帝法律结婚”是什么意思呢？想想婚姻吧。**
+
+当你第一次结婚时，你的整个生活都围绕着配偶转。而且，你的自我形象和自我编程也会随之改变。也就是说，你的自尊、自我评价和自我理解会通过配偶被重新编程。你的自我形象是别人对你说的话的产物。
+
+你的父母说过你什么，你的兄弟姐妹又说过你什么。你的朋友、你的父母、你的老师、你的教练……这些人一直在说关于你的好话或坏话。而这些话语让你形成了对自己的看法：你是好的还是不好的。但当你结婚后，因为婚姻关系的力量，你可以看着配偶的脸。
+
+你的配偶可以颠覆别人对你说的一切。在配偶面前，你可以重新编程自己的自我形象。换句话说，如果大家说你丑陋，但你的配偶却说你美丽，你会觉得自己很美。你的配偶有这种能力来彻底改变你对自己的理解、自我认知和自尊心。
+
+那么，什么是与律法结婚呢？这不仅仅是你遵守律法来取悦上帝。这是必要的，你必须这样做。或者你遵守律法是为了服务他人。
+
+这也是必要的。与律法结婚意味着你从你的表现中获得自我认同感。你在面对律法时说：“因为我好，因为我顺服，因为我有道德，因为我虔诚，因为我读圣经，因为我祷告，因为我做了许多好事。现在我知道自己是个好人。
+
+” 这种证明，是你试图通过自己的道德表现来证明自己给上帝、他人或你自己。如果这是真的，你就是与律法结婚了。而第六节进一步说，你是律法的俘虏，是律法的奴隶。为什么呢？
+
+因为你在生活中的主要动机是恐惧。你可能非常优秀，非常有道德，但你的主要动机和动力结构仍然是恐惧。例如，如果你与律法结婚并且是一个好人，你会说实话。不是吗？
+
+你会说实话，不会撒谎。你为什么说真话？因为你害怕。你说真话是因为你害怕上帝会惩罚你，并且会定你的罪。
+
+他会把你送到地狱。你可能毕业于哈佛法学院，上过伦理课，害怕这会毁了你的利润。但你看，在这个文化里，无论是在教会内还是在教会外，每个人都会用恐惧让你变得“好”。你不想成为那些糟糕的人。
+
+你不想被发现。你不想被抓到。你不希望上帝惩罚你。恐惧、恐惧、恐惧。
+
+你知道吗？如果你试图通过自己的表现来赚取救赎和自我形象，那你就是被驱使的。内心深处，你总是在与他人比较。你会因批评而感到挫败。
+
+你对那些不持有你信仰的人愤怒且轻视。你无法承受失败。如果尝试面对你的恐惧，而这种恐惧本质上是自私自恋的话。你知道什么是恐惧吗？
+
+恐惧就是只想着自己。我怎么样？我怎么样？我怎么样？
+
+我在做什么？我在看什么？人们怎么对待我？恐惧是非常自私的。
+
+因此，你不能通过说我要变得很好，然后上帝就会祝福我，人们会真正看到我是好人来解决自恋和恐惧的问题。这只会让情况更糟。我们是可悲的人，需要被从死亡中拯救出来。感谢主。
+
+第4节说：“你可以死于律法，而属于另一个人。”谁？你需要成为灵里的配偶。你需要拥有他人的爱。
+
+你需要看到他人的脸来找到真正的自我。根据第4节，你死于律法，并通过耶稣基督的身体属于另一个人。看，在《化身博士》的结尾，杰基尔博士自杀，你知道为什么吗？因为正义就在门口。
+
+埃德蒙·霍迪已经杀害了人。但他从未为自己的罪付出代价，因为他总能变成杰基尔医生而逃避警方的追捕。但是当杰克尔意识到自己将永久变成海德时，他明白自己终将被警方捉拿。他必须为自己的罪行付出代价。
+
+审判的日子即将到来，所以他还是选择了自杀。这确实是一个很好的隐喻，不是吗？关于审判的隐喻。无论你如何隐藏，无论你拖延多久，你的罪行最终都会暴露出来。
+
+总有一天会有审判日。你的丑陋终将被揭露。而你什么都做不了来阻止它。审判的日子终究会到来。
+
+等等，等等一下。还有一件事。以赛亚书52章和53章提到了耶稣基督，那位受苦的仆人，他来拯救我们。书中是这样描述他的：“世人见他，就弃绝了；他相貌卑微，不引人注目，外貌俊美，为人们所藐视。
+
+” 他没有美丽或威严吸引我们，他的外表也无任何值得喜爱之处。他被人鄙视、拒绝，如同被众人掩面不顾的恶人。他被人鄙视，我们也不看重他。然而，是他为我们受了鞭伤，是因我们的罪孽才被压伤。
+
+因他的创伤我们得医治。我们都是如羊走迷的，各人偏行己路；耶和华使我们众人的罪孽都归在他身上。你听到了吗？世人见他，就弃绝了。
+
+他如此丑陋，我们无法直视。我们转脸不看他。哥林多后书5章21节说：“神叫他替我们成为罪，好在神这一方面是义的。”神使他成了恶人，为我们承担了所有的罪孽。
+
+耶稣基督成为了那个被众人掩面不顾的人，他承受了我们的审判日。而他在我们还丑陋的时候就为我们的罪死了。以弗所书5章说：“丈夫当用爱心彼此相待，像基督爱教会，为教会舍己。”这样，他可以将自己圣洁、无瑕的教会献给自己。
+
+唯一能平息那种自私自利的心态，消除你生命中心的恐惧，消除那个让你和身边人都痛苦不堪的黑洞——“我，我，我”的声音的方法就是：耶稣基督成为我们的丑陋者，为我们承受了审判日。他为我们而死，尽管我们还丑陋不堪。以弗所书5章说：“丈夫当用爱心彼此相待，像基督爱教会，为教会舍己。”这样，他可以将自己圣洁、无瑕的教会献给自己。
+
+我恐怕神要管教我，所以我最好做个好人。还有一种不道德的说法是：我害怕神会压迫我，所以我要按自己的方式生活。但只有耶稣基督作为你的新天上的伴侣，他无条件地为你舍己，当你丑陋时使你变得美丽，当祂看着你的时候说：“我爱你，无条件地爱你。”只爱，没有其他。
+
+如果你看到祂的脸，就只有这一点，最终会摧毁你内心深处的恐惧——这种恐惧只是把你压在地上。那种恐惧是：我必须这样做，我必须那样做。耶稣基督却给了你一个新的动机：感恩、安全和爱。说真话是为了像我一样，并使我欢喜，使我不悦，变得像我一样。
+
+出于感恩，不是因为会受到谴责，因为在基督耶稣里，现在没有定罪的了。所以，说真话，把钱给穷人，都是出于爱，出于喜乐，出于感恩。只有这种动机不会把你压在地上。让耶稣基督的伴侣之爱彻底重塑你内心的动机结构。
+
+将你致命的行为放在耶稣脚前放下，在祂里面站立，单单在祂里面。荣耀地完成。让我们祷告。感谢祢，父神，赐给我们这个非常黑暗的信息。
+
+这是一个黑暗的章节，但最终以喜乐结束。哦，可怜的我啊，谁能救我脱离这必死的身体呢？唯有耶稣基督，我们感谢祢。我们在基督耶稣里与旧伴侣——律法和恐惧同钉十字架，并在你的安慰中看见我们的新天上的伴侣，听见祂说：“我爱你，为你舍己。
+
+” 现在，在基督耶稣里的就没有定罪的了。求祢帮助我们通过圣灵将这一切应用到我们的生命中。奉耶稣的名祈求，阿们。感谢您今天聆听这教导。
+
+愿神赐福于你，并帮助你在生活中应用福音，也与他人分享它。更多来自提摩太·基勒的圣经资源，请访问gospelonlife.com。在那里，您可以订阅《福音中的生命季度刊》。订阅后，您还将获得免费的文章、讲道、灵修材料和其他许多以福音为中心的资源。
+
+再次强调，一切都在gospelonlife.com。您也可以通过Facebook、Instagram、YouTube和X平台与我们保持联系。今天的讲道是在2006年录制的。

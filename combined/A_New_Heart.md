@@ -1,0 +1,551 @@
+# A New Heart / A New Heart
+
+## Chinese Translation / 中文翻译 / English Transcript
+
+Welcome to Gospel and Life. When someone you know is contemplating life's deepest questions, who am I? What's wrong with the world?
+
+What can truly make me whole? Jesus doesn't just give us answers. He gives us Himself.
+
+In this month's podcast, Tim Keller looks at how we can share the hope we have in Christ as the answer to a person's search for meaning and purpose. As you may know, August is Go and Share month at Gospel and Life, and we've curated a wide range of free resources to help you take simple steps to share the Gospel with someone God has put in your life. You can access these resources at gospelandlife.com slash share.
+
+We believe God uses small acts to do great things, and we're inviting you to do simple, small acts to go and share the Gospel this month because the Gospel changes everything. Our scripture reading tonight is from the book of Deuteronomy, chapter 30, verses 1-10. When all these blessings and curses I have set before you, come upon you, and you take them to heart wherever the Lord your God disperses you among the nations.
+
+And when you and your children return to the Lord your God and obey Him with all your heart and with all your soul, according to everything I command you today, then the Lord your God will restore your fortunes and have compassion on you, and gather you again from the nations which He's to gather you. Even if you have been banished to the most distant land under the heavens, from there the Lord your God will gather you and bring you back. He will bring you to the land that belonged to your fathers and you will take possession of it.
+
+He will make you more prosperous and numerous than your fathers. The Lord your God will circumcise your hearts and the hearts of your descendants so that you may love Him with all your heart and with all your soul and live. The Lord your God will put all these curses on your enemies who hate and persecute you.
+
+You will again obey the Lord and follow all His commands I am giving you today. Then the Lord your God will make you most prosperous in all the work of your hands and in the fruit of your womb, the young of your livestock, and the crops of your land. The Lord will again delight in you and make you prosperous just as He delighted in your fathers.
+
+If you obey the Lord your God and keep His commands and decrees that are written in this book of the law and turn to the Lord your God with all your heart and with all your soul, this is the word of the Lord. We said that the book of Deuteronomy is a series of sermons that Moses preached at the very end of his life and when you're about to die there are no tangents. You get right to the point.
+
+You only say the things that are the most important that you've ever learned in your whole life and here at the very end of the end of all of the sermons at the very end of the book of Deuteronomy, Moses gets to the most crucial things you could possibly tell anyone. And tonight I would say in some ways the most crucial of everything he said so far. Here he gives us a solution to what could be called the ultimate human problem.
+
+So let's ask what's that problem, what's the solution, how do you know if you have it and if you don't, how can you receive it? What's the problem, what's the solution, how do you know if you have it, if you don't, how can you receive it? Okay, don't fall off your chairs, four points, not five points.
+
+It's only about two hour sermons, so the ordinary hour and 45 minutes. What's the big problem? It's actually there in verses one to four.
+
+For weeks and months we have been looking at the book of Deuteronomy and basically the book of Deuteronomy is God's blueprint for how he wants human beings to live and it's an marvelous blueprint. It's a vision of a life of integrity and joyful unselfishness. And if we really live the way it says in the book to do, oh my, you know, if you were here on Labor Day, we looked at Deuteronomy 15 and there's a statement in Deuteronomy 15 that I've just been struck by for years.
+
+God says, if you obeyed everything I said in this book in the law, there would be no poor among you. He's saying, if you had a community or society of people that obeyed God's law fully and wholeheartedly, there would be no permanent class of poor people in that society at all. It would be a test.
+
+It's amazing. It's another sermon, of course, and I won't stay there, but the point is, wow, and God over and over says, if you live according to the law of God, this will be the blessedness that you will experience. This will be the blessedness that you will have.
+
+But throughout the book of Deuteronomy, Moses has said, the warning is, if you don't obey God, if you turn from Him, if you live lives without integrity and self-fishness and pride and self-centeredness, you will be cursed. You will be cut off and you will be eventually exiled and banished. And see, verses 1 to 4, is Moses looking down the carters of time and saying, finally, here at the very end, and by the way, oh Israel, you will, you will fail.
+
+You will utterly fail in the end to obey the law of God. And you will be, see verse 1, you'll be into, you'll be dispersed. All these curses will come upon you and you, verse 4, you banished.
+
+That's bad news. However, we shouldn't pick on the Israelites. It's only in the story of Israel, we only see what is writ large in the entire human race.
+
+There was a book put out just earlier this year by a philosopher, Jacob Needleman, wrote a book called Why Can't We Be Good? And you know, the basic point of the book is so obvious, and yet he points out that all social theorists are writing books about how we got to live. And political leaders are writing books about how we got to live, but they're all, they're just missing one point.
+
+We know how we got to live, we can't do it. The point of the book is in the book, for example, Needleman says, human beings who know what is good nevertheless remain mysteriously helpless to internally adopt and do the ethical moral and religious ideas bequeath to them. He says, this is the ultimate human problem.
+
+We know how we got to live. You keep telling us books on how we got to live, we know how we got to live. We just can't do it.
+
+We can't summons up the ability to across the board, live the way we got to live, and that's the reason why we still have the world in the mess that it's in. We know what is right to do. We can't do it.
+
+That's the ultimate problem, the human race. Becky Pippert wrote a book called Hope Has Its Reasons, and years ago she was auditing a course in counseling psychology at Harvard University. She was listening in a class to a great case study of a young man who hated his mother but didn't know it.
+
+The case study showed how the therapist helped him see that he did hate his mother. He was incredibly bitter and that it was distorting his whole life. When the case study was over, Becky raised her hands and said, well, now how is the therapist going to help him forgive his mother?
+
+And the professor, the whole class of shock said, well, that's not therapy. He says, you're asking a lot, after all, we just gave him what he really showed him, what was going on in his insides and all that. And Becky and everybody started raising their hands and said, well, finally, the professor said, listen, if you're looking for a forgiving heart, you're in the wrong department.
+
+What he simply meant is he says, psychology is a science. We can't give you a new heart, which is what Neil Minnes trying to say. That's the biggest problem.
+
+We know what to do. We're powerless to do it. What's the solution?
+
+Verse six. Look at this. It's an amazing.
+
+This is a gift of God. This is not something you can do. It's something that God does.
+
+Verse six. In spite of being banished, in spite of all the curses, in spite of the fact that you've blown it, verse six, the Lord, your God will circumcise your hearts. What does that mean?
+
+Well, if we're going to understand what a circumcised heart is, we have to understand what hearts are and what circumcision is. All right? First of all, what heart's are?
+
+You say, well, I know what a heart is, no, I don't think you do. You say, well, the heart is the source of the emotions and the feelings as opposed to the head, which is the source of the mind and the thoughts. And if that's wrong, according to the Bible, the Bible does not use the word heart that way.
+
+It does not use the word heart the way we use it in modern English or in our society. In the Bible, the heart is the seat of the entire acting self. And the heart controls not just the emotions, but also the thoughts and the actions.
+
+Why? Because in the Bible, the heart is the seat of your most fundamental commitments. The things that you most hope in, you most believe in, you most look to, and you most live for.
+
+The things that you look at and say, if I had that, that, then I would be happy, then I would have meaning, then I would have value. Whatever those things are that you look at like that, that determines everything. Obviously for one of you, your greatest joy isn't what is your greatest joy and your greatest fear isn't what your greatest fear is, why?
+
+Because your emotions are flowing from these fundamental commitments, they're shaped by your fundamental commitments and all your decisions and all your thinking and all your imagination is too. The heart is the place where you decide what most turns your crank, what's most exciting, what most captures your imagination, what you most love, what you most find beautiful and attractive. Whatever those things are, that affects everything else, that shapes everything else.
+
+All right, then what's a circumcised heart? Circumcision was the ritual that the Israelites went through when they committed to obey God in His covenant. Circumcision was obeying God when they committed to serving God in His covenant.
+
+So what would a circumcised heart be? Obviously, it's not a physical thing. It's a metaphor, but what is the metaphor for?
+
+It's this. To say you need a circumcised heart is God's way of saying and Moses' way of saying it's not enough to obey God out of duty alone. It's not enough to obey God externally only, circumcision represents external, the body, the physical.
+
+And what the circumcised heart is saying is it's not enough to only serve God because you have to, you ought to serve God because you want to, because you love to. I had an older minister who was a mentor to me that used to say this, the being of God, the greatness of the being of God demands a love that can't be the response to a demand. The being of God, the greatness of the being of God requires a love that cannot just be a response to a requirement.
+
+What does that mean? Say, look, what do you do with your solitude? When you don't have to think of something, when you have nothing to do, when you're just sitting there twiddling your thumbs, you're waiting for a bus and a bus doesn't come.
+
+What do you automatically, instinctively love to dream about? Wish for, plan for, what are you most like reading about? What do you most instinctively, automatically love to do, not because you have to, just because you want to.
+
+That's what your heart is. And those things, those things are the things you set your heart on. But what are those things?
+
+Everybody, come on. You know what they are. There's somebody at the opposite sex, there at your career, there's money, there's these things.
+
+But the greatest thing in the world, the greatest thing in the universe, the most beautiful thing, the most worthy thing, the most great thing in the world is what? It's God, but our hearts don't fix on that. What if, however, you had a circumcised heart?
+
+What if, however, God came in from the outside and fixed your heart so that the thing you most ought to do was the same thing you most wanted to do and love to do. That's a circumcised heart. That's an astounding thing.
+
+The thing you most want to do, the thing you most is the thing you ought to do. And that's the reason why you've got this, you know, this, just John Newton, him that goes like this that I so often like to quote, our pleasure and our duty, though opposite before, since we have seen his beauty, are joined apart no more. That's a new heart.
+
+The moment you find your pleasure and your duty that are always different, I've got to do it, I ought to do it, you know, I believe in God. I know I've got to do it. You need to be good.
+
+But here's your passion. Here's the things that you most desire to do. Here's the things that you're attracted to, our pleasure and our duty, though opposite before, since we have seen his beauty, are joined.
+
+And when that happens, you've got the circumcised heart. You've got the new heart. Now something as big ought to be all through the Bible and it is, under different names.
+
+Ezekiel and Jeremiah say, God will give you a new heart, not just a circumcised heart. Or the spirit of God will come and write the law on your heart. That's also in there.
+
+And when Jesus talks to Nicodemus and John chapter 3, he quotes Ezekiel 37 and he says, you must be born again of the spirit. Same thing. To be born again, to be born of the spirit, to get a new heart, to have a circumcised heart is the same thing.
+
+And that is the solution to the ultimate human problem that we know how we ought to live, but we can't live it. Now thirdly, how do you know if you've got this thing? How do you know if you have a new heart or a circumcised heart?
+
+There's actually three signs embedded in verses 6, 7, 8, 6, and 8 actually that I think are extremely important signs that you have received that you have the circumcised heart. Here's the first sign. Well, the three words, by the way, they tell us the three signs are love, obey, and live.
+
+See them in there? Love, obey, and live. First, verse 6, God will circumcise your heart so you will love him with all your soul.
+
+Ah, what's that mean? Well, the first sign of a changed heart is not a change in the quantity of religious knowledge, but in the quality of spiritual awareness. This is really important, I'll say it again.
+
+It's not a change, conversion, or the new birth, or the new heart is not a change in the quantity of religious knowledge, not just learning new things, religious things. It's the quality, a whole new quality of spiritual awareness. Whenever this new heart is talked about, it's talked in terms of sensory language.
+
+So if you go back to say, do it around me 29, verse 3 and 4, it's only the chapter 4. It says, God will give you a heart to understand, eyes to see, and ears to hear, see, eyes to see, and ears to hear. What does that mean?
+
+You've known about the doctrine. You know about God. You know God's holiness.
+
+You know God's justice. You know God's love. You know these things, but when you get the new heart, you will see it.
+
+You won't just know about it. You will taste it. Sometimes that's it.
+
+It's in the Bible. Taste it. You will hear it, finally.
+
+What? Jonathan Edwards was a pastor in 18th century New England, 1730s and 40s. And in 17th, in 18th century New England, in that time, and everybody believed Christianity.
+
+And I mean everybody. If you went to North Hampton, Massachusetts, everybody went to church. Everybody was a baptized member.
+
+Everybody believed in the Trinity and believed in the deity of Jesus and believed he died for a sins. Everybody. And yet, Jonathan Edwards learned what he knew what actually all pastors know.
+
+And yet we're always a little afraid to talk about it. And that is in spite of the fact that you have all these people out there and they're living according to Christian principles and they're believing the Christian doctrines and they're baptized and their members. Some of them have a new heart and some of them don't.
+
+Some of them have their circumcised heart and some don't. Edwards saw that. Any minister can see that.
+
+But Edwards, unlike the rest of us cowards, talked about it a lot. And he actually wrote four books on the subject, Richard Tormendus. And I've tried to work through them and there's nothing better on this subject.
+
+But I believe that in the end, here's what Edwards says, the main difference is between a person with a new heart and a person who believes and obeys and comes to church and does all the good things but doesn't have a new heart. Here's the difference. He says, people with a new heart love and obey God for the beauty and attractiveness of who he is in himself.
+
+They don't love and obey God because they have to. They don't love and obey God to get things. They don't obey love and obey God as a means to an end.
+
+They obey God because they love him as an end in and of himself. They love him aesthetically, what? We always say the gospel changes everything and we believe it really does.
+
+That's why here at Gospel and Life, August is Go and Share Month. Throughout August, we're inviting thousands of our listeners to take a small step in sharing the gospel with someone God has placed in your life. For those of you who make a gift to Gospel and Life this month, we'll send you two copies of making sense of God by Tim Keller.
+
+It's a powerful resource that explores how Christianity makes emotional, cultural, and rational sense in today's world. This hour thanks for your gift and provides a way you can do a small act to share the gospel by reading the book with a friend, giving one to a coworker, or passing on both copies to people who are exploring the Christian faith. It's a simple way to start a gospel conversation or continue it.
+
+To request your two copies of making sense of God, simply go to Gospel and Life.com-slash-give. Again, that's Gospel and Life.com-slash-give. Now, here's Dr.
+
+Keller with the remainder of today's teaching. Now, yes, listen, for those of you who have heard this illustration before, be patient, but a lot of you haven't. It's my favorite and best illustration on this subject.
+
+When I was in college, I took a music appreciation course, and I had to listen to a lot of Mozart because they was on the test, and I had to be able to identify Mozart for the test. I listened to Mozart to get a passing grade in a class, so I get my degree, so I get out and get a good job. I listened to Mozart, in other words, to make money.
+
+But today, my wife and I will spend a lot of money just to listen to Mozart. What happened? Well, why do we listen to Mozart now?
+
+To get a good grade? No, I'm not in a class. People will think I'm cultured, no, nobody sees me listen to Mozart.
+
+Well, why do you listen to Mozart? You know, you can say, I don't know, but what that means is, it's beautiful. It used to be that listening to Mozart was useful.
+
+But now, it's beautiful, and beautiful means it's satisfying in and of itself. It's attractive. It fulfills in and of itself.
+
+It's not a means to an end. You don't do it because it will get you something else. It's what you want.
+
+It's one of the things that gives you meaning in life. Now, here's what Edward said. A person with a new heart stops obeying God just because he has to, or she has to, just stops obeying God because it gets you somewhere else.
+
+But begins to aesthetically find God beautiful in and of who he is in himself, just to be near him, just to delight him, just to please him. You see, people without a new heart obey God to get things, to get forgiveness, to get blessing, to get heaven. They obey God to get things, but people with new hearts obey God just to get God, just to get him, just to be near him, just to delight him.
+
+And as a result, people with this new heart may actually have been in the church for years and know all about various doctrines. But once you get the new heart, the doctrines start to live. That is to say, they were abstractions, but now they become realities.
+
+You see the love of God, and before you just knew about it, you taste the power of God, but now before maybe you just believed in it. In other words, things that were just sort of abstractions become incredibly galvanizing and moving, and life changing, which brings me to the third point. Love, oh, the second point, pardon me, the second point.
+
+So the first sign of a changed heart, a circumcised heart, is that you love God for who he is in and of himself, and you begin to sense who he is, as opposed to just believe in a math straggly. But secondly, it changes your life. It changes you.
+
+You see the whole point of this whole passage, the whole thrust is, because you have this changed heart, now you obey, right? You don't obey to get the changed heart. The changed heart is not the result of obedience.
+
+The obedience is the result of the changed heart. The changed heart comes as a gift of grace, and from the changed heart flows a life now in conformity to the joyful unselfishness of the law of God. But you know what that means?
+
+If you really have a new heart, you get changed. See, there are people who say, oh, I like what you just said about Jesus moving me. Well, I love it when I come to Redeemer.
+
+The songs move me. The preaching moves me. Good.
+
+I love your servants. That's great. But John Edwards is not impressed, unless here's the really.
+
+John Edwards says, I'm glad you like Tim Keller's servants. I'm glad. Maybe they make you weak.
+
+That's wonderful. And you feel, oh, I really feel God's spiritual reality. Well, let's see.
+
+Do the people who know you best, the people around you who really see you, are they saying you are becoming more and more unselfish, more and more generous, more and more kind, more and more self-controlled, more and more courageous as the weeks go by? If you're not changing in the way you actually live, then you don't have that new heart. You're just being stirred.
+
+Your emotions are being stirred. That's all. To have a new heart, you have a new sense of God's spiritual reality on you.
+
+Secondly, you have a change life, but thirdly, you start growing. I love, you know, you'd almost miss it, unless you're looking for it. Carefully.
+
+Verse 6 says, the Lord your God will circumcise your hearts that you may love Him and live, live. What does that mean? Weren't they alive before?
+
+It's not talking about biological life, it's talking about spiritual life. And here's what's important. Biological life comes gradually, so does spiritual life.
+
+So I'm sure some of you are a little worried from these first two points. You know, love God, meaning he becomes the ultimate beauty of your life and you start to change and you start to say, well, I don't, hmm, hmm. You know, well, this might, this point may come for you.
+
+Think of how biological life starts out. Look at babies. Look at them.
+
+They're basket cases. They can't do a thing. They can't do a thing.
+
+Have you ever had a baby? I mean, they just take and take and they can't do anything. You've got to take them everywhere.
+
+You've got to protect them from the cells all the time. I can't tell you how many times one of my kids were 18 months old. They were screaming and crying about something and I've said, I've only had good reason with you, didn't help.
+
+But think of how slow that works, well, spiritual life, look, in spite of the fact that the moment your heart is circumcised, the moment you receive the new heart, there is a new love implanted in you. It's a seed and it takes a long time to grow into a tree. Just takes time.
+
+You know, Paul says in Romans 7, I delight in the law of God in my inn most self. Huh, that's a new, that's a circumcised heart. He says the thing I most want, the thing I most passionately love is I want to delight him.
+
+And yet he says, I see all these other desires still in my life that vie with that and they draw me away from doing what I should do in many cases. I'm improving, but you know, it's gradual, it's fits and starts, it takes time, yes. But it's also organic, what I mean by organic is this.
+
+Real spiritual, a real new heart grows organically, not mechanically. Now for example, you can grow a pile of bricks, couldn't you? You could just put the, how do you grow a pile of bricks?
+
+You just keep throwing bricks on it, it's growing, but it's growing through an external action and it's growing only in quantity. But now how does a bulb grow into a tulip? That's growth too, but it's organic growth, not mechanical growth.
+
+It's growth from the inside, not the outside, and it's growth in quality, in complexity. The organism is becoming more and more complex. It's not just growing in quantity and that real spiritual growth, the sign of a new heart is you don't just grow mechanically, you don't just learn more Bible texts and learn more doctrine and get more perfect attendance pins and rise up in the church and heap up good deeds.
+
+You don't know, organically, you become wiser person as the years go by, deeper, happier and sadder at the same time, more tender, hearted, more sensitive to other people at the same time, happier yourself, more able to admit you're wrong, tougher and tender at the same time, you grow in grace, you grow in spiritual life, you grow in spiritual character. Very different than just mechanical growth. Do you have this heart?
+
+Do you have this heart? Maybe I should, this new heart, maybe I look, some of you say, well, have you been born again? I'm asking you.
+
+Some of you may be saying, well, that's for some people. There are born again Christians, sometimes they've had hard lives, it helps them. Jesus said to Nicodemus, pillar of the community, Bible teacher, you must be born again, period.
+
+And if Nicodemus need to be born again, he was so good and so great, anybody has to be born again, and that's Jesus' point. And you say, well, I don't know, you're talking about a dramatic kind of conversion experience not necessarily. You know, when John Wesley, the founder of the Methodist Church, describes his conversion experience.
+
+He was at a meeting and they were reading the Bible or reading a book about the Bible. And he says, to describe his conversion experience, my heart was strangely warmed. Now maybe that is dramatic for an Englishman, but put it another way.
+
+But you can have an experience like that and have no idea that that was the beginning of your new heart. It might be weeks later, months later, years later you look back and say, that was the beginning of the new spiritual awareness, that was the beginning, where I stopped just knowing about God and began to be a spiritual reality. That's where all the changes started, sometimes it's not dramatic.
+
+You don't know it right away, you have to look back and find it. But you must be born again, you must get your heart circumcised, you must get a new heart. Do you have it?
+
+Do you see these things in yourself? Well if you don't, how do you get it? And here's my suggestion to you.
+
+Don't say, God, give me a new heart. You know, I need a new heart, why? Because I want to be a better person.
+
+It won't come that way. Here's what I want you to do. I want you to see how God procured a new heart.
+
+How did God get a new heart for us? Look, we've been banished. We've been exiled.
+
+Go to Adam and Eve. You say, well, that's the Jews, okay, Adam and Eve, that's all of us. Adam and Eve were put in the garden of Eden, paradise, and because they wanted to be their own master, their own savers and Lord, they were banished, they were exiled.
+
+So we're all on the same boat. How could God possibly, in spite of all the curses that we deserve, just give us a new heart? How can he do it?
+
+The answer is in the right of circumcision. Let's go back and for a minute, think about circumcision. A lot of you are saying, I don't want to think about circumcision, okay.
+
+Why is that the way the Israelites made their contract with God, you know, made their commitment with God? Why? I mean, how about a tattoo?
+
+How about a, you know, cutting a lock of hair? Why circumcision? You know, gross and bloody and vuh, that's the point.
+
+Yes, now you're getting the point. Because when Abraham made his covenant with God in Genesis 15, he walked between the torn pieces of a dead animal. Why?
+
+As he was making his promise, he walked through the pieces of the dead animal. Why? He was acting out the penalty for disobedience.
+
+He was acting out the curse of the covenant by walking through the pieces. He was saying, I promise you my allegiance and Lord, if I don't do what I'm promising today, may I be torn to pieces. That's what circumcision is.
+
+When the Israelites were circumcised, what they were saying is, we will obey you. And if we are not obedient to you, may we be cut off? Because circumcision was an enactment, a dramatization of the curse of sin, the curse of the covenant.
+
+What is the penalty for sin? When you lie, it cuts you off from other people. When you cheat, when you're cruel, it isolates you.
+
+You can even see it there. The punishment of sin, the curse for sin is banishment. It's exile.
+
+It's being cut off. Cut off from people. Cut off from your country.
+
+Cut off from God. Circumcision represents the thing that we ought to experience. Circumcision.
+
+How did God give us a new heart on the cross? Centuries later, on an afternoon that turned into a dark and stormy night, Jesus was cut. A spear thorns in his brow, spear in his side, nails in his hands, he was being cut.
+
+And when he said, my God, my God, why has thou forsaken me? What was happening? He wasn't just being physically cut.
+
+It says right here in Isaiah 53, what happened to him? He was pierced for our transgressions, he was crushed for our iniquities, the punishment that brought us peace was upon him, and by his wounds we are healed for he was cut off from the land of the living. And now and only now, because you just sat through 30 minutes of this sermon, you will have any idea what that strange passage in Colossians 2, 11 and 12 means.
+
+Because when Colossians 2, 11 and 12 says, Christians, you have been circumcised in the circumcision of Christ on the cross. And you were baptized in the baptism of Christ on the cross. And you read that and you say, what?
+
+But now maybe you understand. On the cross, Jesus Christ was experiencing the cosmic cutting off that circumcision represented. He was experiencing the circumcision of judgment.
+
+He was being cut off from us. He was getting what we deserve for not doing the good we know we ought to do. He was taking the penalty at the gate of the Garden of Eden, barring Adam and Eve going back was a flaming sword, the sword of God's judgment.
+
+But the sword came down on Jesus. He was cut off so now we can go in. As you see, now did you hear all that?
+
+As you think about Jesus doing that for you. As you think about Him doing it for you. As you think about how Jesus Christ procured a new heart for you.
+
+Does it move you? Is the way He procured the new heart moves you? That's the beginning of the new heart in you.
+
+Did you understand that? See if you just ask God, oh God, give me a new heart. Why?
+
+No, for blessing. Because I just need something in my life, never work. But if you look at what Jesus Christ did, if what Jesus Christ did, His cutting off, His experiences, what He did for you.
+
+If that moves you, if what He did to procure your new heart moves you, that's the beginning of the new heart in you. Why? That's the beauty that makes pleasure and duty one.
+
+Because the Him goes, our pleasure and our duty, though opposite before, since we have seen His beauty are joined to part no more, but what is the beauty? The next verse goes, to see the law by Christful filled and hear His pardoning voice, transforms a slave into a child and duty into choice. The beauty of what Jesus Christ did on the cross, taking your cosmic cutting off for you.
+
+If that moves you, then that's the beginning of the new heart in you. You wouldn't be moved except God's already working. Isn't that amazing?
+
+He's already working. You know, birth isn't something you can just decide to do. Nobody ever says, I think I get born.
+
+Birth is something that happens to you, but you're active in it. And that's what I'm suggesting to you. Do you have this new heart if you don't, then look at what Jesus Christ did.
+
+And if it begins to move you so that you say, now give me this new heart, not because of anything I have done, but because of what Jesus Christ has done, He took it all for me. That's the beginning of the new heart. You wouldn't even be asking, except God's already working in you.
+
+That's how you get the new birth. That's how it works. And guess what?
+
+If you've already got the new life in you, maybe you've had it for many years. That's also how the new life is stirred up to greater organic growth. Look at what He did and receive it.
+
+Let's pray. Thank you, Father, for giving us what we need in order to have new hearts, and then to have that new life in us stirred up. So we pray that you would show us the beauty of what Jesus did and weld together, our pleasure and our duty.
+
+So that you, O Lord, Jesus Christ, become the center of our lives. We pray this in Jesus' name, amen. Thanks for listening to today's teaching.
+
+It's our prayer that you were encouraged by it and that it helps you apply the gospel to your life and share it with others. As you may know, August is going to share month of gospel in life. We believe God uses small acts to do great things.
+
+If you've already taken a step, maybe you've shared a resource or started praying for someone. We'd love to know. You can encourage others by marking your location on our Go and Share map.
+
+Just go to gospelandlife.com slash share and let us know you've participated. Today's sermon was recorded in 2007. The sermons and talks you hear on the gospel and life podcast were recorded between 1989 and 2017, while Dr.
+
+---
+
+欢迎来到《福音与生活》。当你认识的某个人在思考人生最深刻的问题时，我是谁？世界出了什么问题？什么真正能让我整全？
+
+耶稣不仅仅是给我们答案。他把他自己给了我们。在本月的播客中，提摩太·凯勒观察我们如何能在基督里分享我们所拥有的盼望，作为一个人对意义和目的的追寻的答案。如你所知，八月是《福音与生活》的"去并分享月"，我们精心策划了一系列免费资源来帮助你采取简单的步骤与神在你生活中所放置的某个人分享福音。
+
+你可以在 gospelandlife.com-slash-share 访问这些资源。我们相信神使用小行为来做大事，我们邀请你在这个月做简单、小的行为去并分享福音，因为福音改变一切。我们今晚的经文阅读来自申命记第 30 章第 1-10 节。当我所陈列在你面前的这一切祝福和咒诅都临到你身上，你在耶和华你的神驱散你到的列国中想起来的时候。
+
+你和你的子孙就都归向耶和华你的神，一心一意全然顺从他，照着我今日所吩咐你的一切。那时，耶和华你的神必怜悯你，叫你从被掳之处归回，并必聚集你从耶和华你的神赶散你到的各国民中召你回来。你纵然被赶到天边，耶和华你的神也必从那里将你招回来。耶和华你的神必领你进入你列祖所得的地，使你可以得着。
+
+他必使你比你的列祖更加昌盛繁多。耶和华你的神必将你心里和你后裔心里的硬心给割除了，好叫你全心全意爱耶和华你的神，得以存活。耶和华你的神必将这一切咒诅加在你的仇敌，和恨恶你、逼迫你的人身上。你必再听从耶和华的声音，遵守他的一切吩咐，就是我今日所吩咐你的。
+
+那时耶和华你的神必使你手里所做的一切事和你身所生的，牲畜所生的，地土所产的，都绰绰有余。因为耶和华必再喜悦你，使你昌盛，如同喜悦你的列祖一样。如果你听从耶和华你的神，谨守这律法书上所写的他的诫命、律例，一心一意归向耶和华你的神，这是耶和华的话。我们说申命记是摩西在他人生的最后阶段所讲的一系列讲道，当你即将去世时，就没有扯皮的事了。
+
+你直奔主题。你只说那些你这一生中学到过的最重要的东西，这里在整个讲道的最后，在申命记这本书的最后，摩西讲到了他可能对任何人说的最至关重要的东西。在某种程度上，我会说这是他迄今为止说的一切中最至关重要的。这里他给了我们一个解决方案，可以被称为最终的人类问题。
+
+所以让我们问一下那是什么问题，什么是解决方案，你怎样知道你是否拥有它，如果你没有，你怎样可以接收它？什么是问题，什么是解决方案，你怎样知道你是否拥有它，如果你没有，你怎样可以接收它？好的，不要掉下你的椅子，四个观点，不是五个观点。它仅仅是大约两小时的讲道，所以普通的一小时四十五分钟。
+
+大问题是什么？它实际上在第一至四节中。多个星期和月份以来，我们一直在看申命记这本书，基本上申命记是神关于他想要人类如何生活的蓝图，它是一个奇妙的蓝图。它是关于一种诚实和喜乐无私的生活的视野。
+
+如果我们真的按照那本书所说的那样生活，哦，我的天，你知道，如果你在劳动节在这里，我们查看了申命记第 15 章，在申命记第 15 章中有一个我多年来一直被深深打动的声明。神说，如果你在这本书的律法中听从了我说的一切，你们中就没有贫穷的了。他在说，如果你有一个人类社会或社群，他们充分而全心全意地顺从神的律法，那个社会中就根本不会有贫穷的永久阶层。这将是一个测试。
+
+这是令人惊讶的。这当然是另一个讲道，我不会停留在那里，但要点是，哇，神一次又一次说，如果你按照神的律法生活，这将是你会经历的祝福。这将是你会拥有的祝福。但在整个申命记中，摩西说过，警告是，如果你不顺从神，如果你离开他，如果你过着没有诚实、自私和骄傲、以自我为中心的生活，你会被咒诅。
+
+你会被切断，最终你会被流放和放逐。看，第 1 到 4 节，摩西向下看时间的走廊说，终于，在最后，顺便说一下，哦，以色列，你会，你会失败。你最终会彻底失败以至于不顺从神的律法。你会被，看第 1 节，你会进入，你会被分散。
+
+所有这些诅咒都会临到你身上，你，第 4 节，被放逐。那是坏消息。然而，我们不应该只针对以色列人。这只是在以色列的故事中，我们才看到在整个人类种族中被大规模写出的东西。
+
+一本书在这一年早些时候由哲学家雅各布·尼德曼写出来，写了一本名为《我们为什么不能是好的？》的书。你知道吗，这本书的基本观点是如此显而易见，然而他指出所有社会理论家都在写关于我们如何生活的书。政治领导人在写关于我们如何生活的书，但他们都是，他们只是遗漏了一点。
+
+我们知道我们如何生活，我们不能做到。这本书的要点是在这本书中，例如，尼德曼说，了解什么是好的人类始终神秘地无法从内部采纳和做伦理、道德和宗教观念遗赠给他们。他说，这是最终的人类问题。我们知道我们如何生活。
+
+你不断告诉我们关于我们如何生活的书，我们知道我们如何生活。我们就是不能做到。我们不能够召集能力来全面地按照我们如何生活的方式生活，这就是我们仍然拥有世界处于它所处状态的原因。我们知道做什么是正确的。
+
+我们不能做到。这是最终的人类问题。贝基·皮珀特写了一本名为《希望有其理由》的书，多年前她在哈佛大学审计一个咨询心理学课程。她在课堂上听着一个伟大的案例研究，关于一个恨他母亲但不知道的年轻人。
+
+案例研究展示了治疗师如何帮助他看到他确实恨他的母亲。他非常苦涩，这扭曲了他的整个生活。当案例研究结束时，贝基举起她的手说，好吧，现在治疗师将如何帮助他原谅他的母亲？而且教授、整个班级的震惊说，那不是治疗。
+
+他说，你要求很多，毕竟，我们只是给了他他真的表现出来，他内在发生了什么，等等。贝基和每个人都开始举起他们的手说，好吧，最后，教授说，听，如果你在寻找一个宽恕的心，你在错误的部门。他只是意味着他说，心理学是一门科学。我们不能给你一颗新心，这正是尼尔·明内斯试图说的。
+
+那是最大的问题。我们知道要做什么。我们无力做到。什么是解决方案？
+
+第六节。看这个。这很了不起。这是神的礼物。
+
+这不是你能做的。这是神做的。第六节。尽管被放逐，尽管所有的诅咒，尽管你搞砸了这个事实，第六节，耶和华你的神必将你心里和你后裔心里的硬心给割除了。
+
+那是什么意思？好吧，如果我们要理解什么是割包皮的心，我们必须理解什么是心以及割包皮是什么。都好吗？首先，什么是心？
+
+你说，好吧，我知道什么是心，不，我认为你不知道。你说，好吧，心是情感和感受的源头，与作为心灵和思想源头的头相对。如果这是错误的，根据圣经，圣经不是以这种方式使用心这个词。它不是按照我们在现代英文或我们的社会中使用它的方式使用这个词。
+
+在圣经中，心是整个行动自我的所在地。心不仅控制情感，还控制思想和行动。为什么？因为在圣经中，心是你最基本承诺的所在地。
+
+你最希望、最相信、最仰望的东西，最为其生活的东西。你看着的东西，说，如果我有那个，那个，那么我会开心，那么我会有意义，那么我会有价值的东西。无论这些东西是什么，这决定了一切。显然对你们中的一个，你最大的喜乐不是什么是你最大的喜乐，你最大的恐惧不是你最大的恐惧，为什么？
+
+因为你的情感来自这些基本承诺，它们由你的基本承诺塑造，你所有的决定、你所有的思考和你所有的想象也是如此。心是你决定什么最能转动你的把手、什么最令人兴奋、什么最能吸引你的想象力、你最爱什么、你最觉得什么漂亮和有吸引力的地方。无论这些东西是什么，那会影响其他一切，那会塑造其他一切。好的，那么什么是割包皮的心？
+
+割包皮是以色列人在他们承诺顺从神及其约时经历的仪式。割包皮是当他们承诺在其约中侍奉神时顺从神。那么割包皮的心会是什么？显然，它不是一个物理的东西。
+
+这是一个隐喻，但隐喻是什么？这是。说你需要一个割包皮的心是神的方式，摩西的方式说，仅仅因为责任而顺从神是不够的。仅仅只是外部顺从神是不够的，割包皮代表外部、身体、物理。
+
+而割包皮的心所说的是仅仅因为你必须而仅仅服侍神是不够的，你应该因为你想要而服侍神，因为你爱而服侍神。我有一位曾是我的导师的年长牧师，他过去经常说这个，神的存在，神的伟大要求一种不能是对要求反应的爱。神的存在，神的伟大要求一种不能仅仅是对要求的回应的爱。那是什么意思？
+
+说，看，你对你的独处做什么？当你不必思考什么时，当你无事可做时，当你只是坐在那里转动你的大拇指，你在等公交车，公交车没有来。你自动、本能地喜欢梦想什么？想要什么、计划什么、你最喜欢读什么？
+
+你最本能地、自动地喜欢做什么，不是因为你必须，只是因为你想要。那就是你的心。而那些东西，那些东西是你把心放在上面的东西。但那些东西是什么？
+
+每个人，来吧。你知道他们是什么。有一个异性的人，那里是你的职业，那里有金钱，有那些东西。但世界上最伟大的东西，宇宙中最伟大的东西，最美丽的东西，最有价值的东西，世界上最伟大的东西是什么？
+
+它是神，但我们的心不是固定在那上面。如果，然而，你有一个割包皮的心呢？如果，然而，神从外面进来并修复你的心，使你最应该做的东西与你最想要的东西和喜欢做的东西相同呢？那是一个割包皮的心。
+
+那是一个令人惊讶的东西。你最想要做的东西，你最 是你应该做的东西。这就是为什么你有这个，你知道这个，就是约翰·牛顿，他像这样去的，我经常喜欢引用的东西，我们的快乐和我们的责任，虽然之前相反，自从我们看到了他的美，被加入了，不再分开。那是一颗新心。
+
+现在当你发现你的快乐和你的责任始终是不同的时刻，我必须做，我应该做，你知道，我相信神。我知道我必须做。你需要是好的。但这是你的激情。
+
+这是你最想要做的东西。这是你被吸引到的东西，我们的快乐和我们的责任，虽然之前相反，自从我们看到了他的美，被加入。而当那发生时，你有了割包皮的心。你有了新心。
+
+现在这样大的东西应该遍布整本圣经，而它确实是，以不同的名字。以西结和耶利米说，神会给你一颗新心，不仅仅是一颗割包皮的心。或者神的灵会来并把律法写在你的心上。那也在那里。
+
+当耶稣与尼哥底母谈话时，在约翰第 3 章，他引用以西结书 37，他说，你必须被灵重生。同样的东西。重生，被灵重生，获得一个新心，有一个割包皮的心是同样的东西。那是解决最终人类问题的方案，我们知道我们应该如何生活，但我们不能活。
+
+现在第三，你怎样知道你是否有这个东西？你怎样知道你是否有一个新心或割包皮的心？实际上，有三个嵌入在第 6、7、8 节中的三个迹象，第 6 和 8 实际上我认为是极其重要的迹象，表明你已经收到了你拥有割包皮的心。这里是第一个迹象。
+
+好吧，这三个词，顺便说一下，它们告诉我们三个迹象是爱、顺从和生活。看到他们在那里吗？爱、顺从和生活。首先，第六节，神会割你心里和你后裔心里的硬心，如此你才能全心全意全灵爱他。
+
+啊，那是什么意思？好吧，改变的心的第一个迹象不是宗教知识数量的改变，而是属灵意识质量的改变。这真的很重要，我会再说一遍。这不是改变，皈依、或新生、或新心不是宗教知识数量的改变，不仅仅是学习新东西、宗教的东西。
+
+这是质量，属灵意识的全新质量。每当这个新心被谈论时，它就被用感觉语言来谈论。所以如果你回到说，在我 29 周围做，第 3 和 4 节，它只是第 4 章。它说，神会给你一颗明白的心，眼睛能看，耳朵能听，看，眼睛看，耳朵听。
+
+那是什么意思？你知道了教义。你知道了神。你知道神的圣洁。
+
+你知道神的公义。你知道神的爱。你知道这些东西，但当你获得新心时，你会看到它。你不仅仅知道它。
+
+你会尝到它。有时就是这样。它在圣经中。尝尝。
+
+你会听到它，最后。什么？乔纳森·爱德华兹是 18 世纪新英格兰的牧师，1730 年代和 40 年代。在 17、18 世纪新英格兰，在那个时代，每个人都信奉基督教。
+
+我是指每个人。如果你去北汉普顿，马萨诸塞州，每个人都去教堂。每个人都是受洗的成员。每个人都相信三一论，相信耶稣的神性，相信他为我的罪而死。
+
+每个人。然而，乔纳森·爱德华兹学到了他所知道的实际上所有牧师都知道的东西。然而，我们总是有点害怕谈论它。那就是尽管你在那里有所有这些人，他们按照基督教原则生活，他们相信基督教教义，他们受了洗，他们是成员。
+
+有些人有一个新心，有些人没有。有些人有他们的割包皮的心，有些人没有。爱德华兹看到了这一点。任何牧师都能看到那个。
+
+但爱德华兹，不像我们其余的懦夫，经常谈论它。他实际上写了四本关于这个主题的书，理查德·托门达斯。而且我试图通过它们，这个主题上没有更好的东西。但我相信最后，这是爱德华兹说的，主要区别在于一个有新心的人和一个相信、顺从和来教堂的人以及做所有好事但没有新心的人。
+
+这是区别。他说，拥有新心的人爱和顺从神，为了他本身的美和吸引力。他们不是因为他们必须而爱和顺从神。他们不是为了得到东西而爱和顺从神。
+
+他们不是因为顺从爱和顺从神作为通向目的的手段。他们顺从神，因为他们作为目的本身而爱他。他们在美学上爱他，什么？我们总是说福音改变一切，我们相信它真的确实改变了。
+
+这就是为什么这里在《福音与生活》，八月是"去并分享月"。整个八月，我们邀请我们成千上万的听众采取一个小步骤，与神在你生活中所放置的某个人分享福音。对于那些在这个月向《福音与生活》捐赠的人，我们会寄给你两份提摩太·凯勒写的《理解神的意义》。这是一个强大的资源，探讨基督教如何在今天的世界中在情感、文化和理性上都有意义。
+
+这小时感谢你的礼物，并提供了一种方式，你可以采取一个小行动来分享福音，与朋友一起读这本书，给一个同事一份，或把这两份都传给正在探索基督教信仰的人。这是开始或继续福音对话的一个简单方式。要请求你的两份《理解神的意义》，只需前往 gospelandlife.com-slash-give.再次，那是 gospelandlife.com-slash-give.现在，这是凯勒博士对今天教学内容的其余部分。现在，是的，听，对于那些之前听过这个比喻的人，要耐心，但很多人没有。
+
+这是我最喜欢和最好的关于这个主题的比喻。当我在大学时，我上了一个音乐欣赏课程，我必须听很多莫扎特，因为他在考试中，我必须能够为考试识别莫扎特。我听莫扎特是为了在课程中得到及格分数，所以我得到了我的学位，所以我离开并得到了一份好工作。我听莫扎特，换句话说，是为了赚钱。
+
+但今天，我和我的妻子会花很多钱只是为了听莫扎特。发生了什么？好吧，我们现在为什么听莫扎特？为了得到一个好成绩？
+
+不，我没有在课堂上。人会认为我受过教育，不，没有人看到我听莫扎特。那你为什么听莫扎特？你知道，你可以说，我不知道，但那意味着什么是，这很漂亮。
+
+以前听莫扎特很有用。但现在，这很漂亮，漂亮的意思是它本身就令人满足。这很有吸引力。它本身就充分完成。
+
+它不是一种通向目的的手段。你不是因为它会给你别的东西而做的。这就是你想要的。这是给你生活意义的东西之一。
+
+现在，这就是爱德华兹说的。一个有新心的人停止仅仅因为他必须或她必须而顺从神，只是停止因为它让你到别处而顺从神。但开始从美学上在他本身中发现神很漂亮，仅仅为了靠近他，仅仅为了使他高兴，仅仅为了让他开心。看，没有新心的人为了得到东西而顺从神，为了得到宽恕，为了得到祝福，为了得到天堂。
+
+他们为了得到东西而顺从神，但有新心的人为了得到神而顺从神，仅仅为了得到他，仅仅为了靠近他，仅仅为了使他高兴。结果，拥有这个新心的人实际上可能已经在教堂多年了，并且知道关于各种教义的一切。但一旦你获得了新心，教义就开始存活。也就是说，他们是抽象的，但现在他们成为现实。
+
+你看到了神的爱，之前你只是知道它，你尝到了神的力量，但现在之前也许你只是相信它。换句话说，只是某种抽象的东西变成了难以置信地激励和感动，以及改变生活的东西，这让我想到了第三点。爱，哦，第二点，对不起，第二点。所以改变的心的第一个迹象，一个割包皮的心，是你因为他本身而爱神，你开始感受到他是谁，而不仅仅是在数学上相信。
+
+但其次，它改变了你的生活。它改变了你。看到整个通道的整个重点、整个推力是，因为你有这个改变的心，现在你顺从，对吧？你不顺从以获得改变的心。
+
+改变的心不是顺从的结果。顺从是改变的心的结果。改变的心作为恩典的礼物而来，从改变的心流出一个现在符合神律法的喜乐无私的生活。但你知道那意味着什么吗？
+
+如果你真的有一个新心，你会改变。看，有人说，哦，我喜欢你刚才所说的关于耶稣感动我的。好吧，我喜欢当我来赎回主教堂时。歌曲感动我。
+
+讲道感动我。好的。我爱你的仆人。这太棒了。
+
+但约翰·爱德华兹没有留下深刻印象，除非这里真的是。约翰·爱德华兹说，我很高兴你喜欢提姆·凯勒的仆人。我很高兴。也许他们让你虚弱。
+
+那太棒了。而你感觉，哦，我真的感受到了神的属灵现实。好吧，让我们看看。认识你最好的人，真正看到你的人在你身边，他们说的是你变得越来越无自私、越来越慷慨、越来越善良、越来越自律、越来越勇敢随着几周过去吗？
+
+如果你在你实际生活的方式上没有改变，那么你没有那个新心。你只是被激动。你的情感被激动。仅此而已。
+
+要有新心，你有对你的神属灵现实的新感受。其次，你有一个改变的生活，但第三，你开始成长。我爱，你知道，你几乎会错过它，除非你在找它。小心。
+
+第 6 节说，耶和华你的神必将你心里和你后裔心里的硬心给割除了，好叫你全心全意全灵爱耶和华你的神，并且活着，活。那是什么意思？他们之前没有活着吗？这不是在谈论生物生命，这是在谈论属灵生命。
+
+这里有什么重要的。生物生命是逐渐出现的，属灵生命也是。所以我相信你们中的一些人从这前两点中有点担心。你知道，爱神，意味着他成为你生活的最终美丽，你开始改变，你开始说，我不，嗯，嗯。
+
+你知道，好吧，这一点可能对你来说。想想生物生命是如何开始的。看看婴儿。看着他们。
+
+他们是篮子里的病人。他们做不了什么。他们做不了什么。你曾经有过婴儿吗？
+
+我的意思是，他们只是拿取，他们什么都做不了。你必须到处带他们。你必须一直保护他们免受细胞的伤害。我不能告诉你多少次我的一个孩子是 18 个月大。
+
+他们因为某事而尖叫和哭泣，我说过，我只和你有好的理由，没有帮助。但想想那是如何缓慢地工作的，好吧，属灵生活，看，尽管在你的心被割除的那一刻，在你接收新心的那一刻，有一个新的爱被植入你身上。这是一种种子，需要很长时间才能长成树。只是需要时间。
+
+你知道，保罗在罗马书 7 中说，我以内心的我喜悦神的律法。嗯，那是一个新的，那是一个割包皮的心。他说我最想要的东西，我最热烈地爱的东西是我想让他高兴。然而，他说，我看到我生活中所有这些其他欲望仍然存在，它们与之争夺，他们把我拉离许多情况下应该做的事情。
+
+我在改进，但你知道，这是逐渐的，这是断断续续的，需要时间，是的。但这也是有机的，我所说的有机是什么意思。真正属灵的，**真正的新心有机地成长，而不是**机械地。现在例如，你能长一堆砖块吗？
+
+你可以只是把它放在上面，你怎样长一堆砖块？你只是一直往它上面扔砖块，它在成长，但它是通过外部行为成长的，它仅在数量上成长。但现在一个灯泡是如何长成郁金香的？那也是成长，但它是有机的成长，不是机械的成长。
+
+这是从内部而不是从外部的成长，它是在质量、复杂性中的成长。生物体变得越来越复杂。它不仅仅是在数量上成长，那**真正的属灵成长，新心的迹象是**你不仅仅以机械方式成长，你不仅仅学习更多的圣经经文，学习更多的教义，获得更完美的出席别针，并在教堂中上升并堆积好的行为。你不知道，有机地，随着岁月的流逝，你变成了一个更聪慧的人，更深刻的人，更高兴和更伤心的人同时，更温柔的心，对他人更敏感的人同时，对自己更高兴的人，更能承认你错了，更坚硬和温柔的人同时，你在恩典中成长，你在属灵生命中成长，你在属灵品格中成长。
+
+与仅仅机械成长非常不同。你有这颗心吗？你有这颗心吗？也许我应该，这个新心，也许我看，你们中的一些人说，好吧，你重生了吗？
+
+我在问你。你们中的一些人可能会说，好吧，那是给某些人的。有重生的基督徒，有时他们有过艰难的生活，这有帮助他们。耶稣对尼哥底母、社区的支柱、圣经教师说，你必须被重生，句号。
+
+如果尼哥底母需要被重生，他是如此的好和伟大，任何人都必须被重生，这是耶稣的观点。你说，好吧，我不知道，你说的是一个戏剧性的皈依经历不一定。你知道，约翰·卫斯理，循道宗教会的创始人，描述他的皈依经历。他在一个集会上，他们在读圣经或读关于圣经的书。
+
+他说，描述他的皈依经历，我的心被奇异地温暖了。现在也许那对英国人来说是戏剧性的，但用另一种方式表述。但你可以有这样的经历，对此一无所知，那是新心开始。可能是数周后、数月后、数年后，你回顾并说，那是新属灵意识的开始，那是新的开始，我停止仅仅知道关于神的东西，并开始让他成为属灵现实。
+
+那就是所有改变开始的地方，有时这不是戏剧性的。你不会立即知道它，你必须回顾并找到它。但你必须被重生，你必须割除你的心，你必须获得一个新心。你有吗？
+
+你在你身上看到这些东西吗？好吧，如果你没有，你怎样才能获得它？这就是我对你的建议。不要说，神，给我一个新心。
+
+你知道，我需要一个新心，为什么？因为我想成为一个更好的人。它不会那样来。这是我想要你做的。
+
+我想让你看到神如何获得一个新心。神怎样为我们获得一个新心？看，我们被放逐。我们被流放。
+
+去亚当和夏娃。你说，好吧，那是犹太人，好的，亚当和夏娃，那是我们所有人。亚当和夏娃被放在伊甸园里，天堂，因为他们想成为他们自己的主人、他们自己的救主和主，他们被放逐，他们被流放。所以我们都在同一条船上。
+
+神怎样可能，尽管所有我们应得的诅咒，只是给我们一个新心？他怎样才能做到？答案在于割包皮的仪式权利。让我们回去，暂停一下，想象割包皮。
+
+你们中的很多人说，我不想考虑割包皮，好的。为什么这是以色列人与神订立契约的方式，你知道，与神做出承诺的方式？为什么？我意思是，纹身怎么样？
+
+你知道，剪一缕头发怎么样？为什么割包皮？你知道，总体上恶心和血腥，这就是要点。是的，现在你明白了这一点。
+
+因为当亚伯拉罕在创世记 15 中与神立圣约时，他走过了死亡动物被撕成碎片之间。为什么？当他许诺时，他走过死亡动物的碎片。为什么？
+
+他在表演违反诺言的处罚。他通过走过碎片来表演圣约的诅咒。他在说，我向你保证忠诚，主，如果我不遵守我今天承诺的，愿我被撕成碎片。那就是割包皮。
+
+当以色列人被割包皮时，他们说的是，我们会顺从你。如果我们不顺从你，我们可能会被割掉？因为割包皮是一个表演、一个对罪的诅咒的戏剧化、圣约的诅咒。罪的处罚是什么？
+
+当你撒谎时，它会把你从其他人那里割下来。当你欺骗时，当你残忍时，它会隔离你。你甚至可以在那里看到它。罪的惩罚、罪的诅咒是放逐。
+
+它是流放。它正在被割掉。与人分离。从你的国家分离。
+
+与神分离。割包皮代表我们应该经历的事情。割包皮。神怎样在十字架上给了我们一个新心？
+
+几个世纪后，在一个变成黑暗狂风的下午，耶稣被割破。荆棘在他的眉头，矛在他的侧面，钉子在他的手上，他正在被割破。当他说，我的神，我的神，你为什么离弃我？什么在发生？
+
+他不仅仅是身体上被割破。以赛亚书 53 中说的是什么发生在他身上？他为我们的过犯受伤，为我们的罪孽压伤，使我们得平安的处罚在他身上，因他受的鞭伤，我们得医治，因为他从活人之地被割掉。现在而且只有现在，因为你刚刚坐在这个讲道的 30 分钟里，你会有任何关于歌罗西书 2 第 11 和 12 节那个奇怪段落意思的想法。
+
+因为歌罗西书 2 第 11 和 12 节说，基督徒，你已经在十字架上的基督的割包皮中被割包皮了。你已经在十字架上的基督的洗礼中被洗礼了。你读到这个，你说，什么？但现在也许你理解。
+
+在十字架上，耶稣基督正在经历割包皮所代表的宇宙割掉。他正在经历判断的割包皮。他正在被从我们那里割掉。他正在得到我们应得的东西，因为没有做我们应该做的好东西。
+
+他正在承担伊甸园大门处的处罚，禁止亚当和夏娃回去的是一把火焰之剑，神的公义之剑。但剑落在耶稣身上。他被割掉，所以现在我们可以进去。如你所见，现在你听到了所有那个吗？
+
+当你思考耶稣为你做的那个。当你思考他为你做的那个。当你思考耶稣基督如何为你获得一个新心时。它感动你吗？
+
+他为你获得新心的方式感动你吗？那是你身上新心的开始。你理解了吗？看，如果你只是要求神，哦神，给我一个新心。
+
+为什么？没有。为了祝福。因为我在我的生活中只需要一些东西，永远不会起作用。
+
+但如果你看到耶稣基督做了什么，如果耶稣基督所做的，他的割掉，他的经历，他为你做的。如果那感动你，如果他为你获得新心所做的感动你，那就是你身上新心的开始。为什么？那就是使快乐和责任成为一的美。
+
+因为他去，我们的快乐和我们的责任，虽然之前相反，自从我们看到了他的美，被加入了，再也不分开，但美是什么？下一节去，看律法被基督充满了，听他赦免的声音，把奴隶变成孩子，把责任变成选择。耶稣基督在十字架上所做的美，为你承担你的宇宙割掉。如果那感动你，那么那就是你身上新心的开始。
+
+除非神已经在运作，否则你不会被感动。那不是惊人的吗？他已经在工作了。你知道，出生不是你可以决定做的事情。
+
+没有人曾经说过，我想我会出生。出生是发生在你身上的事情，但你在其中是活跃的。这是我对你的建议。你有这个新心吗，如果你没有，那么看看耶稣基督做了什么。
+
+如果它开始感动你，使你说，现在给我这个新心，不是因为我做的任何事情，而是因为耶稣基督所做的，他为我承担了一切。那就是新心的开始。除非神已经在运作，否则你甚至不会要求。那就是你怎样获得新生。
+
+这就是它怎样工作。你猜怎么着？如果你已经在你身上有了新生命，也许你已经拥有它很多年了。那也是新生命如何被激励成更伟大的有机成长的方式。
+
+看看他做了什么，接收它。让我们祷告。感谢你，父亲，给了我们为了有新心所需的东西，然后在我们身上有新生命被激励。所以我们祈求你向我们展示耶稣所做的美，并将我们的快乐和我们的责任焊接在一起。
+
+所以你，哦，主，耶稣基督，成为我们生活的中心。我们用耶稣的名义祈求，阿们。感谢你今天听教学。我们的祈求是你受到鼓励，它帮助你将福音应用到你的生活中，并与他人分享。
+
+如你所知，八月将是福音与生活的分享月。我们相信神使用小行为来做大事。如果你已经采取了一个步骤，也许你已经分享了一个资源或开始为某人祈祷。我们很想知道。
+
+你可以通过在我们的"去并分享地图"上标记你的位置来鼓励他人。只需前往 gospelandlife.com-slash-share,让我们知道你已经参与。今天的讲道于 2007 年录制。你在福音与生活播客上听到的讲道和谈话是在 1989 年至 2017 年之间录制的，当时凯勒博士是救赎长老会的主任牧师。

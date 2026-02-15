@@ -1,0 +1,311 @@
+# Love in the Neighborhood / Love in the Neighborhood
+
+## Chinese Translation / 中文翻译 / English Transcript
+
+Welcome to Gospel and Life. This month on the podcast, we are featuring a series on the sermon on the Mount, a collection of teachings where Jesus outlines what it really means to live the Christian life. In the series, Tim Keller explores a striking idea that Christianity is not just different from the world, it's also radically different from religion.
+
+In the bullet and you've got printed the passage on which the teaching is based, it's read it together, Luke chapter 6 verses 27 to 38. But I tell you who hear me, love your enemies, do good to those who hate you, bless those who curse you, pray for those who mistreat you. If someone strikes you on one cheek, turn to him the other also.
+
+If someone takes your cloak, do not stop him from taking your tunic. If someone gives to everyone who asks you, and if anyone takes what belongs to you, do not demand it back, due to others as you would have them, due to you. If you love those who love you, what credit is that to you?
+
+Even sinners love those who love them, and if you do good to those who are good to you, what credit is that to you? Even sinners do that, and if you lend to those from whom you expect repayment, what credit is that to you? Even sinners, lend to sinners, expecting to be repaid in full.
+
+But love your enemies, do good to them, and lend them without expecting to get anything back, and then your reward will be great. And you will be sons of the most high, because he is kind to the ungrateful and the wicked. Be merciful just as your father is merciful.
+
+Do not judge, and you won't be judged. Do not condemn, and you will not be condemned. Forgive, and you will be forgiven.
+
+Given it will be given to you. A good measure, press down, shaken together, running over, will be poured into your lap. For with a measure you use, it will be measured to you.
+
+This is God's Word. We are looking at the sermon on the mount, because this is one of the best places to find out what concretely Christianity looks like when it is lived out. What does it mean to actually live a Christian life?
+
+And one of the problems with the sermon on the mount is that there are so many great trees that you miss the forest. Now the trees are the individual subjects. In the sermon on the mount, we get into certain, very important and very hot, ethical subjects.
+
+So we get into guidelines for money, for sex, for relationships, honesty, promises, you get into all these things. Very interesting. But because it is so interesting, you can often miss the context.
+
+And what we did was before Easter, we spent two Sundays working on the context. There's two very basic principles. Things you've got to keep in mind all the time when you're reading.
+
+Otherwise you're going to miss the forest for the trees. Now what are those two principles? And I want to lay them out right away because it's easy to forget.
+
+It's been three weeks, two weeks ago. First of all, the sermon on the well given to you together. First of all, the sermon on the mount must not be read individually or moralistically.
+
+Now by individualistically we mean this. The sermon on the mount talks about how to conduct our relationships, how to treat our attitude toward our money, and so on. And in our society, because we live in an individualistic, privatized society, most of you are going to sit down and say, good, this will give me guidelines for making personal decisions on things.
+
+And it will, of course. But what the sermon on the mount is really about is about a kingdom, remember? We talked about that three weeks ago.
+
+A God's kingdom on earth. In other words, the sermon on the mount is talking about an alternate community. It's talking about what a community would look like that's ruled not by the world's values of power and success, and acclaim, and approval, and appearance, but by the kingdom of God's values, a sacrifice and service.
+
+And so what it's really doing here is it's showing us a community, an alternate society in which people get together as Christians, we say we're going to live in this way. And so it's a way to show the world what business practices would look like, what race relationships would look like, what our family life would look like, what our psychological life would look like, our friendships. And therefore you can't get the grace of the sermon on the mount by just coming to church even every Sunday, getting inspiration going home and saying, now I know how to live my life.
+
+You've got to be part of the community. Now, let me put it this way, who's got your number? Who are you accountable to?
+
+In Hebrews 3 it says, exhort one another daily, less your heart get hard. Now I want to ask you a question, who is exhorting a daily to keep your heart soft? Who is exhorting you as a Christian?
+
+Who are you talking to, for example, who are you talking to as a Christian about how much money to spend on yourself and how much money to give away? You say, as a typical Western individualist to person, you say, how I spend my money as my business. In other words, you're not part of a community.
+
+You're not part of a counter-culture. You're not part of the thing that the servant on the mount is talking about. The servant on the mount is calling us to be part of a community and until you are part of a community, not just visiting church on Sunday, even every Sunday, but part of a community of people who are saying, we're going to live this out together.
+
+You cannot obey, then you're not obeying the servant on the mount. So we can't read it individually. I've got to say that every so often.
+
+The second thing, and this will be even more brief because it comes out as the servant goes on, we must not read the servant on the mount moralistically, which means when you read an ECG's saying, here's how I want you to live. It is natural for people to say, aha, this is how I can please God. This is how I can reach God.
+
+I'm going to live like this. Then God will bless me. Then God will give me his salvation.
+
+Then God will give me his grace. Now listen. He said religion, things like that, Christianity doesn't.
+
+Religion is outside in. If I do all these things on the outside, God will give me his grace in here. Christianity is inside out.
+
+Christianity says only when I already have his blessing, already have his grace, already have a new heart, already have that change, will I be able to live out in this way. The servant on the mount assumes the new heart. It assumes the grace, the blessing.
+
+It doesn't say, here's how to get it. It assumes you've already got it and you say, well, how can that be? The whole point of the servant on the mount is to say, religion can never produce this kind of life.
+
+Can you say, how can that be? Well, that will be seen as we go. So we mustn't read it individualistically, and we mustn't read it moralistically.
+
+That's the farest. Now, let's get to the first tree because we're going to do this for the rest of the spring, all the way to June. The first tree is relationships.
+
+What we have here in this very famous passage that we just read, there's another version of it in Matthew 5, but it's a lot longer than the other place where we have the servant on the mount. There's a shorter version of it, and therefore, I pull it out because it fits the page, see? It's on the page.
+
+Now, and Matthew 5 did not. Much of the other reasons. So relationships, that's the first subject.
+
+Now, as soon as you hear the word relationships, right away you say, ah, relationships, you're thinking of friendship, or love and marriage and romance. And of course, everything in here absolutely applies, especially to marriage. Love your enemies.
+
+Do good to those who curse you. Okay? In other words, and you know what, I can't even get back to this as funny as that is, as funny as that is, if this is the behavior that God demands, that we take with people who are hostile to us, it's obvious that he expects us to give it in our friendships and in our marriages.
+
+We can't expect that God expects us to do less for people that we are close to than people in our neighborhood. However, the main purpose of this passage is not to talk about friendships and love relationships. The main purpose is to talk about our relationships to other people outside of our friendships as a matter of fact.
+
+And therefore, if you look through here, you'll see Jesus right away starts off with three cases. He's talking about three kinds, three groups of people right away, and he tells us what behavior he expects. Now, let's look and see what he's calling for.
+
+And then we'll immediately be shocked, upset, and then we'll have to say, okay, how can we do it? Now, the first thing, the first group of people is people who oppose you. People who are against you, people who have wronged you.
+
+And that's why we see love your enemies, those who hate you, those who curse you, hating and curse you means they will you ill. And then those who mistreat you and those who struck you on the cheek, those are people who have done you ill. And Jesus says, I want you to love them, I want you to care for them, I want you to pray for them, I want you to pull for them.
+
+And I want you to as much as possible be good to them. That's the first group. The second group are people not who have wronged you, but people less fortunate than you.
+
+Now you see, if you read this, there's a tendency when it says, if someone takes your cloak, do you not stop them from taking your tunic? And there's a tendency to stick that sentence with what came before, in which case it looks like it's saying, when someone robs you, say, oh, by the way, here's my safe behind this picture. But what it's saying, because this sentence actually goes grammatically and logically with what comes after, give to everyone who asks you.
+
+And if anyone takes what belongs, you don't demand it back to others as you would have them do to you. Now you see this dude others as you have to do to you. If we're talking about robbery here, that doesn't fit, does it?
+
+It sounds like it's saying, well, when you're robbing somebody, how would you want to be treated? No, that's not what it's saying. It couldn't be saying that.
+
+And rather, the word take and ask are synonyms, just like, you see, hate and curse and mistreat are synonyms. And what it's saying is, when someone comes, and they say, I'm in need, you're supposed to be promiscuously generous, Earl Ellis, who wrote a wonderful commentary, I'm going to quote him a couple times, wrote a great commentary on the book of Luke. This is what he says about this passage.
+
+He says, this right here where it says, ask, anyone who asks of you give, not just your cook but your tunic. He says, Christ is not here advocating perfunctory or even large gifts to the poor. Get this.
+
+He enjoins a moral concern that will express itself in a spirit of self-denial in every encounter of life. And that will do, and will do this for the sake of the kingdom of God. He says, a spirit of self-denial that is part of every encounter in life.
+
+Now here's what that means. It means you are so concerned for people who have less than you. But you don't even go out and buy a chair without thinking about them.
+
+You say, OK, I'm going to go buy a chair, but I've got to make sure I buy a chair in such a way that I have money to give away. I mean, it's going to affect everything, not just your outer coat, but your tunic. It's a way of saying that every single part of your life be oriented toward promiscuous generosity.
+
+You're never not thinking about it. It's not enough to say, well, you know, every time somebody comes and takes an offering or somebody asks to give it to the office, I'm pretty generous. This is much, much more extensive than that.
+
+So first of all, you have people who have wronged you. Secondly, you have people who have less than you, who have a more less fortunate you. But here's the last one.
+
+It's more subtle. Thirdly, people who are indifferent and different. Now, if you look at the rest of this, it says, if you love those who love you, if you love those who can be good to you, if you love those who can repay you, now, what is he talking about?
+
+And then he says, even sinners, now, here's what he's talking about. Think about it for a minute, especially when he gets to the bottom. He says, I want you to be kind to the ungrateful and the wicked, see that?
+
+That's who's in that paragraph. Now, let me put it like this. Everybody's like this.
+
+Let's say you're a member of a political party, whether you're conservative or liberal. Maybe if you're in the middle, this doesn't count because you don't consider yourself part of a party, a certain political outlook. But let's say you have a racial.
+
+If you're Anglo, it doesn't mean you may be not in a dominant society where Anglo is your dominant. It may not be quite as conscious of your race. But if you are African-American or Latin, Latino, or Asian-American, you're more conscious of race, no matter who you are, there's a tendency to see another group of people.
+
+Over there, and it's not your group. And at the very, very best, you don't respect them very much. And at the very, very worst, you think that they're the problem in society.
+
+At the very best, you don't respect them. At the very worst, you think they're the problem in society. Now, you will probably think, but I know some of these people.
+
+I'm friendly with them. Some of them are kind of friends with me. I see them at the office, or I see them at work, or they're that sort of thing.
+
+Or I went to school with some of them. I know some of them, however, they are, basically, they're different. They're not like you.
+
+And you actually think of them as sort of kind of strange in many ways, or even people that you really just don't respect. Now, you may be civil to them, but you don't do for them. You don't do good.
+
+You don't lay yourself out. You don't open your heart home. You don't open your purse.
+
+You don't open your heart. You don't open your life. You hang with the people who are like you.
+
+The people you respect. And Jesus comes along and says, of course, everybody's like that. That's the gist of his point in here.
+
+Absolutely, everybody's like that. He's talking to people. And when he uses the word sinners here, you see the word sinners?
+
+Why is it in quotations? Why is it in quotes? Jesus never uses the word sinners, except in quotes, usually.
+
+Here's why. Remember, like in Luke 15, when the Pharisees come and say, he eats with sinners. And see, they mean by sinners, irreligious, immoral people, prostitutes, tax collectors, Roman collaborators, stuff like that.
+
+And Jesus doesn't use the word that way. He doesn't divide the world into sinners and the nice religious people. So it must mean he's talking to the kind of people who use the word like that.
+
+And what he's saying to them is absolutely everybody on the surface, you say, I'm religious and they're not, but absolutely everybody does is what do they do? You walk into a room and you look around at the other people in the room and you say, are these my kind of people? Do I want to be here?
+
+Do I want to associate with them? Do they make me feel more about myself like I want to feel? Now, Jesus is saying, everybody does it.
+
+Now let's just say you're a worldly person. Well, what you're going to do is you're going to walk into the room and you're going to look around and you see people that look less cool, less savvy, less accomplished than you, people that, you know, you tried real hard to keep yourself in shape and dress nicely and these people look kind of like slabs and, you know, you'll put up with them for a while. You're not going to open up.
+
+These people do not make you feel about yourself the way you want to feel. You go into these rooms and you say, are these the kind of people that will move me up socially to be accepted by the people that want to be accepted by and will these people move me up psychologically so that I feel about myself the way I want to feel about myself. And if these people aren't as cool as you think you might be at least, at least try to be, if they're not as, if they're not as acclaimed, if they're not as pulled together, if they're not as accomplished, if they're not as good looking, then you just find your way out of that room.
+
+And here was, what Jesus is saying is, okay, but what about religious people? Are they different? No.
+
+Religious people come on in and they look around and religious people need to feel that they're pretty good because all religious people deeply need the assurance that they're good. Why? Because they're basic, they're, they're whole identity on the idea, I'm a good person.
+
+If I live a good enough life, if I obey the similar amount, if I do all the things right, then God will love me. But you never know you're good enough. So you desperately need assurance that you are.
+
+So when you walk in, you look at people and you say, are these, are these my kind of people? Are these upright decent people? Are these people that will help me get accepted by the people I need to feel accepted by if I'm going to feel okay about myself?
+
+Are these the kind of people that make me feel like I'm a decent person that I have the right ideas, that I have the right beliefs, that I have the right doctrines, that I have the right practices? Jesus says, you're all the same. And he says, however, therefore Jesus is not contrasting two ways, he's contrasting three ways.
+
+He's saying, here's how sinners do it, here's how religious people do it, and Christians have to be different than both. He says, I know everybody respects civilly. I mean, they show respect to the people whose beliefs differ with theirs, people that they don't respect much, people who are other, but you're going to be different.
+
+Jesus' Christians are going to give, they're going to do good, they're going to lend, they're going to open their hearts, they're going to open their lives, they're going to deliberately look for opportunities as much as possible to do for people who are very different from you, the kind of things that everybody else only does for their own kind. And therefore Jesus is saying, here's how you treat enemies, love and forgiveness. Here's how you treat people who are less fortunate than you, and here's how you treat people who are different and indifferent to you, the people that you consider ungrateful and wicked.
+
+And Jesus says, that's how I want you to live. Now let's stop for one second. Most religions have a lot of ethics to go on these lines, but everybody agrees that at this point Jesus has broken through his burst the banks.
+
+When he starts to say, love your enemies. When he starts to say, live lives of promiscuous generosity. And when he says, I want you to alone amongst the face of the earth, be people who are deliberately able to with love and without any disrespect, share and serve people who are utterly different than you.
+
+In fact he goes this far, in a sense what he's doing in here is he's saying, the mark that you're a Christian, the thing that differentiates a Christian from people who are both religious and irreligious is their attitude toward people who are deeply different than they are. Do you act superior to them? Or the people who are come against you, do you pay them back, or do you forgive them and serve them without superiority?
+
+Jesus, that's how we know that you belong to me. Are you looking for ways to grow in your faith this summer, or are you hoping to help new believers or kids grasp the heart of the Christian faith? For many of us, the summer months can provide more time to deepen our faith and our understanding of what it means to follow Christ.
+
+A great resource to start using this summer is the new city catechism devotional, God's truth for our hearts and minds. This devotional brings the historic catechisms of the Christian Church to life, offering a question to consider for each week of the year. In the introduction, Tim Keller lays out the case for catechesis, the rich and communal practice of learning and memorizing questions and answers that frame the foundational beliefs of the Christian faith.
+
+Each week includes a scripture passage, a prayer, and a brief meditation that will challenge and inspire you. The included commentaries are by contemporary pastors such as John Piper, Tim Keller, and Kevin D. Young, as well as historical figures such as Augustine, John Calvin, and Martin Luther.
+
+This month, in addition to the new city catechism devotional, we are including a great companion resource, the new city catechism for kids, as our thank you for your gift to help gospel and life share the hope of Christ's love with people all over the world. So request your copies today at gospelonlife.com slash give. That's gospelonlife.com slash give.
+
+Now here's Tim Keller with the remainder of today's teaching. I'll write away people say, first of all, A, I can't do it, and B, if I did, I think it sounds like suicide, right? People say it's impossible for me inside, and even if it was possible, it seems like, you know, it would be suicidal.
+
+Well, listen briefly, but there's an awful lot of stuff packed into this passage. Briefly, there's three things that Jesus says, almost as if he knows people are going to say that. He says, let me tell you what the difficulty is, and let me tell you what inner dynamic you need to have, and then let me give you some directions, difference, difficulty, dynamic and directions, and here's what they are.
+
+First of all, he says, here's what the basic, basic difficulty is. Three times, he says, if you love only those who love you, what credit is that, or he says, if you love, if you only do good to those who do good to you, what credit is that? And then three times, he says, what credit is that?
+
+Now, that's a hard thing to, if you read that, it's kind of vague. It's a little ambiguous. What does it mean?
+
+What credit is that? Credit with who? And the NIV, the translation we have there, is trying to be ambiguous, and it ought to be ambiguous, because it's a very, very interesting and pregnant and multi, I think basically, multi-dimensional thing.
+
+Jesus is actually saying, literally, I'll tell you what he's saying. He says, if you love those who love you, and he says, what grace? This is there in that.
+
+Because the word that's translated credit is the New Testament word for grace, caress. It's the New Testament word that means unmerited love. And when he says, if you only love those who love you, where's the unmerited love in that?
+
+Well, now that's a little weird, but here's what he's saying. Number one, he's saying, when you love your own kind, and not others, when you love people who are giving you some kind of emotional payoff or some kind of social payoff, that they're helping you socially, or they're helping you in your self-esteem, whenever you, you know, I mean, you've got to be careful. Think about this.
+
+Religious people look like they're kind of working with draining people, and they're working with needy people, you know, they look like it very often, but why? Why are you doing it? Are you not doing it so that you can say, I know God loves me, because look at the kind of person I am.
+
+In that case, you see, Jesus is saying, when you only love people for a payoff, it's not really that you don't love well enough, you're not loving it all. Jesus is saying, don't look at my standard and say, well, I love people, but not like that. Jesus says, if you love people because of what they profit you, you're not loving them at all, you're loving what they give you, you're loving your own ego, and you're using them to fulfill it.
+
+You're not loving them for their sakes. You're loving them for your sake. You're not loving it all.
+
+There's no loving at all. Here's Person A, and here's Person B, and Person A is cool, and Person B is a slob and kind of draining, and you love this one, much more than you love that one, why? You know, it has nothing to do with them, has everything to do with you, it's not about them.
+
+My goodness, you can be attracted, you can have a crush on this person, and it's not about them. It's about you, boy, the person who looks like this, and of a person who is this kind of position in society, and of a person who's got looks like this, if they like me back, then I'll know I'm somebody. And Jesus is saying, there's no love here at all, because what you're doing is you're loving on the basis of their merits with regard to your self-esteem.
+
+So first of all he's saying, your love isn't love, but then secondly he's saying, and here's the reason you are indeficent. If you only love those who love you, where's the love in you, and what he means is simply this. Think of an investment banker, you know, some of you are, all right, now let's just say you are just rolling at it, not just saying, you know, and you're personally wealthy, and you're just absolutely rolling at it, you're an investor, let's not say you're an investment banker, you're an investor, and you're just rolling at it, and you know, you have a number of opportunities that come before you.
+
+If you're just rolling at it, you know what? You can look at a product and say, I like this new business, I'll capitalize it, why? Because I like the product, because I think it's good for people, because I like the attitude of the entrepreneur, right?
+
+Even though I don't know if it's going to work, but I like that, so I'm going to do it. Okay, but what if you're an investor sucking air? What if you're an investor in a lot of trouble?
+
+What if you're an investor saying, man, I've got to make a major profit on the next investment, then I'm sorry, you're only going to put your money, not whether it's a good product, not whether you like the entrepreneur, you've got to put it wherever you're going to get a payoff. Now, Jesus Christ is saying, everybody on the face of the earth is an investor sucking air when it comes to love. You are not sure about who you are, you are not sure of yourself, that's the reason why you make such distinctions in who you love and who you go out with.
+
+And I would say, I'm talking about friendship, man, I'm talking about romance, but I'm also just talking about who you associate with, who you sit down with, who you spend time with, how much time and how much heart you put into a conversation on the street is all going to have to do, Jesus says, with what's happening in your heart. And he says, because you're in deficit, you're not loving it all, you're investing in anybody that can give you the payoff you need. And that's the problem, because that inner love deficit, that inner grace deficit, you're going to have to experience unmerited love, you're going to have to experience an ocean of unmerited love, if you're going to be able to give it.
+
+So that's the difficulty. So what's the dynamic? The dynamic is right here at the very end, now take a quick close look.
+
+First of all, and I'm going to read you what Earl Ellis says, first of all, Jesus says, then your reward would be great and you'll be sons of the most high because he is kind to the ungrateful and the wicked. If you can get ahold of that verse, if you believe it, you know it, you understand it, you're taking the center of your life, you'll have the dynamic that will enable you to begin to move out and do what Jesus Christ is saying. You'll want to do it, you'll actually be able to take steps.
+
+If you don't believe that verse, if you don't understand what's in it, then everything Jesus calls you to is at best impossible and at worst dangerous rubbish. But what if you understand what's in there or what's in there, two things? First of all, excuse me, it she knows, okay?
+
+Please go away. The first thing it says is your sons of the father. Earl Ellis in his commentary on Luke says, you have to be very careful because it looks the way the English translation comes out, doesn't it?
+
+It looks like if I give love, then I'll become a son of God, right? It says, then you will be. It sounds like, then you will become, but that's not what the Greek sense is at all.
+
+This is what he says. He says, this is spoken to disciples for whom God is already your father. What Jesus is doing here is inviting his disciples to actualize in their ethic the meaning of their relationship.
+
+They are called to be what you are. Now what this means is a Christian has to understand that I'm adopted. What is adoption?
+
+Now John chapter 1 verse 12, Paul and Galatians 4 says, even though everybody is a creation of God and therefore loved and valued by God, it is an act of grace when we are adopted. Now to be adopted means something very important and in those days, if an heir was, let's just say, a wealthy person, a wealthy man or woman had no children, what was very normal for them to do is they would take some other adult and they would adopt them and then that person would become their heir and what would happen at the moment of adoption and that's the background to everything the New Testament understands about our relationship with God. Adoption, first of all, it's a legal grace because you might be penniless, but the second that the seal is put on your adoption papers suddenly, even though you haven't done anything to work for it, suddenly, automatically, you're rich.
+
+By grace, legally, by standing in an instant, but the second thing is you don't just have this wealth. You have a new intimacy, suddenly this great person is no longer your CEO, no longer your prime minister, this person is your father and that means you have intimacy with him, it means your relationship is permanent, a father's love for a child gets stronger when it does wrong. You also have accessibility, don't call the CEO or don't call the prime minister up at 2 a.m.
+
+to ask for a glass of water, that won't be considered right, but a son or a daughter can ask. And so suddenly, now that is assumed here, do you understand that relationship? Do you understand that the Lord of heaven and earth is your father that you've been adopted by grace?
+
+In spite of everything you are, you're rich in him, you're loved permanently, you are loved unconditionally, you are loved comprehensively, that's an assumption. I can't go into all that now, I'm not going to go into all that now, this passage doesn't explain adoption, it assumes it and you have to understand that that's the first point. The first thing you have to understand to get that dynamic is are you adopted, do you understand what that means?
+
+Is that the greatest thing about you? Is that really the source of everything? But then secondly, it says for he is kind to the ungrateful and the wicked.
+
+Now you see, the ungrateful and the wicked is a parallel with everything that's been going up. In other words, Jesus is saying here, I want you to be like your father because he has been gracious to his enemies, he's been gracious to his enemies, and who are those enemies? Wow, us, and this is the dynamite, and I tell you, if you can light this dynamite, you can light the fuse on this and here's how you do it, a Christian understands him or herself to be an adopted enemy, an adopted enemy, two things, on the one hand you were an enemy, now neither religious nor irreligious people believe their enemies of God, and I don't have the time and this isn't the place, because this passage doesn't go into it.
+
+For me to explain all of how that operates, but here's the way, religious people never think of themselves as enemies of God, they say I'm trying so hard, I'm trying very hard to be like God, I'm trying to do it all, and irreligious people say, well I'm indifferent or I have trouble believing, but they don't consider themselves enemies of God, and one of the ways you know that you're a Christian, that the basis for your relationship with God is on grace, and not by your performance and your achievement and your good works, is that you've come to understand that you are an enemy, that means that you have just you have resented his claim on your every centimeter of your life, and you have even come to see that even your efforts to be good have really been ways of trying to get control of a God and get him to have to do things for you, and a Christian is somebody who says I'm an enemy, but I'm adopted, and when you put those two things together, everything that's in here flows out, why, where do you see, where do you say, well that's interesting conceptually, all right, you have to melt your heart with it, where do you see God really being kind of the ungrateful and the wicked on the cross, because on the cross you see him cursed, but he's blessing, on the cross you see him mistreated, but he's praying, just like Jesus is not saying, Jesus is not just simply saying, be like this, and he's not just simply saying, be like this because I'm like this, he's saying, be like this because I am going to be like this for you, and when that happens, when you see that, in other words, when you see him loving you, and let me ask you a question, what did loving you do for Jesus' social standing? Jesus didn't just get nothing out of you, he went infinitely down, he came from heaven to earth, as the song goes, he came from earth to the grave. He went all the way down, let me ask another question, what did Jesus Christ get out of you, not socially, but psychologically, what did he do for his self-esteem?
+
+He made him to be sin who knew no sin. Look, here is Jesus Christ who looks at you and loves you for you, not only did he get nothing out of you, he got exactly the opposite of what you seek to get out of your relationships, unless you see that on the one hand, you were so lost, he had to die for you, on the other hand, you were so loved that he had to die for you. And when you take that in and you see him doing that, you will have finally the answer to the love deficit, the unmerited love deficit, and you will look out there and you'll see people and you'll say no matter how broken they are, I was broken, no matter how mistaken they are, look at all their wrong views, I was mistaken.
+
+Even though they're even other hostile to you, I was hostile to him while he was doing it. I was upset as he was reaching out to me, we were jeering Adam in a sense, humankind was jeering Adam while he was dying for us, and you'll never be the same again when that gets all your heart. And then what happens is here's the directions, then what difference does that actually make?
+
+Two things. First of all, turn the other cheek, and then forgive. Or you say turn the other cheek, that's the problem, that seems very, very impractical, oh really, now think about it for a second.
+
+First of all, look at verse 27-28, these are very famous places. Love your enemy, pray for those, pull for them, turn the other cheek. Well, it sounds like it's saying, you just walk all over me, that's all right, hit me again, I'm still breathing.
+
+Listen, first of all, look at the word butt. What's the word butt, therefore? It's a contrast.
+
+Well, what came before it? Well, we read it three weeks ago, Jesus Christ in the beginning of Luke, this is the Luke version. Jesus Christ says, blessed of the poor, blessed of those who grieve, blessed of those who rejected, woe to the rich, woe to those who are in power.
+
+Well, remember that? Jesus is calling for justice. Jesus saying, we have to oppose injustice, we've got to go against injustice, but you must turn the other cheek.
+
+Well, wait a minute, you say, how can you say we have to oppose injustice, but then we have to turn the other cheek? Think of what this means. First of all, why do you strike somebody on the cheek, to knock them out?
+
+To rob them? No, no, no, no, you don't have to be a martial arts expert. You go for the job, if you're trying to knock them out, you go for the solar plexus, you go for the feet.
+
+Why do you slap somebody on the cheek to insult them? And why do you turn the cheek? Now, even in our society, women do this in a way that men tend to not, but we still do it.
+
+Whenever I go to see my sister, whenever I go to see my sister-in-laws, if ever I'm going, you know, and my family's coming to see their family, they come on out and what do they say? You know, my sister goes like this. Hi, what's she doing?
+
+She wants to be kissed. She was greeting me and she wants me to greet her. Now, here's what Jesus is saying.
+
+He's saying, I want you to oppose injustice, but I want you to do it without any, without any inner touchiness about your ego, without, you've been insulted, so what? He says, I want you to oppose injustice, but you don't go out to slap them back. You don't go out, you oppose injustice for the sake of justice.
+
+You oppose injustice out of love for the person, the perpetrator, it's never loving to let somebody do injustice and sin. And you oppose injustice for the sake of the people around. You oppose injustice for it's sake, for the person's sake, for everybody else's sake, you never do it.
+
+Just simply to say, I'm going to make that person feel bad, I'm going to make that person know they were wrong. I'm going to, in other words, Jesus said, not this slapping stuff. This is exactly the opposite of how you and I do it, because Jesus says, I want you to directly, courageously openly say, what you did was wrong, but inside you've forgiven them.
+
+Why? Because you have the emotional humility, because you are an enemy, but you have the emotional wealth, because you're adopted, that you don't have anything to prove, because you know you are a sinner. You see, you have the emotional humility, you know you're a sinner, but you have the emotional wealth, because hey, look what I've got in Jesus.
+
+Whatever they took from me, you know, my reputation, whatever this person did to me, it's not the most important thing to me. You know, Jesus is the most important thing. And therefore, because you have an inner forgiveness and you have, your pride's not all hurt on the inside, you walk out and you oppose that person with poise, you know, without a lot of rancor, without a lot of vengeance and venom at all, okay?
+
+So you speak out, but inside you're at peace, but that's not how we do it, you know it happens when someone wrongs us, we say nothing, we say I don't want to rock the boat, but inside we're burning up with her pride. And Jesus says, I call you to be the opposite, the opposite. And you can.
+
+Look, practical ramifications are so many. We're a church, right? Why is it in this community?
+
+To some degree, people who don't have the best jobs and they don't have the best bodies may very often feel just as, just as sort of shunned as people as they feel out in the rest of the world that has to stop. Yeah. Secondly, a lot of you need to start telling the truth to people who have hurt you after you've worked on your own heart and forgiveness.
+
+Then you go to them for their sake. Do you realize that the only way to beat injustice is not to be bitter? Because if you're bitter against what people have done to you, then they have turned you into what they are, but they're controlling you.
+
+The only way to really beat injustice is to utterly forgive it and then oppose it with a certain amount of joy. Some of you got people you're going to have to talk to. And lastly, Jesus was the good Samaritan.
+
+He was the true good neighbor. Why did I call this love in the neighborhood? I'll tell you why because when you say love by neighbor, it's so vague and pie.
+
+Somebody thinks about, what does that mean? I'll tell you what it means. Your neighbor, Jesus says, is anybody that you share God's green earth with.
+
+So if you're a Christian, look around your neighborhood. Do you ignore them and just go after the Christians? Do you know your neighbors?
+
+Anybody there, Jesus Christ says, you need to treat as if they were me. Find them. Look for deliberate reasons to be for the common good of your neighborhood.
+
+Because Jesus Christ, when he gave the good Samaritan parable, he was saying, I'll tell you who your neighbor is. He says, a Jew was in the road and along comes the Samaritan. The Jew was bleeding member and he's in the road and along comes the Samaritan and they hated each other.
+
+Jesus Christ might have just as well said, a Ku Klux Klan wizard was bleeding and lying in the road and an African-American came along. He could have said a Serb was lying in the road and a Kosovoire came along. He could have said a Nazi was laying in the road, bleeding and dying, and along a Jew came along.
+
+He's trying to say absolutely anybody in your road is now your neighbor because you were anybody to me. Look what I did. You talk about resources for social justice.
+
+You talk about resources for bringing down barriers. Nothing will do what this can do, but if you want to be a neighbor, first you need a neighbor. You need to see that Jesus Christ was the one who comes along as in that parable and you were laying on the road and what did he do?
+
+What's the parable say? He got down and he puts you up where he was. He puts you on his steed and he goes down on the ground and that's what Jesus did.
+
+You were lying in the road. He puts you and gives you his status. He gives you his standing.
+
+He gives you his righteousness. He gives you his place and he took our place until you are amazed with the mercy he gave. You will never be empowered to provide the mercy he requires.
+
+Let's pray. We thank you, Lord, for this kind of resource. This is dynamite.
+
+This is like a fuse. All we have to do is light it. But now help us to light it.
+
+Thanks for joining us here on the Gospel and Life Podcast. We hope that today's teaching encouraged you to go deeper into God's Word. You can help others discover this podcast by rating and reviewing it and to find more great Gospel-centered content by Tim Keller, visit gospelandlife.com.
+
+Today's sermon was recorded in 1999. The sermons and talks you hear on the Gospel and Life Podcast were recorded between 1989 and 2017 while Dr.
+
+---

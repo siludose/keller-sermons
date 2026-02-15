@@ -1,0 +1,67 @@
+# 重生 / Born Again
+
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
+
+## 经文 / The Text
+
+> **John 1:12-13:**
+> "Yet to all who did receive him, to those who believed in his name, he gave the right to become children of God—children born not of natural descent, nor of human decision or a husband's will, but born of God."
+
+> **约翰福音 1:12-13：**
+> "然而，凡接待他的，就是信他名的人，他就赐他们权柄，作神的儿女——不是从血气生的，不是从情欲生的，也不是从人意生的，乃是从神生的。"
+
+---
+
+## 为什么像尼哥底母这样的人也必须重生？ / Born Again is Essential
+
+Jesus was the first one to say "you must be born again" and he said it to Nicodemus—about as admirable a figure as possible. He knows the Bible, he's incredibly moral, but he's not self-righteous. He's pulled together, he's successful.
+
+And what does Jesus say to him? "You must be born again to even understand the first thing about the kingdom of God."
+
+It can't be a call to get more religious. It can't be a call to get more moral structure in your life.
+
+It's a challenge to traditional religion.
+
+---
+
+耶稣是第一个说"你们必须重生"的人，并且他对尼哥底母说了这话——尼哥底母是个非常出色的人物。他通晓圣经，道德高尚，但并不自义。他条理清晰，事业有成。
+
+而耶稣对他说的是："若不重生，连神国最基本的真理也无法明白。"
+
+这并不是一个要求你更加宗教、更加道德规范的呼召。**这是一个对传统宗教的挑战。**
+
+---
+
+## 有机成长与新身份：重生意味着什么？ / Born Again is Radical
+
+**New Life**: Being born again means organic growth—growing in love, joy, peace, patience, kindness, humility. Not growing your resume, but growing personally.
+
+**New Identity**: You are adopted as a child of God. That means intimacy—the Father loves you with all the love he loves his only begotten Son. And inheritance—we will inherit the new heavens and new earth.
+
+---
+
+**新生的生命**：重生意味着有机的成长——在爱中成长，在喜乐中成长，在和平中成长，在忍耐中成长，在仁慈中成长，在谦卑中成长。不是增长你的简历，而是个人的成长。
+
+**新的身份**：你被收养为神的儿女。这意味着亲密的关系——天父用他爱独生子的全部爱来爱你。还有继承权——我们将承受新天新地。
+
+---
+
+## 空手而来：如何重生？ / Born Again is Simple but Hard
+
+To believe in his name means to repent and rest. Repentance means coming with nothing—recognizing that everything you've ever done, good and bad, was trying to create your own identity instead of resting in what Christ has done. "All you need is nothing, but most people don't have it."
+
+Jesus said in John 16: "A woman giving birth has pain because her hour has come, but when her baby is born she forgets the anguish because of her joy." Jesus is saying: You are born through my pain, my suffering, my work, at the cost of my life.
+
+But like a woman in labor, when I see you, my joy overwhelms my pain.
+
+---
+
+相信他的名意味着**悔改**和**安息**。
+
+悔改意味着带着空虚的心来到耶稣面前——承认你所做的一切，无论是好事还是坏事，都是试图为自己创造身份，而不是依靠基督所做的。你需要的是"一无所有"，而大多数人却做不到这一点。
+
+耶稣在约翰福音16章中说："女人生产的时候会有痛苦，因为她的时候到了；但孩子生下来之后，她就不再记得那痛苦，因为欢喜有一个孩子诞生在世上。"
+
+**耶稣的意思是：你通过我的痛苦、我的苦难、我的工作和生命的代价而重生。** 但就像一个正在生产的妇女一样，当我看到你时，我的喜悦会压倒我的痛苦。
