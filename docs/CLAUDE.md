@@ -50,6 +50,9 @@ python3 scripts/translate_sermons.py --file "Sermon_Name"
 # Query CUV Bible verse
 python3 scripts/cuv_bible_query.py --book 希伯来书 --chapter 4 --verse 1
 
+# Merge transcript + translation → combined bilingual file
+python3 scripts/generate_combined.py Sermon_Name
+
 # Safe paragraph merge (verified ±2% content preservation)
 python3 scripts/safe_paragraph_merger.py --file "Sermon_Name"
 ```

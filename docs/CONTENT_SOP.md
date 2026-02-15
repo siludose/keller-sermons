@@ -128,7 +128,9 @@ python3 scripts/cuv_bible_query.py --book 希伯来书 --chapter 4
 
 ### Step 5: 添加内容型标题
 
-将通用标题改为**基于内容的描述性标题**：
+为 **translation.md 和 transcript.md** 同时添加 `###` 章节标题。
+
+**translation.md** — 中文内容型标题：
 
 | 类型 | ❌ 通用标题 | ✅ 内容型标题 |
 |------|-----------|-------------|
@@ -136,38 +138,42 @@ python3 scripts/cuv_bible_query.py --book 希伯来书 --chapter 4
 | 概念型 | `### 核心信息` | `### 安息日的安息：灵魂的深度睡眠` |
 | 行动型 | `### 应用` | `### 安息的检验：你能坐着听批评吗？` |
 
+**transcript.md** — 对应的英文标题：
+
+| translation.md | transcript.md |
+|---------------|---------------|
+| `### 引言：你知道怎样躺下并睡着吗？` | `### Introduction` |
+| `### 安息日的安息：灵魂的深度睡眠` | `### Sabbath Rest: The REM of the Soul` |
+| `### 安息的检验：你能坐着听批评吗？` | `### The Test of Rest` |
+
 **要求**：
-- 标题直接反映该段落的核心内容
-- 中文标题 ≤ 15 字
+- 两个文件的 `###` 标题数量必须一致（合并脚本靠此对齐）
+- 中文标题反映核心内容，≤ 15 字
+- 英文标题简洁描述性
 - 只加标题，不改动正文内容
 
 ### Step 6: 合并为中英对照
 
+**工具**：
+```bash
+python3 scripts/generate_combined.py Sermon_Name
+```
+
+脚本自动读取 `transcript.md` + `translation.md`，按 `###` 标题对齐，生成中英交替的发布文件。
+
 **输出**: `combined/{Sermon_Name}.md`
 
-**格式模板**：
+**生成的格式**：
 ```markdown
 # 中文标题 / English Title
 
 **讲员**: 提摩太·凯勒 (Tim Keller)
-**经文**: 书卷名 章:节 / Book Chapter:Verse
-**系列**: 系列名 / Series Name
+**经文**: 书卷名 章:节
+**系列**: 系列名
 
 ---
 
-## 核心经文 / Key Scripture
-
-> **Hebrews 4:1-12:**
-> "English scripture text..."
-
----
-
-> **希伯来书 4:1-12：**
-> "中文和合本经文..."
-
----
-
-## 小标题 / Section Title
+## 中文小标题 / English Section Title
 
 English paragraph...
 
@@ -268,6 +274,7 @@ Full English content...
 - [ ] 圣经经文已替换为 CUV 和合本
 - [ ] 经文格式正确：`> "..." \n> ——书卷名 章:节`
 - [ ] 标题为内容型（非通用型如"第一部分"）
+- [ ] transcript.md 和 translation.md 的 `###` 标题数量一致
 - [ ] `combined/{Sermon_Name}.md` 已生成，格式正确
 - [ ] combined 文件大小 ≥ transcript + translation
 
@@ -292,6 +299,7 @@ Full English content...
 |------|------|------|
 | `translate_sermons.py` | 翻译 | `python3 scripts/translate_sermons.py --file Name` |
 | `cuv_bible_query.py` | 查经文 | `python3 scripts/cuv_bible_query.py --book 书卷 --chapter N --verse N` |
+| `generate_combined.py` | 合并中英对照 | `python3 scripts/generate_combined.py Name` |
 | `safe_paragraph_merger.py` | 段落合并 | `python3 scripts/safe_paragraph_merger.py --file Name` |
 | `file_normalizer.py` | 文件名规范化 | `python3 scripts/file_normalizer.py` |
 
@@ -340,8 +348,8 @@ combined/Entering_His_Rest.md → 中英对照发布版 (~9.5KB)
 □ 3. 写入 metadata.json + transcript.md
 □ 4. 执行翻译 → translation.md
 □ 5. 查询并替换经文为 CUV 和合本
-□ 6. 为 translation.md 添加内容型标题
-□ 7. 合并生成 combined/Sermon_Name.md
+□ 6. 为 translation.md 和 transcript.md 添加对应的 ### 标题
+□ 7. python3 scripts/generate_combined.py Sermon_Name
 □ 8. 运行质量检查（文件大小、格式）
 □ 9. git add + commit + push
 ```
