@@ -1,3 +1,5 @@
+### 诚实生活的力量
+
 # Integrity
 
 ## Chinese Translation / 中文翻译

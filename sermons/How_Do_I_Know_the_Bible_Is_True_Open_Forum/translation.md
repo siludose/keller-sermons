@@ -1,3 +1,5 @@
+### 圣经为何值得信任？
+
 # How Do I Know the Bible Is True (Open Forum)
 
 ## Chinese Translation / 中文翻译

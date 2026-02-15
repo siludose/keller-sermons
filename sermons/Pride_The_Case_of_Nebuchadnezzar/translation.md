@@ -1,3 +1,5 @@
+### 骄傲如何毁灭我们？
+
 # Pride The Case of Nebuchadnezzar
 
 ## Chinese Translation / 中文翻译

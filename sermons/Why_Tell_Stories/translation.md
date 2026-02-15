@@ -84,7 +84,13 @@
 
 你需要做什么来纠正它。每个人都有这样的世界观。无论你是谁，你都无法摆脱它。但世界观实际上只是一个关于你认为世界出了什么问题、谁站在正确的一方可以扭转局面、谁站在错误的一方反对扭转局面以及**我们需要做什么的主导叙述。**
 
-对于基督徒来说，**这意味着什么呢？当然，演员最大的问题是，与作家或其他类型的艺术家不同，除非你自己在表演（假设你们中有些人这样做过），否则他们通常没有这样的问题。**--- This translation maintains the original structure and tone of the sermon while ensuring it sounds natural in Simplified Chinese. 你正演绎着别人写好的故事。或许你会说，作为基督徒，我从不表演那些我认为有正面基督教信息的故事。
+对于基督徒来说，**这意味着什么呢？当然，演员最大的问题是，与作家或其他类型的艺术家不同，除非你自己在表演（假设你们中有些人这样做过），否则他们通常没有这样的问题。**---
+
+---
+
+### 为什么讲故事？
+
+This translation maintains the original structure and tone of the sermon while ensuring it sounds natural in Simplified Chinese. 你正演绎着别人写好的故事。或许你会说，作为基督徒，我从不表演那些我认为有正面基督教信息的故事。
 
 那么我想请你考虑一下。什么是基督教的主故事？我们对世界的看法是什么？我们认为主要的问题是什么？
 

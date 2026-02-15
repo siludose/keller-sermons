@@ -1,3 +1,5 @@
+### 智慧是什么？
+
 # Wisdom What is it
 
 ## Chinese Translation / 中文翻译

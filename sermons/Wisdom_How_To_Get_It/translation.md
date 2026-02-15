@@ -1,3 +1,5 @@
+### 如何获得智慧？
+
 # Wisdom How To Get It
 
 ## Chinese Translation / 中文翻译

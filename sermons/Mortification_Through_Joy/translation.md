@@ -1,3 +1,5 @@
+### 通过喜乐的死己
+
 # Mortification Through Joy
 
 ## Chinese Translation / 中文翻译

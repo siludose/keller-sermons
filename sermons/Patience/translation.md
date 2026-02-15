@@ -1,3 +1,5 @@
+### 耐心的力量
+
 # Patience
 
 ## Chinese Translation / 中文翻译

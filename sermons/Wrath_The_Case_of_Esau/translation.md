@@ -1,3 +1,5 @@
+### 愤怒与失去的传承
+
 # Wrath The Case of Esau
 
 ## Chinese Translation / 中文翻译

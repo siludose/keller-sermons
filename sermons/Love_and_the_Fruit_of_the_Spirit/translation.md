@@ -1,3 +1,5 @@
+### 爱：圣灵的果子
+
 # Love and the Fruit of the Spirit
 
 ## Chinese Translation / 中文翻译

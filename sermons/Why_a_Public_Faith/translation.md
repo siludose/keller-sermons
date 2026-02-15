@@ -1,3 +1,5 @@
+### 为什么需要公开的信仰？
+
 # Why a Public Faith
 
 ## Chinese Translation / 中文翻译

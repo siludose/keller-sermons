@@ -196,7 +196,13 @@
 
 你绝不能胆怯。但另一方面，你也不能认为你知道那个人必须做什么，或者那个人必须跳过什么障碍。不，生活中必须在真理和爱之间保持对称、平衡。现在我知道有人会说。
 
-“有人可能会问，我如何知道我对其他人的态度是否不平衡？” --- This translation maintains the original structure, tone, and meaning while ensuring it reads naturally in Simplified Chinese. 如何知道自己的关系是否不平衡？哦，假设它就是如此。假设你就是那个需要被平衡的人。
+“有人可能会问，我如何知道我对其他人的态度是否不平衡？” ---
+
+---
+
+### 新的群体
+
+This translation maintains the original structure, tone, and meaning while ensuring it reads naturally in Simplified Chinese. 如何知道自己的关系是否不平衡？哦，假设它就是如此。假设你就是那个需要被平衡的人。
 
 在没有圣灵的情况下，我们天生的气质要么是真理型，要么是爱的类型。要么你是一个友善、圆滑和温柔的人，但本质上是个懦夫；要么你是一个直接、挑战性的人，但本质上却无情无感。我们会偏向其中一种。而要让关系达到个人问责和集体灵性的深度平衡，唯一的办法就是研读耶稣如何对待人的故事，并一遍遍地阅读。
 
