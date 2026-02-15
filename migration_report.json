@@ -1,0 +1,1696 @@
+[
+  {
+    "file": "A_Covenant_Relationship.md",
+    "success": true,
+    "folder": "A_Covenant_Relationship",
+    "issues": [],
+    "stats": {
+      "title": "A Covenant Relationship",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 27575,
+      "translation_length": 8264,
+      "transcript_words": 4986
+    }
+  },
+  {
+    "file": "A_New_Heart.md",
+    "success": true,
+    "folder": "A_New_Heart",
+    "issues": [],
+    "stats": {
+      "title": "A New Heart",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 34291,
+      "translation_length": 10684,
+      "transcript_words": 6350
+    }
+  },
+  {
+    "file": "Admitting.md",
+    "success": true,
+    "folder": "Admitting",
+    "issues": [
+      "Warning: Missing outline (not critical)",
+      "Transcript seems too short (140 chars)"
+    ],
+    "stats": {
+      "title": "认罪：真正的悔改如何带来自由",
+      "has_outline": false,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 0,
+      "transcript_length": 140,
+      "translation_length": 2197,
+      "transcript_words": 12
+    }
+  },
+  {
+    "file": "Aggressive_Compassion.md",
+    "success": true,
+    "folder": "Aggressive_Compassion",
+    "issues": [],
+    "stats": {
+      "title": "Aggressive Compassion",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 386,
+      "transcript_length": 32668,
+      "translation_length": 9486,
+      "transcript_words": 6086
+    }
+  },
+  {
+    "file": "Anatomy_of_Sin_(Part_1).md",
+    "success": true,
+    "folder": "Anatomy_of_Sin_Part_1",
+    "issues": [],
+    "stats": {
+      "title": "Anatomy of Sin (Part 1)",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 35578,
+      "translation_length": 11082,
+      "transcript_words": 6676
+    }
+  },
+  {
+    "file": "Anatomy_of_Sin_(Part_2).md",
+    "success": true,
+    "folder": "Anatomy_of_Sin_Part_2",
+    "issues": [],
+    "stats": {
+      "title": "Anatomy of Sin (Part 2)",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 37276,
+      "translation_length": 5731,
+      "transcript_words": 6869
+    }
+  },
+  {
+    "file": "Born_Again.md",
+    "success": true,
+    "folder": "Born_Again",
+    "issues": [
+      "Warning: Missing outline (not critical)",
+      "Translation seems too short (48 chars)"
+    ],
+    "stats": {
+      "title": "Born Again",
+      "has_outline": false,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 0,
+      "transcript_length": 1870,
+      "translation_length": 48,
+      "transcript_words": 334
+    }
+  },
+  {
+    "file": "Choose_Life.md",
+    "success": true,
+    "folder": "Choose_Life",
+    "issues": [],
+    "stats": {
+      "title": "Choose Life",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 35681,
+      "translation_length": 2668,
+      "transcript_words": 6543
+    }
+  },
+  {
+    "file": "Discovering_the_Gospel.md",
+    "success": true,
+    "folder": "Discovering_the_Gospel",
+    "issues": [],
+    "stats": {
+      "title": "Discovering the Gospel",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 41748,
+      "translation_length": 3455,
+      "transcript_words": 7540
+    }
+  },
+  {
+    "file": "Does_God_Control_Everything.md",
+    "success": true,
+    "folder": "Does_God_Control_Everything",
+    "issues": [],
+    "stats": {
+      "title": "Does God Control Everything",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 40128,
+      "translation_length": 2893,
+      "transcript_words": 7431
+    }
+  },
+  {
+    "file": "Duplicity_The_Case_of_Peter.md",
+    "success": true,
+    "folder": "Duplicity_The_Case_of_Peter",
+    "issues": [],
+    "stats": {
+      "title": "Duplicity The Case of Peter",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 37716,
+      "translation_length": 2408,
+      "transcript_words": 7043
+    }
+  },
+  {
+    "file": "Educators_Forum_The_Gospel_Changes_Everything.md",
+    "success": true,
+    "folder": "Educators_Forum_The_Gospel_Changes_Everything",
+    "issues": [],
+    "stats": {
+      "title": "Educators Forum The Gospel Changes Everything",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 74161,
+      "translation_length": 2567,
+      "transcript_words": 13541
+    }
+  },
+  {
+    "file": "Entering_His_Rest.md",
+    "success": true,
+    "folder": "Entering_His_Rest",
+    "issues": [],
+    "stats": {
+      "title": "Entering His Rest",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 610,
+      "transcript_length": 4906,
+      "translation_length": 2440,
+      "transcript_words": 918
+    }
+  },
+  {
+    "file": "Envy_The_Case_of_Israel.md",
+    "success": true,
+    "folder": "Envy_The_Case_of_Israel",
+    "issues": [],
+    "stats": {
+      "title": "Envy The Case of Israel",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 33485,
+      "translation_length": 2243,
+      "transcript_words": 6223
+    }
+  },
+  {
+    "file": "Facing_Doubt.md",
+    "success": true,
+    "folder": "Facing_Doubt",
+    "issues": [],
+    "stats": {
+      "title": "Facing Doubt",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 44778,
+      "translation_length": 1780,
+      "transcript_words": 8269
+    }
+  },
+  {
+    "file": "Finding_God.md",
+    "success": true,
+    "folder": "Finding_God",
+    "issues": [],
+    "stats": {
+      "title": "Finding God",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 39576,
+      "translation_length": 1694,
+      "transcript_words": 7393
+    }
+  },
+  {
+    "file": "Finding_Jesus.md",
+    "success": true,
+    "folder": "Finding_Jesus",
+    "issues": [],
+    "stats": {
+      "title": "Finding Jesus",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 29879,
+      "translation_length": 1816,
+      "transcript_words": 5560
+    }
+  },
+  {
+    "file": "First_of_All.md",
+    "success": true,
+    "folder": "First_of_All",
+    "issues": [],
+    "stats": {
+      "title": "First of All",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 413,
+      "transcript_length": 29875,
+      "translation_length": 9123,
+      "transcript_words": 5714
+    }
+  },
+  {
+    "file": "Gluttony_The_Case_of_Achan.md",
+    "success": true,
+    "folder": "Gluttony_The_Case_of_Achan",
+    "issues": [],
+    "stats": {
+      "title": "Gluttony The Case of Achan",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 34114,
+      "translation_length": 2209,
+      "transcript_words": 6341
+    }
+  },
+  {
+    "file": "Gods_Law.md",
+    "success": true,
+    "folder": "Gods_Law",
+    "issues": [],
+    "stats": {
+      "title": "God's Law",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 574,
+      "transcript_length": 34674,
+      "translation_length": 8547,
+      "transcript_words": 6493
+    }
+  },
+  {
+    "file": "Greed_The_Case_of_the_Rich_Young_Ruler.md",
+    "success": true,
+    "folder": "Greed_The_Case_of_the_Rich_Young_Ruler",
+    "issues": [],
+    "stats": {
+      "title": "Greed The Case of the Rich Young Ruler",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 34610,
+      "translation_length": 1838,
+      "transcript_words": 6470
+    }
+  },
+  {
+    "file": "Groaning_in_the_Spirit.md",
+    "success": true,
+    "folder": "Groaning_in_the_Spirit",
+    "issues": [],
+    "stats": {
+      "title": "Groaning in the Spirit",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 32347,
+      "translation_length": 1837,
+      "transcript_words": 5915
+    }
+  },
+  {
+    "file": "How_Do_I_Know_the_Bible_Is_True_(Open_Forum).md",
+    "success": true,
+    "folder": "How_Do_I_Know_the_Bible_Is_True_Open_Forum",
+    "issues": [],
+    "stats": {
+      "title": "How Do I Know the Bible Is True (Open Forum)",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 45470,
+      "translation_length": 1518,
+      "transcript_words": 8223
+    }
+  },
+  {
+    "file": "How_Sin_Makes_Us_Addicts.md",
+    "success": true,
+    "folder": "How_Sin_Makes_Us_Addicts",
+    "issues": [],
+    "stats": {
+      "title": "How Sin Makes Us Addicts",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 38305,
+      "translation_length": 1733,
+      "transcript_words": 7231
+    }
+  },
+  {
+    "file": "How_Sin_Makes_Us_Convicts.md",
+    "success": true,
+    "folder": "How_Sin_Makes_Us_Convicts",
+    "issues": [],
+    "stats": {
+      "title": "How Sin Makes Us Convicts",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 41989,
+      "translation_length": 1940,
+      "transcript_words": 7837
+    }
+  },
+  {
+    "file": "How_Sin_Makes_Us_Homeless.md",
+    "success": true,
+    "folder": "How_Sin_Makes_Us_Homeless",
+    "issues": [],
+    "stats": {
+      "title": "How Sin Makes Us Homeless",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 45410,
+      "translation_length": 1648,
+      "transcript_words": 8455
+    }
+  },
+  {
+    "file": "How_Sin_Makes_Us_Vandals.md",
+    "success": true,
+    "folder": "How_Sin_Makes_Us_Vandals",
+    "issues": [
+      "Translation seems too short (331 chars)"
+    ],
+    "stats": {
+      "title": "How Sin Makes Us Vandals",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 39435,
+      "translation_length": 331,
+      "transcript_words": 7360
+    }
+  },
+  {
+    "file": "How_To_Pray.md",
+    "success": true,
+    "folder": "How_To_Pray",
+    "issues": [
+      "Warning: Missing outline (not critical)",
+      "Translation seems too short (71 chars)"
+    ],
+    "stats": {
+      "title": "How To Pray",
+      "has_outline": false,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 0,
+      "transcript_length": 2027,
+      "translation_length": 71,
+      "transcript_words": 357
+    }
+  },
+  {
+    "file": "Humility.md",
+    "success": true,
+    "folder": "Humility",
+    "issues": [
+      "Translation seems too short (255 chars)"
+    ],
+    "stats": {
+      "title": "Humility",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 35144,
+      "translation_length": 255,
+      "transcript_words": 6304
+    }
+  },
+  {
+    "file": "Indestructible_Love.md",
+    "success": true,
+    "folder": "Indestructible_Love",
+    "issues": [],
+    "stats": {
+      "title": "Indestructible Love",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 38922,
+      "translation_length": 503,
+      "transcript_words": 7226
+    }
+  },
+  {
+    "file": "Indestructible_Truth.md",
+    "success": true,
+    "folder": "Indestructible_Truth",
+    "issues": [
+      "Translation seems too short (294 chars)"
+    ],
+    "stats": {
+      "title": "Indestructible Truth",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 40522,
+      "translation_length": 294,
+      "transcript_words": 7477
+    }
+  },
+  {
+    "file": "Integrity.md",
+    "success": true,
+    "folder": "Integrity",
+    "issues": [
+      "Translation seems too short (438 chars)"
+    ],
+    "stats": {
+      "title": "Integrity",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 36146,
+      "translation_length": 438,
+      "transcript_words": 6626
+    }
+  },
+  {
+    "file": "Jesus_Our_Gift.md",
+    "success": true,
+    "folder": "Jesus_Our_Gift",
+    "issues": [
+      "Translation seems too short (454 chars)"
+    ],
+    "stats": {
+      "title": "Jesus Our Gift",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 34928,
+      "translation_length": 454,
+      "transcript_words": 6490
+    }
+  },
+  {
+    "file": "Jesus_Our_God.md",
+    "success": true,
+    "folder": "Jesus_Our_God",
+    "issues": [
+      "Translation seems too short (425 chars)"
+    ],
+    "stats": {
+      "title": "Jesus Our God",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 16287,
+      "translation_length": 425,
+      "transcript_words": 2971
+    }
+  },
+  {
+    "file": "Jesus_Our_King.md",
+    "success": true,
+    "folder": "Jesus_Our_King",
+    "issues": [
+      "Translation seems too short (399 chars)"
+    ],
+    "stats": {
+      "title": "Jesus Our King",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 38674,
+      "translation_length": 399,
+      "transcript_words": 7204
+    }
+  },
+  {
+    "file": "Jesus_Our_Servant.md",
+    "success": true,
+    "folder": "Jesus_Our_Servant",
+    "issues": [
+      "Translation seems too short (375 chars)"
+    ],
+    "stats": {
+      "title": "Jesus Our Servant",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 29357,
+      "translation_length": 375,
+      "transcript_words": 5562
+    }
+  },
+  {
+    "file": "Jesus_as_King;_God's_Ultimate_Plan.md",
+    "success": true,
+    "folder": "Jesus_as_King_Gods_Ultimate_Plan",
+    "issues": [
+      "Translation seems too short (235 chars)"
+    ],
+    "stats": {
+      "title": "Jesus as King; God's Ultimate Plan",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 45044,
+      "translation_length": 235,
+      "transcript_words": 8188
+    }
+  },
+  {
+    "file": "Jesus_as_King;_The_King_of_Hearts.md",
+    "success": true,
+    "folder": "Jesus_as_King_The_King_of_Hearts",
+    "issues": [
+      "Translation seems too short (257 chars)"
+    ],
+    "stats": {
+      "title": "Jesus as King; The King of Hearts",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 47646,
+      "translation_length": 257,
+      "transcript_words": 9155
+    }
+  },
+  {
+    "file": "Jesus_as_Prophet_(Part_1).md",
+    "success": true,
+    "folder": "Jesus_as_Prophet_Part_1",
+    "issues": [
+      "Translation seems too short (174 chars)"
+    ],
+    "stats": {
+      "title": "Jesus as Prophet (Part 1)",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 44821,
+      "translation_length": 174,
+      "transcript_words": 8360
+    }
+  },
+  {
+    "file": "Jesus_as_Prophet_(Part_2).md",
+    "success": true,
+    "folder": "Jesus_as_Prophet_Part_2",
+    "issues": [
+      "Translation seems too short (136 chars)"
+    ],
+    "stats": {
+      "title": "Jesus as Prophet (Part 2)",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 49640,
+      "translation_length": 136,
+      "transcript_words": 9188
+    }
+  },
+  {
+    "file": "Jesus’_Model_of_Spirituality.md",
+    "success": true,
+    "folder": "Jesus’_Model_of_Spirituality",
+    "issues": [
+      "Translation seems too short (82 chars)"
+    ],
+    "stats": {
+      "title": "Jesus’ Model of Spirituality",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 41988,
+      "translation_length": 82,
+      "transcript_words": 7687
+    }
+  },
+  {
+    "file": "Kindness.md",
+    "success": true,
+    "folder": "Kindness",
+    "issues": [
+      "Translation seems too short (73 chars)"
+    ],
+    "stats": {
+      "title": "Kindness",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 32342,
+      "translation_length": 73,
+      "transcript_words": 5814
+    }
+  },
+  {
+    "file": "Knowing_God.md",
+    "success": true,
+    "folder": "Knowing_God",
+    "issues": [
+      "Translation seems too short (63 chars)"
+    ],
+    "stats": {
+      "title": "Knowing God",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 41283,
+      "translation_length": 63,
+      "transcript_words": 7569
+    }
+  },
+  {
+    "file": "Knowing_Good.md",
+    "success": true,
+    "folder": "Knowing_Good",
+    "issues": [
+      "Translation seems too short (77 chars)"
+    ],
+    "stats": {
+      "title": "Knowing Good",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 43629,
+      "translation_length": 77,
+      "transcript_words": 7935
+    }
+  },
+  {
+    "file": "Let_Nothing_Move_You_(Easter).md",
+    "success": true,
+    "folder": "Let_Nothing_Move_You_Easter",
+    "issues": [
+      "Translation seems too short (63 chars)"
+    ],
+    "stats": {
+      "title": "Let Nothing Move You (Easter)",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 28235,
+      "translation_length": 63,
+      "transcript_words": 5076
+    }
+  },
+  {
+    "file": "Life_in_the_Spirit.md",
+    "success": true,
+    "folder": "Life_in_the_Spirit",
+    "issues": [
+      "Translation seems too short (57 chars)"
+    ],
+    "stats": {
+      "title": "Life in the Spirit",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 28416,
+      "translation_length": 57,
+      "transcript_words": 5318
+    }
+  },
+  {
+    "file": "Love,_Lust_and_Liberation.md",
+    "success": true,
+    "folder": "Love_Lust_and_Liberation",
+    "issues": [
+      "Translation seems too short (60 chars)"
+    ],
+    "stats": {
+      "title": "Love, Lust and Liberation",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 77,
+      "transcript_length": 44852,
+      "translation_length": 60,
+      "transcript_words": 8424
+    }
+  },
+  {
+    "file": "Love_Beyond_Degree.md",
+    "success": true,
+    "folder": "Love_Beyond_Degree",
+    "issues": [
+      "Translation seems too short (54 chars)"
+    ],
+    "stats": {
+      "title": "Love Beyond Degree",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 29379,
+      "translation_length": 54,
+      "transcript_words": 5414
+    }
+  },
+  {
+    "file": "Love_Your_Enemies.md",
+    "success": true,
+    "folder": "Love_Your_Enemies",
+    "issues": [],
+    "stats": {
+      "title": "Love Your Enemies",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 772,
+      "transcript_length": 33650,
+      "translation_length": 9060,
+      "transcript_words": 6300
+    }
+  },
+  {
+    "file": "Love_and_the_Fruit_of_the_Spirit.md",
+    "success": true,
+    "folder": "Love_and_the_Fruit_of_the_Spirit",
+    "issues": [
+      "Translation seems too short (65 chars)"
+    ],
+    "stats": {
+      "title": "Love and the Fruit of the Spirit",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 32894,
+      "translation_length": 65,
+      "transcript_words": 6065
+    }
+  },
+  {
+    "file": "Love_in_the_Neighborhood.md",
+    "success": true,
+    "folder": "Love_in_the_Neighborhood",
+    "issues": [
+      "Translation seems too short (65 chars)"
+    ],
+    "stats": {
+      "title": "Love in the Neighborhood",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 42641,
+      "translation_length": 65,
+      "transcript_words": 7890
+    }
+  },
+  {
+    "file": "Lust_The_Case_of_Joseph.md",
+    "success": true,
+    "folder": "Lust_The_Case_of_Joseph",
+    "issues": [
+      "Translation seems too short (80 chars)"
+    ],
+    "stats": {
+      "title": "Lust The Case of Joseph",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 34769,
+      "translation_length": 80,
+      "transcript_words": 6468
+    }
+  },
+  {
+    "file": "Money_and_the_Logic_of_Grace.md",
+    "success": true,
+    "folder": "Money_and_the_Logic_of_Grace",
+    "issues": [
+      "Translation seems too short (74 chars)"
+    ],
+    "stats": {
+      "title": "Money and the Logic of Grace",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 39714,
+      "translation_length": 74,
+      "transcript_words": 7327
+    }
+  },
+  {
+    "file": "Mortification_Through_Joy.md",
+    "success": true,
+    "folder": "Mortification_Through_Joy",
+    "issues": [
+      "Translation seems too short (79 chars)"
+    ],
+    "stats": {
+      "title": "Mortification Through Joy",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 33080,
+      "translation_length": 79,
+      "transcript_words": 6092
+    }
+  },
+  {
+    "file": "Orphans_or_Children.md",
+    "success": true,
+    "folder": "Orphans_or_Children",
+    "issues": [],
+    "stats": {
+      "title": "Orphans or Children",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 582,
+      "transcript_length": 34620,
+      "translation_length": 9937,
+      "transcript_words": 6436
+    }
+  },
+  {
+    "file": "Overflowing_Joy.md",
+    "success": true,
+    "folder": "Overflowing_Joy",
+    "issues": [
+      "Translation seems too short (85 chars)"
+    ],
+    "stats": {
+      "title": "Overflowing Joy",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 876,
+      "transcript_length": 4763,
+      "translation_length": 85,
+      "transcript_words": 885
+    }
+  },
+  {
+    "file": "Patience.md",
+    "success": true,
+    "folder": "Patience",
+    "issues": [
+      "Translation seems too short (61 chars)"
+    ],
+    "stats": {
+      "title": "Patience",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 32839,
+      "translation_length": 61,
+      "transcript_words": 5992
+    }
+  },
+  {
+    "file": "Peace.md",
+    "success": true,
+    "folder": "Peace",
+    "issues": [
+      "Translation seems too short (68 chars)"
+    ],
+    "stats": {
+      "title": "Peace",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 36015,
+      "translation_length": 68,
+      "transcript_words": 6577
+    }
+  },
+  {
+    "file": "Perfect_Freedom.md",
+    "success": true,
+    "folder": "Perfect_Freedom",
+    "issues": [
+      "Translation seems too short (62 chars)"
+    ],
+    "stats": {
+      "title": "Perfect Freedom",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 41179,
+      "translation_length": 62,
+      "transcript_words": 7543
+    }
+  },
+  {
+    "file": "Pride_The_Case_of_Nebuchadnezzar.md",
+    "success": true,
+    "folder": "Pride_The_Case_of_Nebuchadnezzar",
+    "issues": [
+      "Translation seems too short (64 chars)"
+    ],
+    "stats": {
+      "title": "Pride The Case of Nebuchadnezzar",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 39938,
+      "translation_length": 64,
+      "transcript_words": 7382
+    }
+  },
+  {
+    "file": "Radical_Generosity.md",
+    "success": true,
+    "folder": "Radical_Generosity",
+    "issues": [
+      "Warning: Missing outline (not critical)",
+      "Transcript seems too short (70 chars)"
+    ],
+    "stats": {
+      "title": "激进的慷慨：金钱与属灵成长",
+      "has_outline": false,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 0,
+      "transcript_length": 70,
+      "translation_length": 2491,
+      "transcript_words": 8
+    }
+  },
+  {
+    "file": "Real_Joy.md",
+    "success": true,
+    "folder": "Real_Joy",
+    "issues": [
+      "Translation seems too short (65 chars)"
+    ],
+    "stats": {
+      "title": "Real Joy",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 36552,
+      "translation_length": 65,
+      "transcript_words": 6709
+    }
+  },
+  {
+    "file": "Rich_in_Faith.md",
+    "success": true,
+    "folder": "Rich_in_Faith",
+    "issues": [],
+    "stats": {
+      "title": "Rich in Faith",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 356,
+      "transcript_length": 35440,
+      "translation_length": 7717,
+      "transcript_words": 6615
+    }
+  },
+  {
+    "file": "Secret_Treason.md",
+    "success": true,
+    "folder": "Secret_Treason",
+    "issues": [],
+    "stats": {
+      "title": "Secret Treason",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 873,
+      "transcript_length": 31807,
+      "translation_length": 7154,
+      "transcript_words": 5875
+    }
+  },
+  {
+    "file": "Seeking_the_Kingdom.md",
+    "success": true,
+    "folder": "Seeking_the_Kingdom",
+    "issues": [
+      "Warning: Missing outline (not critical)",
+      "Transcript seems too short (81 chars)"
+    ],
+    "stats": {
+      "title": "先求他的国：胜过焦虑的信心",
+      "has_outline": false,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 0,
+      "transcript_length": 81,
+      "translation_length": 2853,
+      "transcript_words": 10
+    }
+  },
+  {
+    "file": "Self-Control.md",
+    "success": true,
+    "folder": "Self-Control",
+    "issues": [
+      "Translation seems too short (59 chars)"
+    ],
+    "stats": {
+      "title": "Self-Control",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 32178,
+      "translation_length": 59,
+      "transcript_words": 5876
+    }
+  },
+  {
+    "file": "Sex_and_the_End_of_Loneliness.md",
+    "success": true,
+    "folder": "Sex_and_the_End_of_Loneliness",
+    "issues": [],
+    "stats": {
+      "title": "Sex and the End of Loneliness",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 421,
+      "transcript_length": 37357,
+      "translation_length": 1086,
+      "transcript_words": 6945
+    }
+  },
+  {
+    "file": "Splitness.md",
+    "success": true,
+    "folder": "Splitness",
+    "issues": [
+      "Translation seems too short (55 chars)"
+    ],
+    "stats": {
+      "title": "Splitness",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 34778,
+      "translation_length": 55,
+      "transcript_words": 6452
+    }
+  },
+  {
+    "file": "Thanksgiving_Message_from_Kathy_Keller.md",
+    "success": true,
+    "folder": "Thanksgiving_Message_from_Kathy_Keller",
+    "issues": [],
+    "stats": {
+      "title": "Thanksgiving Message from Kathy Keller",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 294,
+      "transcript_length": 2865,
+      "translation_length": 1010,
+      "transcript_words": 529
+    }
+  },
+  {
+    "file": "The_Cosmic_Spirit.md",
+    "success": true,
+    "folder": "The_Cosmic_Spirit",
+    "issues": [
+      "Translation seems too short (59 chars)"
+    ],
+    "stats": {
+      "title": "The Cosmic Spirit",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 34132,
+      "translation_length": 59,
+      "transcript_words": 6365
+    }
+  },
+  {
+    "file": "The_Gifts_of_the_Spirit.md",
+    "success": true,
+    "folder": "The_Gifts_of_the_Spirit",
+    "issues": [
+      "Translation seems too short (61 chars)"
+    ],
+    "stats": {
+      "title": "The Gifts of the Spirit",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 37625,
+      "translation_length": 61,
+      "transcript_words": 6783
+    }
+  },
+  {
+    "file": "The_Glory_of_the_Incarnation.md",
+    "success": true,
+    "folder": "The_Glory_of_the_Incarnation",
+    "issues": [
+      "Warning: Missing outline (not critical)",
+      "Transcript seems too short (56 chars)",
+      "Translation seems too short (73 chars)"
+    ],
+    "stats": {
+      "title": "道成肉身的荣耀：圣诞节的三重意义",
+      "has_outline": false,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 0,
+      "transcript_length": 56,
+      "translation_length": 73,
+      "transcript_words": 8
+    }
+  },
+  {
+    "file": "The_Inside_Out_Kingdom.md",
+    "success": true,
+    "folder": "The_Inside_Out_Kingdom",
+    "issues": [
+      "Translation seems too short (61 chars)"
+    ],
+    "stats": {
+      "title": "The Inside Out Kingdom",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 42405,
+      "translation_length": 61,
+      "transcript_words": 7719
+    }
+  },
+  {
+    "file": "The_Judgment_on_Sin.md",
+    "success": true,
+    "folder": "The_Judgment_on_Sin",
+    "issues": [
+      "Translation seems too short (55 chars)"
+    ],
+    "stats": {
+      "title": "The Judgment on Sin",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 28463,
+      "translation_length": 55,
+      "transcript_words": 5382
+    }
+  },
+  {
+    "file": "The_New_Community.md",
+    "success": true,
+    "folder": "The_New_Community",
+    "issues": [
+      "Translation seems too short (60 chars)"
+    ],
+    "stats": {
+      "title": "The New Community",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 38185,
+      "translation_length": 60,
+      "transcript_words": 6821
+    }
+  },
+  {
+    "file": "The_Power_of_the_Incarnation.md",
+    "success": true,
+    "folder": "The_Power_of_the_Incarnation",
+    "issues": [
+      "Warning: Missing outline (not critical)",
+      "Transcript seems too short (99 chars)"
+    ],
+    "stats": {
+      "title": "道成肉身的能力：施洗约翰的身份",
+      "has_outline": false,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 0,
+      "transcript_length": 99,
+      "translation_length": 2790,
+      "transcript_words": 10
+    }
+  },
+  {
+    "file": "The_Search_for_Achievement.md",
+    "success": true,
+    "folder": "The_Search_for_Achievement",
+    "issues": [
+      "Translation seems too short (54 chars)"
+    ],
+    "stats": {
+      "title": "The Search for Achievement",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 77,
+      "transcript_length": 40515,
+      "translation_length": 54,
+      "transcript_words": 7502
+    }
+  },
+  {
+    "file": "The_Search_for_God.md",
+    "success": true,
+    "folder": "The_Search_for_God",
+    "issues": [
+      "Translation seems too short (57 chars)"
+    ],
+    "stats": {
+      "title": "The Search for God",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 44602,
+      "translation_length": 57,
+      "transcript_words": 8392
+    }
+  },
+  {
+    "file": "The_Search_for_Justice.md",
+    "success": true,
+    "folder": "The_Search_for_Justice",
+    "issues": [
+      "Translation seems too short (56 chars)"
+    ],
+    "stats": {
+      "title": "The Search for Justice",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 38221,
+      "translation_length": 56,
+      "transcript_words": 7192
+    }
+  },
+  {
+    "file": "The_Search_for_Pleasure.md",
+    "success": true,
+    "folder": "The_Search_for_Pleasure",
+    "issues": [
+      "Translation seems too short (56 chars)"
+    ],
+    "stats": {
+      "title": "The Search for Pleasure",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 41151,
+      "translation_length": 56,
+      "transcript_words": 7555
+    }
+  },
+  {
+    "file": "The_Sickness_Unto_Death.md",
+    "success": true,
+    "folder": "The_Sickness_Unto_Death",
+    "issues": [
+      "Translation seems too short (57 chars)"
+    ],
+    "stats": {
+      "title": "The Sickness Unto Death",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 38361,
+      "translation_length": 57,
+      "transcript_words": 7023
+    }
+  },
+  {
+    "file": "The_Upside_Down_Kingdom.md",
+    "success": true,
+    "folder": "The_Upside_Down_Kingdom",
+    "issues": [
+      "Translation seems too short (58 chars)"
+    ],
+    "stats": {
+      "title": "The Upside Down Kingdom",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 39833,
+      "translation_length": 58,
+      "transcript_words": 7393
+    }
+  },
+  {
+    "file": "The_Word.md",
+    "success": true,
+    "folder": "The_Word",
+    "issues": [
+      "Translation seems too short (61 chars)"
+    ],
+    "stats": {
+      "title": "The Word",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 33667,
+      "translation_length": 61,
+      "transcript_words": 6253
+    }
+  },
+  {
+    "file": "Thy_Will_Be_Done.md",
+    "success": true,
+    "folder": "Thy_Will_Be_Done",
+    "issues": [
+      "Warning: Missing outline (not critical)",
+      "Transcript seems too short (98 chars)",
+      "Translation seems too short (309 chars)"
+    ],
+    "stats": {
+      "title": "愿你的旨意成就：先接受，后祈求",
+      "has_outline": false,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 0,
+      "transcript_length": 98,
+      "translation_length": 309,
+      "transcript_words": 10
+    }
+  },
+  {
+    "file": "Treasure_vs._Money.md",
+    "success": true,
+    "folder": "Treasure_vs._Money",
+    "issues": [
+      "Translation seems too short (58 chars)"
+    ],
+    "stats": {
+      "title": "Treasure vs. Money",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 39723,
+      "translation_length": 58,
+      "transcript_words": 7322
+    }
+  },
+  {
+    "file": "True_Spirituality.md",
+    "success": true,
+    "folder": "True_Spirituality",
+    "issues": [
+      "Translation seems too short (59 chars)"
+    ],
+    "stats": {
+      "title": "True Spirituality",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 77,
+      "transcript_length": 39122,
+      "translation_length": 59,
+      "transcript_words": 7215
+    }
+  },
+  {
+    "file": "Who_Is_the_Spirit.md",
+    "success": true,
+    "folder": "Who_Is_the_Spirit",
+    "issues": [
+      "Translation seems too short (56 chars)"
+    ],
+    "stats": {
+      "title": "Who Is the Spirit",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 40555,
+      "translation_length": 56,
+      "transcript_words": 7609
+    }
+  },
+  {
+    "file": "Who_is_this_Jesus_(Open_Forum).md",
+    "success": true,
+    "folder": "Who_is_this_Jesus_Open_Forum",
+    "issues": [
+      "Translation seems too short (52 chars)"
+    ],
+    "stats": {
+      "title": "Who is this Jesus (Open Forum)",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 41968,
+      "translation_length": 52,
+      "transcript_words": 7785
+    }
+  },
+  {
+    "file": "Why_Tell_Stories.md",
+    "success": true,
+    "folder": "Why_Tell_Stories",
+    "issues": [
+      "Translation seems too short (51 chars)"
+    ],
+    "stats": {
+      "title": "Why Tell Stories",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 61321,
+      "translation_length": 51,
+      "transcript_words": 11269
+    }
+  },
+  {
+    "file": "Why_a_Public_Faith.md",
+    "success": true,
+    "folder": "Why_a_Public_Faith",
+    "issues": [
+      "Translation seems too short (58 chars)"
+    ],
+    "stats": {
+      "title": "Why a Public Faith",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 42030,
+      "translation_length": 58,
+      "transcript_words": 7675
+    }
+  },
+  {
+    "file": "Wisdom_How_To_Get_It.md",
+    "success": true,
+    "folder": "Wisdom_How_To_Get_It",
+    "issues": [
+      "Translation seems too short (52 chars)"
+    ],
+    "stats": {
+      "title": "Wisdom How To Get It",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 39544,
+      "translation_length": 52,
+      "transcript_words": 7234
+    }
+  },
+  {
+    "file": "Wisdom_How_To_Live_It.md",
+    "success": true,
+    "folder": "Wisdom_How_To_Live_It",
+    "issues": [
+      "Translation seems too short (52 chars)"
+    ],
+    "stats": {
+      "title": "Wisdom How To Live It",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 38501,
+      "translation_length": 52,
+      "transcript_words": 7035
+    }
+  },
+  {
+    "file": "Wisdom_What_is_it.md",
+    "success": true,
+    "folder": "Wisdom_What_is_it",
+    "issues": [
+      "Translation seems too short (49 chars)"
+    ],
+    "stats": {
+      "title": "Wisdom What is it",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 35875,
+      "translation_length": 49,
+      "transcript_words": 6563
+    }
+  },
+  {
+    "file": "Work_&_Grace_The_Spiritual_Music_of_John_Coltrane_.md",
+    "success": true,
+    "folder": "Work_and_Grace_The_Spiritual_Music_of_John_Coltrane",
+    "issues": [
+      "Translation seems too short (74 chars)"
+    ],
+    "stats": {
+      "title": "Work & Grace The Spiritual Music of John Coltrane",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 49734,
+      "translation_length": 74,
+      "transcript_words": 9300
+    }
+  },
+  {
+    "file": "Work_Wholeheartedly.md",
+    "success": true,
+    "folder": "Work_Wholeheartedly",
+    "issues": [
+      "Translation seems too short (59 chars)"
+    ],
+    "stats": {
+      "title": "Work Wholeheartedly",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 46233,
+      "translation_length": 59,
+      "transcript_words": 8604
+    }
+  },
+  {
+    "file": "Work_and_Rest.md",
+    "success": true,
+    "folder": "Work_and_Rest",
+    "issues": [
+      "Translation seems too short (63 chars)"
+    ],
+    "stats": {
+      "title": "Work and Rest",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 40463,
+      "translation_length": 63,
+      "transcript_words": 7566
+    }
+  },
+  {
+    "file": "Wrath_The_Case_of_Esau.md",
+    "success": true,
+    "folder": "Wrath_The_Case_of_Esau",
+    "issues": [
+      "Translation seems too short (62 chars)"
+    ],
+    "stats": {
+      "title": "Wrath The Case of Esau",
+      "has_outline": true,
+      "has_transcript": true,
+      "has_translation": true,
+      "outline_length": 19,
+      "transcript_length": 28529,
+      "translation_length": 62,
+      "transcript_words": 5348
+    }
+  }
+]

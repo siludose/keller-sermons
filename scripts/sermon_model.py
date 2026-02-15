@@ -123,14 +123,48 @@ class Sermon:
         transcript = cls._extract_section(content, [
             r'##\s+English Transcript\s*/\s*英文原文',
             r'##\s+English Transcript',
-            r'##\s+Transcript'
+            r'##\s+Transcript',
+            r'###\s+English'  # Handle subsection format
         ])
+
+        # Special handling for "Full Transcript" format with subsections
+        if not transcript:
+            full_transcript_match = re.search(r'##\s+Full Transcript\s*/\s*完整文本', content, re.IGNORECASE)
+            if full_transcript_match:
+                # Look for ### English subsection
+                english_match = re.search(r'###\s+English\s*\n', content[full_transcript_match.end():])
+                if english_match:
+                    start = full_transcript_match.end() + english_match.end()
+                    # Find next ### or ## or ---
+                    next_section = re.search(r'\n(###\s+|##\s+|---)', content[start:])
+                    if next_section:
+                        end = start + next_section.start()
+                    else:
+                        end = len(content)
+                    transcript = content[start:end].strip()
 
         translation = cls._extract_section(content, [
             r'##\s+Chinese Translation\s*/\s*中文翻译',
             r'##\s+Chinese Translation',
-            r'##\s+Translation'
+            r'##\s+Translation',
+            r'###\s+中文翻译'  # Handle subsection format
         ])
+
+        # Special handling for "Full Transcript" format with Chinese subsection
+        if not translation:
+            full_transcript_match = re.search(r'##\s+Full Transcript\s*/\s*完整文本', content, re.IGNORECASE)
+            if full_transcript_match:
+                # Look for ### 中文翻译 subsection
+                chinese_match = re.search(r'###\s+中文翻译\s*\n', content[full_transcript_match.end():])
+                if chinese_match:
+                    start = full_transcript_match.end() + chinese_match.end()
+                    # Find next ### or ## or ---
+                    next_section = re.search(r'\n(###\s+|##\s+|---)', content[start:])
+                    if next_section:
+                        end = start + next_section.start()
+                    else:
+                        end = len(content)
+                    translation = content[start:end].strip()
 
         # Fallback: if transcript is empty, look for any content after ---
         if not transcript and '---' in content:

@@ -1,0 +1,327 @@
+# The Word
+
+## English Transcript
+
+Welcome to Gospel in Life. Today, Tim Keller is looking at a passage from the opening chapter of the Gospel of John. John begins his account of Christ's birth, not the shepherds or angels, but with the mystery of the word becoming flesh.
+
+God himself, entering the world as a person in Jesus Christ, join us as Tim Keller explores the meaning of Jesus' birth. Tonight's scripture comes from the book of John, chapter 1, verses 1 through 11. In the beginning was the Word, and the Word was with God, and the Word was God.
+
+He was with God in the beginning. Through Him, all things were made, without Him, nothing was made that has been made. When Him was life, and that life was the light of all mankind, the light shines in the darkness, and the darkness has not overcome it.
+
+There was a man sent from God, whose name was John. He came as a witness to testify concerning that light, so that through Him all might believe. He himself was not the light.
+
+He came only as a witness to the light. The true light that gives light to everyone was coming into the world. And though the world was made through Him, the world did not recognize Him.
+
+He came to that which was His own, but His own did not receive Him. This is the Word of the Lord. Well, we're going to be doing for the weeks of Advent, which are the four weeks going up to Christmas.
+
+It's taking a look at the first chapter of John. We've been in John chapter 13 to 17. We're looking at the first chapter, because John chapter 1 is about Jesus coming into the world.
+
+It's basically John's way of talking about the meaning of Christmas. And even though there's many things that can be said about this very, very famous passage, seven times the word light shows up here. So you see where I circled it?
+
+Can you see the only? Seven times the word light. And though there will be other themes in here, I think we need to ask ourselves, what is this telling us about light also?
+
+You all know that light in the darkness is really one of the ways that throughout history, Christmas has been celebrated. It's one of the symbols as lighting candles and lights on trees and lights at night. What is that all about?
+
+Let's just take a look at how simply these first 11 verses of the gospel of John tell us that we need light, human beings need a light, that there is a light, and then how we can connect to it, how we can receive it. We need light, there is a light, and how we can receive it. Now, first of all, the need for light, especially since verses 4 and 5, in him was life, and that life was the light of all mankind.
+
+The light shines in the darkness, and the darkness is not overcome. Now, see here in verse 4, obviously there's light and there's lights, and here's lights, and you see the lights. But there is something that down in verse 9 is called the true light, that everyone needs, and in verse 4 is the light of mankind, which means there's a kind of light that we all need.
+
+But we're also told in these verses that our relationship with that true light is, how do you say it? It's very fraught, because obviously as we're going to get in a minute, down to verse 9 and 10, it talks about when the true light came into the world, it was rejected. But here in verse 5, it says that in a sense the true light came into the dark world, and it says, the darkness has not overcome it.
+
+Now, actually, if you've read this passage in more than one translation, you know that the translators often come up with fairly different takes on how to translate that word. Sometimes it says the darkness has not comprehended it. I think one of the older translations says, the light shines in the darkness, and the darkness comprehended it not.
+
+And sometimes the word here is overcome. Now, you say, well, that's pretty different. Well, yes and no.
+
+It's a single Greek word, but it's a word with, you might say, planned ambiguity in it. It's really like our English word master. Now, think about what it means to master something.
+
+Sometimes to master something means to extinguish it, to fight with it and extinguish it. So, you master your fears, means you're trying to get rid of them. You master your fears, you're really trying to just, you know, you're trying to fight them, control them, and extinguish them.
+
+But if you master a subject, you're not trying to just, you're trying to understand it. To say, I mastered that subject, I got it, understood it. So, which is it?
+
+Well, this word means both of those things, and it's probably deliberately ambiguous, which means John is trying to say that there's a true light that human beings need. But we not only are hostile to it, but we're clueless about it. We're not only hostile to it, we're clueless about it.
+
+And so, what it's actually saying is the world is a dark place, and we do not know how to enlighten ourselves. Now, let's go a little further with this idea of light. When the Bible talks about light and darkness, what is that symbolism?
+
+Well, it's really that hard, it's what it, you'd think it means. First of all, to be dark sometimes means evil and suffering. Darkness means evil and suffering.
+
+We talk about the dark times in our lives, so we're in a dark place in our lives. And evil and suffering can have many, many, many forms. You know, when Jesus was born, if you go to the book of Matthew, it tells us that Herod found out that there was someone born who was supposed to be the prophesied future king.
+
+Herod decided to kill all the children in the village of Bethlehem to make sure there was no future claimant to the throne. Mary and Joseph got away but had to go to Egypt. And so, you have refugees, and you've got violence, and you've got injustice, and you've got war and grief, and sorrow, and broken families and bereavement, and you know, just like now.
+
+The world's a dark place, the world continues to have all those things. So, when we talk about darkness, it can mean the world is filled with evil and suffering. But darkness can also mean ignorance.
+
+You know, if I'm in a dark room, I don't know what's in the room, and I'm stumbling, and I'm falling, because I'm in a dark, meaning to be in the dark can mean evil and suffering. The meaning of dark, I can't see reality. And again, what this means is to say the world is a dark place, is to say the world is filled with evil and suffering, and we don't have the ability or the knowledge to know how to solve it.
+
+The world is filled with evil and suffering, and we do not have the ability or knowledge to know how to solve it. Now, this is the very first, you might say, clue to what the Bible says, the meaning of Christmas, the meaning of Jesus coming in the world is. And that is, this world is a dark place, and if there is going to be any light, it has to come from outside the human race.
+
+Matthew quotes Isaiah. It's a very famous passage. Isaiah chapter 9, partly because it got into Handel's Messiah, but Isaiah 9 says, the people living in darkness have seen a great light.
+
+On those living in the land of the shadow of death, a light has dawn. And that's Matthew's way of talking about, Jesus came into the world, means that we're in darkness, and light has come in the world from outside the human race. Now, I want you to know what I'm about to tell you.
+
+I mean, pardon me, what I just told you, which is one of the messages of Christmas, the world's a dark place, filled with evil and suffering. We do not have the ability or knowledge to know how to solve it ourselves. If there is light or help, it's going to have to come from outside the human race.
+
+Everything in our culture is conditioning us to not believe that. Everything in our culture is against that. And this is a problem because Christmas is not going away.
+
+It is a commercial bananso. They will never be able to get rid of Christmas, ever. And at least not in the foreseeable thousand years.
+
+And therefore, what are we going to do when the message of Christmas is a very opposite of what the culture tells us? And the answer is, is the culture is going to constantly try to re-engineer Christmas? So a couple of years ago, I found this ad in the New York Times.
+
+It was a Christmas ad. It was a commercial ad. Somebody was selling a product.
+
+It was a company. But this is what they said. Quote, the meaning of Christmas is that love will triumph, and that we will be able to put together a world of unity in peace.
+
+Okay, so this ad says, the meaning of Christmas is that if we all pull together, we can do it. We can create a world of unity in peace, which is by the way, the exact opposite of the message of Christmas. Because, see, the message of Christmas is not from them a light has come.
+
+It's upon them a light has dawn. It comes from outside of us. We can't possibly generate that kind of light.
+
+We do not know how to solve our own problems or even stuff. We just can't. It's the opposite of the message.
+
+And yet, pardon me, that's what the message of Christmas, but the culture is going to be constantly trying to re-engineer it, but it won't work. Valkov Hava, who was the first president of Czech Republic, he had been both, he lived under socialism, and he lived under free market capitalism. And you know what he said?
+
+Neither of these things are going to solve the greatest human problems. In fact, he said, technology and science, they can tell you what you can do, and they can tell you how to do it efficiently, but they can never tell you whether you should do it or not. And therefore, he said that neither the technology nor the state government nor the market will ever be able to save us from nuclear conflict or environmental degradation or ethnic violence.
+
+And he says, quote, pursuit of the good life will not help humanity save itself, nor is democracy alone enough. Atturning to and seeking of God is needed. The human race constantly forgets that he is not God, and that's the message of Christmas.
+
+So this world is a dark place, that's 0.1, but 0.2, the other thing we're told here, is that there is a light. Yes, it's outside the human race, but there is a light. The light we need is exists.
+
+Well, where is it? Well, now let's look at verses 1, 2, and 3. And by the way, in verse 14, which we didn't read, we're going to get there in the coming weeks, it says that the word of God is Jesus.
+
+Now I'll get back to this term word later, but right now you can just put the word Jesus in there, because later on in the very chapter it tells us the word of God is another name for Jesus. So let's read this, and here's what verse 1 says. In the beginning was Jesus, and Jesus was with God, and Jesus was God.
+
+All right, let's stop right there. That might be familiar to you, you've heard it before, but let me show you how aptly startling it is, when the two truths that are being given to you in this sense are put next to each other. First of all, it tells us, Jesus is God.
+
+It doesn't say Jesus is a God. There's no article. In the Greek, the original Greek, there's no article.
+
+It doesn't say Jesus Christ was a God. It says Jesus Christ was God. If it said Jesus was a God, then there'd be more than one God, right?
+
+The Bible's not saying that. It's saying that, you know God, the one God, Jesus is that one God. But then, right next to it, it says Jesus was God, Jesus is God, and Jesus is with God.
+
+Now the word with means to have a relationship. You go to the bottom of, well, actually, you go later on in the Gospels, I guess it's in Mark, where it says that when Jesus chose 12 disciples, it says He chose them to be with Him, and to be with means to live with Him, to be His intimates, to be in a love relationship with Him, to be in a relationship of the closest communication and love, so to be with someone, that's a term that in the Bible means to be in a relationship with Him. So here's what it's saying.
+
+There's only one God, and Jesus is God, and yet Jesus is in a love relationship with God, and Jesus is God, and Jesus is in a love relationship with God. And even though the Holy Spirit's not mentioned here, even though the Holy Spirit is mentioned elsewhere in the Bible, here's what we got. There's only one God, not three God, there's only one God.
+
+But within that one God, the Father, the Son, the Holy Spirit, no one love each other. There's one God, but inside that one God there's three persons who, from all eternity, notice what it says, it says, through Him all things were made, without Him nothing was made that has been made. Which means the Son, Jesus Christ was not created, everything that ever made through Him, which means that the Father, the Son, the Holy Spirit, have all from the beginning endlessly known in love each other.
+
+Only Christianity then says that at the very heart of God, only Christianity says this. The very heart of God is a dynamical of relationship. From all eternity in the very being of God, there have been three persons who know each other and love each other and glorify each other and adore each other, and they have been loving and communicating with each other from all eternity.
+
+Inside God there is an exploding, dynamic, infinitely powerful set of relationships. And therefore, the meaning of life is relationship in love. See, if there was one God who only had one personality, one person, and then that person that God created other beings, then love comes in later, right?
+
+There's power and then there's love, isn't that right? If there was one God who only had one person, he was only one personality, one guy with one person, and that person created other beings, then you can't have love until you have other beings, right? Other persons.
+
+So first God is powerful, and then later on comes in love. But if you have a triune God, if you have a God who is the Father, Son, Holy Spirit, from all eternity, then love is first. Love is the most important thing, and relationships are the most important thing, and communication is the most important thing.
+
+But let me go a little further here. I think that this part of the Bible is actually trying to get you, it's really trying to just astonish us with the fact that when the Bible says God is love, you and I probably tend to think, okay, that means God is somehow loving. No, no, no.
+
+God is much more literally that. God from all eternity, before He created the world, before He did anything else, was already love, and dynamic love, interpersonal love, friendship, and in verse 18, we didn't get to that either, but in verse 18, some of you know, because it's such a, you've heard it before, it's so famous, this passage, it says this, from all eternity, the Son was in the bosom of the Father, in the bosom of the Father. I think that that's John's, by using that language, I think John is deliberately trying to get you to use your imagination for a minute.
+
+So will you come with me? As 2025 comes to a close, it should come as no surprise that we have great hope for the year ahead. Because of what God is doing to bring people to faith and to renew Christians through the Gospel teaching and resources you help us provide on our podcast, YouTube channel, radio broadcast, quarterly journal, and website, and soon through our translation project.
+
+We're grateful that so many of you are partnering with us to spread the message of Christ's love. Thank you. God continues to provide opportunities for us to expand the ways we share the Gospel.
+
+In 2026, we anticipate adding new international radio broadcasts and additional online ministry partnerships, publishing new books and beginning to make Dr. Keller's sermons available in other languages. So, as we close out the year, we invite you to prayerfully consider making a year end gift to Gospel in life.
+
+The year end gifts we receive are a vital part of how we will prepare for ministry in 2026. Your support allows us to share the story of the Gospel with people in over 200 countries, and we are deeply grateful for your participation in this mission. To make a year end gift, visit gospelonlife.com slash give.
+
+That's gospelonlife.com slash give. And please pray that we would steward your gifts well and that through the ministry of Gospel in life, many new people will find the hope and joy of knowing Christ as Savior. Thank you for partnering with us to share the love of Christ with a world that needs Him because the Gospel truly changes everything.
+
+Now, here's Dr. Keller with the remainder of today's message. How many people are there in the world right now that if you were laying on a sofa, you know, without even asking permission, could walk right over to you and lay down right alongside of you and lay right up against you, and that would be fine.
+
+How many people are there like that? Not many, right? And the ones that can do that are in the most intimate relationship possible, right?
+
+So I think this is what we're being asked. If you want to understand who God is and what God is like, then you have to start to imagine the time in your life when you felt the most loved. Now multiply that by a trillion, trillion, trillion.
+
+Imagine the time in your life when you felt the most understood, the most appreciated, the most adored, the most secure, the most significant. And you remember the joy of that, okay? And it's impossible almost to hold on to that because we're selfish beings.
+
+And so even if you're in a good marriage, those kinds of times come and go. Even if you're in one of the best marriages, those times only come and go because we tend to be selfish and we tend to want to not give to each other, but we want to receive, you know, and we fight. And therefore those times in which we have been the most blissful, the most loved, the most joyful, the most adored, those times they're fleeting, right?
+
+And they're partial, right? Now imagine three persons who are perfect persons who always love and glorify the people they love. Who never are saying you've got to serve me, but they're always serving each other.
+
+And that they're giving themselves to each other exhaustively and completely from all eternity. So you have to take the few moments in your life that you've experienced some of that. Multiply by a trillion, trillion, trillion, and that is the, and that is God.
+
+God is infinitely happy. God is infinitely loving. God is experiencing love and joy.
+
+The fathers and the Holy Spirit are just pouring joy and love and glory into each other's souls endlessly. They're bathed in the joy of each other. They're bathed in the love of each other.
+
+They are therefore infinitely happy, infinitely joyful, infinitely loving. And you know why would God have created other beings to share in it? Why would God create beings that are in God's image?
+
+So that we can do it with each other and with God to share in all that. Now you say, what does all that got to do with the theme? Everything.
+
+Because, here's what I'm trying to show you. First John 1.5, as John wrote three letters, as well as the book of John. First John 1.5 says, this is the message we heard from Jesus and now declare to you, God is light, and in him there is no darkness at all.
+
+Well, what is the light? That's kind of abstract. What is the light?
+
+This is the light. You know why this is the light? This infinite love, this pulsating love.
+
+This isn't just kind of a general sentiment. We're talking about real live interaction, communication. This is the light.
+
+When he says, God is light, that's kind of an abstraction. What is the light we need? This is what we need.
+
+Why? Let's look at our darkness. Every single bit of evil and suffering in this world, the darkness of this world.
+
+What is it at bottom? It's always a lack of love. It's a loss of love.
+
+What is war? What is racism? What is injustice?
+
+What is crime? What is violence? What is divorce?
+
+What is a broken family? What is bereavement? What is grief?
+
+What is sorrow? What is it? It's always the loss of love.
+
+It's always the lack of love, always. That's our darkness. And why do we have problem?
+
+Why can't we generate our own light? Because we're selfish. Because there's something about our heart that says, me first.
+
+You know, here's the great irony about the human nature. We want love. We want love more than anything else.
+
+That's what makes our life meaningful. We know that. You know, nobody, you know, I'd like to, this is true.
+
+I'd like to say it. You know, I've watched people die. I've seen people at the end.
+
+None of them ever say I wish I'd spent more time at the office. None of them say I wish I'd made more money. They all said I wish I'd spent more time with the people I love.
+
+I wish I'd worked on relationships. That's the meaning of life. And yet, at the same time, we've got something in us that says, me first.
+
+You serve me. That's the end of love. Love is you first.
+
+I will serve you. And God's got that. God's got that infinitely.
+
+And because God is therefore infinitely unselfish and loving, he's infinitely happy. And we don't have that. And so, we're in darkness and we need that light.
+
+And by the way, before going on to say, well, how do we get it? Let's keep in mind how different the Christian view of the world is. The Christian view of the universe is because we believe that in the beginning was an interpersonal God who, the Father, the Son, the Holy Spirit, loving each other from all eternity.
+
+You know how different that is? From ancient paganism and modern secularism. Ancient paganism says, here's how the world came about.
+
+There were these multiple power centers called gods. There was all these different gods and they fought with each other. And that's how the earth got created.
+
+And that's how this and that happened. So, in other words, ancient paganism believed the world at its heart was multiple power centers struggling against each other, power struggle. Modern secularism doesn't believe in gods.
+
+No, but it believes in an impersonal universe, impersonal. And it believes that the world got here through violent forces and that human beings evolved through survival of the fittest, nature red and tooth and crock claw, the strong eating the weak. So ancient paganism and modern secularism say the essence of the world is power and struggle.
+
+And Christianity says in the beginning there was withness. In the beginning there was withness. In the beginning there was love.
+
+Infinite love, endless love, powerful love. And that love is the light we need. Okay, thirdly, then, how do we get it?
+
+How does it happen? Now, obviously, as the beginning of the book of John, the rest of the book of John is all about that. And so, we have to kind of look ahead, but there's a hint even in here.
+
+And it's down here at the end. The true light, this is verse 9, 10, 11. The true light that gives light to everyone was coming into the world.
+
+He was in the world, and though the world was made through him, the world did not recognize him. He came to that which was his own, but his own did not receive him. Now, what this is saying is pretty simple.
+
+And that is that Jesus Christ came into the world to be rejected. He knew he would be rejected. But the ultimate rejection was, they didn't, it says his own did not receive him more than that, his own killed him.
+
+He came to us. We are his own. He created us, verse 1 and 2.
+
+He created us. If you make something, if you make something, it's yours. He made us.
+
+Not only are we his own, but of course, he's our true light. We need him, but he was rejected. And he was put to death.
+
+Why? Well, because this is the darkness in our hearts. We want love, and yet at the same time we're afraid of anybody coming in and saying, you have to serve me.
+
+No, no, I don't want to serve anybody. My heart says I want to be in charge. And so what Jesus Christ had to do was he had to overcome the barrier between ourselves and God.
+
+The Bible says there's a barrier between us and God. And what did he do? He went to the cross and on the cross, two things happened.
+
+Darkness came down. It was the middle of the day. It was the middle of the day.
+
+But Matthew 27.45 says that in the middle of the day, it became completely dark. Darkness came down. Why?
+
+The light of the world descended into darkness. But that was only symbolic. At the same time, he cried out, one verse later, it says, darkness came down.
+
+Verse 45, Matthew 27.45. And Matthew 27.46 says, And he cried out, my God, my God, why has thou forsaken me? You see, we've been making a connection here between light and love.
+
+Darkness and selfishness. And so let's just make the connection here. What was happening to Jesus on the cross?
+
+Hourly, darkness came down. Inwardly, darkness was coming down. What was it?
+
+It was the loss of love. Jesus Christ went to the cross to take the penalty, our sins deserve. What is the penalty for selfishness?
+
+See, selfishness is His own punishment. Selfishness is the loss of love. If you're in a marriage and both of you are being selfish, nobody has to come along and find you.
+
+Stop being selfish. It's a thousand dollars a day. No, you're losing love.
+
+You're pulling away from each other. It's awful. And it's true in friendships.
+
+It's true in families. It's true everywhere. So what is the punishment that selfishness deserves?
+
+It's the punishment that selfishness always gets. The loss of love. Oh my goodness, but what Jesus was experiencing.
+
+See, the reason why Jesus agony atone for the sins of the whole world. Why he took the punishment for everybody was this. Counselors will tell you and psychologists will tell you but you don't need them to tell you because you know this intuitively anyway.
+
+Is that there is no greater pain and there's no greater psychological pain in trauma than the loss of a spouse through death or divorce. The loss of love. Why?
+
+Because it's a very, very deep kind of love. It's the most intimate kind of relationship and to lose it one way or the other is awful. Oh my goodness, but don't forget, even if you've been married for 60 years, even if you had a great marriage, two human beings can only love each other so much, but the father and the son have loved each other from all eternity and perfectly and can you imagine?
+
+If you're not agonizing just to lose love right now and you're infinite in our infinite kind of limited way, what must it have been like? Think of the agony. Think of the hell that Jesus experienced on the cross.
+
+The agony and pain he experienced on the cross, that loss of love was greater than was so much as greater than anything you and I have ever experienced as a nuclear warhead is greater than the pop of a rubber band. And he died for our sins. And the reason why that is the key to connecting to the light is this.
+
+Number one, objectively, our sins are forgiven. So when I say father forgive me because of what Jesus did, God can forgive my sins and now come into my life and begin to start to fill me with His love. So that I begin to be somebody who actually can start to love other people and you can become someone who can love other people.
+
+It's a matter of money. Listen, it's very, very, very hard to be really generous to people when you can't pay your own light bill. But if you have a lot of money, then it's easier to be generous.
+
+A lot of people aren't generous with it, but it's at least possible. And the same thing with love, it's very hard to love other people and not be selfish when your own insights are so needy. When you don't feel very lovable yourself, but when God's love starts to pour in through the cross, when you see that Jesus Christ lost infinite love out of love for you, that begins to melt your heart, and that begins to fill you up.
+
+And you become rich in love so you start to be able to give other people love without always doing it in a kind of selfish way or a manipulative way. But so that's what Jesus has to do, but here's what you have to do. Here's what you have to do.
+
+You have to make him your reason for life. Now, what do I mean by that? What I'm about to tell you in the next two minutes could have been the whole sermon.
+
+But I like to go back to the very beginning where it says, in the beginning was the word, and the word was with God, and the word was God. Why is Jesus Christ called the word? It's the Greek word logos, from which we get our word logic, and also reason, right, logic or reason.
+
+And actually, when John says, Jesus Christ was the logos, he is deliberately connecting to a major cultural debate that was going on at that time. Because the Greek philosophers believe that there was a logos behind the universe. There was a reason behind the universe to understand what they meant.
+
+Think of this. You do not know how to use, let's just say, an appliance, unless you know the reason it was made. For example, if I take my watch and I try to hammer a nail with it, I'm going to ruin the watch, you know why?
+
+Because I'm not aligning with the reason the logos of the watch. The logos of the watches, the reason it was made. What was it made for?
+
+It was made to tell time not to hammer nails. And therefore, unless I align myself with the logos of the watch, the watch will not work. If you take a space heater and you try to cook on it, you might burn down your apartment.
+
+You know why? Because the logo of the space heater is not to be cooked upon. It's to heat your space.
+
+And if you're not aligning yourself with the logos of the space heater, you're in danger. Well, the Greek philosopher said, well, what if there's a logos to human life? What if there's a logos to the world?
+
+What if there's a logos behind the universe? And if we align with that, in other words, what if there was a purpose for human life? And if we aligned with that, that our lives would go well.
+
+So they argued about it. And they thought the logos was a proposition, a way of living. And this person said, well, the logo, there were various schools of thought.
+
+And some philosopher says, well, I think it's this. This is the logos. And other philosophers thought this is the logos.
+
+And some philosophers thought there is no logos. But they all said that you get to it through philosophical contemplation, through philosophical reasoning and thinking you can discern the reason that human beings were supposed to live. And then you align yourself with it, and along comes John.
+
+And he blows it all up, the gospel of John. And he brought an idea in that was revolutionary in the history of human thought. And he says, yes, there is a logos.
+
+Yes, the universe does have meaning. Yes, there actually is a reason for life. There is something you were created for.
+
+But that logos, that reason, is not an abstract proposition. It's a person that you know and love. It's Jesus Christ, and he's come into this world and you can know and love him.
+
+You know how revolutionary that was? If Jesus is the reason for life, that's what it means when it says, in the beginning, was the logos. If Jesus is the reason for life, then I don't have to be a philosopher.
+
+It's a certain that anybody can have a relationship with him. And it means that the meaning of life is not so much knowledge and contemplation and philosophical knowledge. It's love.
+
+And therefore, let me ask you a question. Is Jesus the reason for your life? Is Jesus the reason you get up in the morning?
+
+Is the reason you get out of bed? I'm not asking you to believe in Jesus. Do you pray to Jesus?
+
+Do you hope that Jesus will help you? I mean, is he your very reason for life? Is he the whole reason you're living?
+
+He was yours. What do you think about that? Jesus was perfectly happy in heaven.
+
+That was the point two here of the sermon. He was doing fine. He didn't need the trip.
+
+He was just fine. Why did he come? Why did he go through all that?
+
+What was the very reason for his human life? It was you and me. His very reason for life was you and me.
+
+Now you go make him your reason for life. It's only fair. And when you make him your reason for life, the very reason that you live your life day to day.
+
+He'll fill you with love and you'll become part of the solution that this dark world needs instead of part of the problem. Let us pray. Our Father, we thank You that there is a light.
+
+That light is the dynamic love and joy that You are capable of. And You make us capable of. We thank You that Your Son was willing to lose all that, to lose all that joy, to lose all that love in order to bring us into it.
+
+And therefore, oh, we need light, but there is a light. And we pray that You would fill us with Your light and Your love. And make us Your like Your Son.
+
+It's in His name that we pray. Amen. Thanks for listening to Tim Keller on the Gospel and Life podcast.
+
+If you'd like to see more people encouraged by the Gospel Center teaching and resources of this ministry, we invite you to consider becoming a Gospel and Life monthly partner. Your partnership allows us to reach people all over the world with the life giving power of Christ's love. To learn more, just visit gospelonlife.com slash partner.
+
+That website again is gospelonlife.com slash partner. Today's sermon was recorded in 2016. The sermons and talks you hear on the Gospel and Life podcast were recorded between 1989 and 2017, while Dr.

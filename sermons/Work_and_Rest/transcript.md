@@ -1,0 +1,399 @@
+# Work and Rest
+
+## English Transcript
+
+Welcome to Gospel and Life. Are you struggling to find meaning and purpose in your work? We spend much of our lives at our jobs, but our work can often be the area where we feel the most frustration and futility in our lives.
+
+Today on the podcast, Tim Keller helps us understand how the Gospel frees us to have hope and joy in our vocations. Now the scripture this morning is from Luke's Gospel chapter 6 verses 1 through 11. One Sabbath, Jesus was going through the grain fields and his disciples began to pick some heads of grain, rub them in their hands and ate the kernels.
+
+Some of the Pharisees asked, why are you doing what is unlawful on the Sabbath? Jesus answered them, have you never read what David did when he and his companions were hungry? He entered the house of God and taking the consecrated bread, he ate what is lawful only for priests to eat, and he also gave some to his companions.
+
+Then Jesus said to them, the son of man is Lord of the Sabbath. On another Sabbath he went into the synagogue and was teaching and a man was there whose right hand was shriveled. The Pharisees and the teachers of the law were looking for a reason to accuse Jesus so they watched him closely to see if he would heal on the Sabbath.
+
+But Jesus knew what they were thinking and said to the man with the shriveled hand, get up and stand in front of everyone. So he got up and stood there. Then Jesus said to them, I ask you which is lawful on the Sabbath to do good or to do evil to save life or to destroy it.
+
+He looked around at them all and then said to the man, stretch out your hand. He did so and his hand was completely restored, but they were furious and began to discuss with one another what they might do to Jesus. This is God's word.
+
+We're looking at the book of Luke and the life of Jesus in the book of Luke. For a number of weeks we've been looking at Jesus' teaching about what it means to follow him, what it means to be is disciple and of course Jesus is essentially taking the gospel, who he is, what he did. And he's saying his disciples are people who apply the gospel to absolutely every single area of life.
+
+And today we come to an area that is referred to. It's covered in the fourth commandment of the Ten Commandments. It's in Exodus 20.
+
+Six days you shall labor and do all your work, but the seventh day is a Sabbath to the Lord, your God. On it you shall not do any work for on the seventh day the Lord rested. Sabbath rests.
+
+Now I know that that we all have somewhat different relationships to work. There are people here for example who are out of work and would love to have more work. There are people here who in general have said to me that they have a problem with work with discipline, but by and large in New York City, in the middle of New York City, the biggest problem we have, one of the biggest problems we have is Sabbath rest, the discipline of the getting of Sabbath rest.
+
+Why do we need it? Where do we get it? How do we do it?
+
+Why do we need it? Where do we get it? How do we do it?
+
+It's all here. First of all, why do we need it? Look at verse 1-2.
+
+Jesus and His disciples were going through a field on a Sabbath day, and they picked some heads of grain, rubbed them in their hands to eat the kernels, and they were condemned. They were accused of breaking the Sabbath by the Pharisees, and that's because reaping grain was one of the 39 forms of work that was forbidden on the Sabbath day by the halaka at the time, which is the religious regulations. As soon as you hear that, this was breaking the Sabbath to just take the heads off of grain and rub them in your hands and get the kernels out and eat them.
+
+Right away we say, oh, we say how legalistic, how moralistic, all those rules, how awful. We turn up our nose at it, but notice Jesus' response is not the Son of Man has come to do away with the Sabbath, or to get us beyond all this. That's not what he says.
+
+He says the Son of Man is Lord of the Sabbath, and we'll get to that in a second, but it means at least this, that I'm all about the Sabbath. The Sabbath is what I'm all about, which means here's what we learn to start with. The most workaholic culture in the history of the world, it's us, dare not, turn up its nose at any effort, even misguided efforts, to give to people one of the things most crucial to making life even human, which is rest.
+
+Judas Schulovitz, who is a writer for the New York Times magazine, probably in New York Times book review, she wrote an article in New York Times magazine just this last month in the first week of March called Bring Back the Sabbath, and she says this. First of all, she gives a little bit of background on herself. She says she was raised probably in New York, I'm not sure, but she was raised in a religious community at a synagogue, but like the average professional secular New Yorker, she resisted and basically moved away from her religious upbringing, and then she began to experience a phenomenon.
+
+Here's how she describes it. She says my mood would darken every weekend. Until by Saturday afternoon, I'd be unresponsive and morose.
+
+My normal routine, which involved brunch with friends, made me feel impossibly restless. Then I began to do something that, as a teenager, profoundly put off by her religious education, I could never have imagined ever wanting to do. I began dropping in on a nearby synagogue.
+
+Finally, I developed a theory for my condition. If formerly people suffered from the Sabbath, which means all the regulations, I now was suffering from the lack thereof. There is ample evidence that our relationship to work is out of whack.
+
+Let me argue on behalf of an institution that has kept work of holism and reasonable check for thousands of years. Most people mistakenly believe that all you have to do to stop working is to not work. But the inventors of the Sabbath understood that it was a much more complicated undertaking.
+
+You cannot downshift casually and easily. This is why the Puritan and Jewish Sabbaths were so exactly intentional. The rules did not exist to torture the faithful.
+
+Interrupting the ceaseless round of striving requires a surprisingly strenuous act of the will. One that has to be bolstered by habit, as well as by social sanction. And what she's saying is simply this.
+
+In spite of the fact she knows about, she recognizes the potential for abuse. Our relationship to work as a society is so seriously out of whack. That anyone who thinks that you're going to be able to get rested by simply knocking off whenever you feel tired is hopelessly naive.
+
+The ability to rest, deeply rest, is a life or death thing. No one can do without it. But it is not natural.
+
+It is not simple. It is absolutely difficult. And it takes an enormous amount of discipline and practice.
+
+That's what she's saying. Now why would that be? Why would it be so hard?
+
+Well, first of all, we have to look at our modern situation. I'll do that briefly. The modern situation means that the eternal human need for rest is enormously aggravated.
+
+Let me give you four trends. A, B, C, D, trends. Trend 1, A, excuse me, an A trend, is the fact that more and more, at least in Western culture, jobs are insecure.
+
+The idea of jobs, hold departments. If they don't perform, if they don't turn profit, they're eliminated. Job security has never been a culture.
+
+Never been a place where job security was so bad. I don't think. Number two, these are the same big things and kind of in nut shells here.
+
+There's been a lot of research done on the fact that where it used to be, the people making the money at the top of a company, you used to make maybe 10 or 20 times with people at the bottom of the company made. Now it's more like 100 to 200 times. And partly as a result of this, to some degree, increasingly, people who make large amounts of money are expected to put in enormous numbers of hours.
+
+It's just expected. And if you don't want to do it, there's a line behind you. Whereas people on the bottom are having to take multiple jobs.
+
+So everybody's overworked as a matter where you are on the scale. In order to make ends meet, they have to take multiple jobs. That's B, C, technology, A technology.
+
+You can work anywhere. Which means, now, we work everywhere. It means that you can't stop work from spilling out into every nook and crane of your life.
+
+And that's C and D. The fourth trend, and this is a little more complex. Cultural analysts have said, and there's pretty much universal agreement on this, that whereas traditional societies said, you got your meaning in life through your family.
+
+You got your meaning in life through family. And through basically fulfilling a fairly prescribed social role, either as a mother or father or brother or sister, husband or wife or son or daughter. And work wasn't as important in a situation like that.
+
+You just need to find a way to make a living because family was what everything was about. But we are the first culture in history that says, you define yourself by deciding what you want to be and attaining it. And then you have significance, which means that work, there's never been more psychological and social and emotional pressure on work to be either fulfilling or at least lucrative.
+
+There's never been a culture like that, which means A, B, C, D, A, B and C, you know, mean that we are more desperately in need of rest than we ever have less time for rest than ever. And D means we emotionally on the inside have less ability to rest and relax than we anyone ever has had, any cultures ever had. But as bad as that is, as aggravating as the modern situation is, the Sabbath is an ancient practice because there is an abiding human problem that has always been there.
+
+The Sabbath is obviously not a response to modern hecticness. There's something that's already been there and what is that thing that's already been down there? There's something else that needs to be addressed by Sabbath.
+
+And Judith Schulovitz, and this is just a terrific article. She understands what that deeper thing is when she says, quote, when the Sabbath was still sacred, not only did drudgery give way to festivity and family gatherings and occasional worship, but the machinery of self-censorship shut down too, stilling the eternal inner murmur of self-reproach. The eternal inner murmur of self-reproach.
+
+The inner machinery, now what is she talking about there? Sleep experts know that in order to be restored, you don't just need amount of sleep, but depth of sleep, what they call REM sleep, rapid eye movement sleep. And of course, they say, I think that only happens after certain period of time.
+
+In other words, if you would take eight, one hour naps or something like that, and you say, I slept for eight hours, the next day, you would be absolutely just fatigued because you have to, I think sleep a certain period of time before, you go into deep sleep, rapid eye movement sleep. And so it's not just so much amount of sleep, it's the depth of sleep that you need, and hear what she's saying, and what I'm saying is, there is, on the one hand, your external work, and you do need rest from physical exertion, but there is a deeper problem. There is a work underneath the work.
+
+There is an eternal inner murmur. There is an inner machinery of self-censorship. What does she mean by that?
+
+It's not guilt. It's the need to prove yourself to yourself, to others, and that work makes the other kinds of work incredibly weary. That's what brings the wearyness.
+
+And that work, which is very, very difficult, you're always trying to prove yourself, you're trying to make sure that you, you know, that work, it's never enough. You're never, it's never enough. And because of that, you see, that's rapid eye movement, deep rest of the soul that you've got to have, or else all the vacations, number one, help.
+
+If you take your vacations, you knock off, but you're not able to deal with that, you're not able to get that deeper rest, able to get that spiritual rest, you're going to be in fatigue all the time. So under the big rest, under the physical rest, as a need for deep spiritual rest. For example, you know, the only good rocky movie, the first one, the question comes to rocky, you know, why are you driven?
+
+Why are you doing all this performance? You know, why are you, you know, why are those trumpets blazing as you run through the streets of Little Italy and Philadelphia and go up the art museum steps? Why are you working so hard?
+
+And his answer was, I want to go the distance, then I'll know I'm not a bum. So our hero is being driven by the eternal inner murmur of self-reproach. The inner machinery.
+
+That's why he's working so hard. That's why he makes it to the top, et cetera. That's why he's going to burn out.
+
+That's why the other movies are going to be terrible. There is a deep need for a deep soul rest, without which physical rest is not going to help you. So we need Sabbath rest.
+
+We've never needed it more than we do now, but we need it. So that's why we need it. Number one, number two, where do we get it?
+
+Now let's look at what Jesus says. They say he's violating the Sabbath and how does he respond? Well, he says, have you ever read that what David did when he and his companions were hungry?
+
+He entered the house of God and taken the consecrated bread. He ate what is lawful for only priest to eat, and then he gave some to his companions. Now what's interesting here is Jesus takes an incident from 1 Samuel 21, where we're told that David, when he was on run for his life, he was running for his life.
+
+He went through the tabernacle, and in the tabernacle, there is the place where the show bread, which was the bread of the presence. It was in the holy place. In the tabernacle was part of the Sabbath worship, and you are not allowed to eat it.
+
+It was part of the worship, and David ate it. Of course, as Jesus implies, he was never condemned for it. God never said it was anything wrong with what he did.
+
+He was never condemned for it at all. Now Jesus is inviting us to think out the implications of that. If the Sabbath and worship regulations can be set aside in a pinch, but on the other hand, if there's absolutely no place anywhere in the Bible, where the moral law can be set aside in a pinch.
+
+There's no place where God says, well, you were in a hurry, so committing adultery is all right, worshiping an idol is all right, stealing, robbing, armed robbery. That was all right. You know you were in trouble.
+
+You were in, no, if there's no place ever where the moral law is set aside in a pinch, but the Sabbath and the ceremonial and the worship regulations are set aside in a pinch. What does this mean? Think of the reasoning.
+
+It means that they are provisional, meaning that means they are temporary, meaning that they will end when something comes along that makes them obsolete to which they point. And what would that be? He says, it's very, very next verse.
+
+Then Jesus says to them, assuming that they are thinking along these lines, I am Lord of the Sabbath, which is astounding. Let's think about what he's saying. He's saying actually, more things than I'm going to be able to open up in this sermon, but he's saying this.
+
+I am the one that the Sabbath regulations all pointed to. I can give you the deep rest of the soul that you most need. I am the Lord of rest.
+
+Jesus, I am the Lord of rest. And you know what this means, two ways. If you want rest, you have to go to him.
+
+And if you think you've gone to him, but you don't have any rest, you still don't know what you have. You still haven't taken hold of what you have. You still haven't understood what you have.
+
+Now, how and why? How is he the Lord of rest and why? All right.
+
+Let me take you to three couple passages, a couple of other verses that are important. What does this mean that he's Lord of rest? What does it mean to give you rest?
+
+First of all, let's go to the original verse in the Bible about this. You go all the way back to Genesis 1, the end of Genesis 1, the beginning of Genesis 2, and God has just finished creating the world. And this is what we read.
+
+And God saw that all he had created, pardon me, and God saw that all he had made, it was good. And God finished the work he had been doing so that on the seventh day, he rested from his work. God rested seventh day, right?
+
+But what do you mean God rested? Was he tired? God can't be tired.
+
+And if God can't be tired, what in the world does it mean he's rested? You and I can define rest as getting over being tired. What does it mean that God rested if he wasn't tired?
+
+And here's the answer. One of the things that's so neat about the creation account is every time God makes something before he moves on to something else, he says something over and over and over again. You know what it is?
+
+He makes something and he looks at it and he says, that's good. That was good. Then he makes something else and he says, that's good.
+
+And then when he gets to the very end, it's the which I just read. He looks at all of it and he says, very good. And that's what it means to rest.
+
+To be utterly satisfied with what's been done. To be utterly satisfied. That's the only way you can walk away.
+
+It's the only way you can stop. The only way you can put your doing down is if you're absolutely satisfied with the doing. That's good.
+
+That is good. Now you can rest. Now you can relax.
+
+So you see, the definition of resting is to be utterly satisfied with what was done. Secondly, second verse. Scroll forward, Hebrews chapter 4 is talking about the gospel.
+
+The Hebrews writer is talking to Christians about what it means to believe in Jesus. And as he's talking about the gospel and believing in Jesus, suddenly he says this, there remains then a rest for the people of God. For anyone who through the gospel enters God's rest, rest from his own work just as God rested from his.
+
+Now this is an amazing statement. What does it mean to become a Christian? I mean, there's a whole lot of ways of putting it.
+
+And the reason you need every different way is because you need them all to understand the richness of it. To become a Christian is someone who's able to look at your work the way God looked at his, able to look at your life the way God looked at his. You're being told here that through Jesus Christ, you can look at your life.
+
+You can look at yourself and say, it's absolutely satisfying. It's absolutely good. There's nothing else that needs to be done.
+
+It is good. All the work that I need to do is finished. It's estimated that most of us spend half of our waking hours at work.
+
+How does the wisdom of the Bible apply to our careers? In other words, how can our work connect with God's work and how can our vocations be more emotional? In his book, Every Good and Devere, Tim Keller draws from decades of teaching on vocation and calling to show you how to find true joy in your work as you serve God and others.
+
+The book offers surprising insights into how a Christian perspective on work can serve as the foundation for a thriving career and a balanced personal life. Every good endeavor is our thank you for your gift to help gospel and life share Christ's love with more people around the world. Just visit gospelandlife.com slash give.
+
+That's gospelandlife.com slash give. Now here's Dr. Keller with the remainder of today's teaching.
+
+How could that be? How is that possible? But you see, look, Judas Schulovitz, one more time.
+
+I'm going to go back to her one more time because it's such a great article. She gives us insight and she puts it like this. And this is great.
+
+She says, not even our most pardon me, not even our group leisure activities can do for us what the Sabbath rituals could once be counted on to do. Hear that? She says, not enough for you to just knock off and go on out there and do all your leisure activity.
+
+That's not going to give you the rest from the eternal inner murmur and inner machinery. Oh no. She says, she says, not even our group, group leisure activities can do for us what Sabbath rituals could once be counted to do because religious rituals do not exist simply to promote togetherness.
+
+They are designed to convey to us a story about who we are. The story told by the Sabbath is of creation. God rested and we rest in order to honor the image of the divine in us to remind us that there's more to us than our work.
+
+Now she to a great degree has discerned exactly what the Hebrews writers trying to say. Remember we said there's a work underneath as well as the work up here. There's a physical work but the thing that makes things really worry, really weary is not the physical work because listen, you go back into the book of Genesis, you go back to Paradise, go to the Garden of Eden and there was work there.
+
+In other words, what really is there are problems is not the presence of work, it's the absence of deep rest. So there's the external work but then there's the work down here. What is that?
+
+And she knows what it is. She already talked about it. She called the eternal inner murmur a self approach but here's what it is.
+
+It's trying to know who you are. It's trying to show to other people and to yourself, I know I'm somebody important or something to me, something important. And you do it through the doing.
+
+Every human being does it. Religious people say if I'm really good and if I do many, many good works, God will bless me. Secular people though, their hearts operate on the very same basis, the very same basis.
+
+They don't believe in God or believe in law or the Bible or anything but they have set their standards and their entire self-image rests on meeting those standards and living up to those goals. That's the work, under the work. Always having to prove yourself, always having to assure yourself that you're somebody important.
+
+But that work is never finished. Never finished. It's never over.
+
+It's never enough. You never can look under those circumstances that you're doing and say, it's good. Maybe one day occasionally, but what about tomorrow?
+
+There's always tomorrow. You can never say what God said and see what is rest. To be able to look and say, I am satisfied.
+
+It is good. It is finished. But the Hebrews writer says, through Jesus and only through Jesus, can you get this rest.
+
+Jesus is the one who said, come unto me, O ye who labor and are heavy laden and I will give you rest. Take my yoke upon me for I am gentle and humble in heart and you will find rest for your souls. From my burden is easy.
+
+My yoke is easy and my burden is light. What he's saying is, everybody's serving something. Everybody's trying to get an identity out of something.
+
+But only if you make me the meaning of your life will you get absolute rest. Only through me will you be able to look at yourself, look at your work, look at everything and say it's finished. Everything is necessary that to be done has been done.
+
+It is good. How is that possible? Here's how it's possible.
+
+How's that possible through Jesus? Here's how it's possible. Look at the last verse.
+
+There's a great irony in this verse. You have to put verse 11 together with verse 5. When they were furious and began to discuss with one another what they might do to Jesus.
+
+Now why were they so furious? Do you know what it means when he says, I'm Lord of the Sabbath? I'm the one who invented the Sabbath.
+
+I'm the one who fulfills the Sabbath. He's climbing to be God. There was nothing they could do about that other than to say, we've got to do something about that.
+
+What did they decide they were going to do? They were furious at them. What did they decide they were going to have to do to them eventually?
+
+You know what they had to do? They had to haven't killed, but get this. That made him Lord of the Sabbath.
+
+All they did was make him Lord of the Sabbath. Why? Because on the cross you see him rising.
+
+Do you see him crying? Do you see him calling out? Why is he so restless?
+
+Two verses. Isaiah 57-20. The wicked are like the tossing sea, which cannot rest, whose ways cast up my or in mud.
+
+There is no peace for the wicked. The wicked are like to see, which cannot rest, and 2 Corinthians 5-21. On the cross God made him to be sin, who knew no sin, that we might become the righteousness of God in him.
+
+What's going on with Jesus up there? Why is he doing all that? Why is he crying out?
+
+Why is he writhing? He is experiencing. God is making him experience because God is turning away from him.
+
+Infinite restlessness. There is no rest for those who turn away from God. He was experiencing it.
+
+Infinite restlessness. Cosmic restlessness. Why?
+
+So that when he died, he was able to say what he did. It is finished. What is finished?
+
+Everything necessary for salvation for the most exacting conscience, for the most incredibly perfectionistic, eternal, inner murmur. Do you see that? In other words, Jesus Christ came to live a life you should have lived, perfectly, and died that death you should have died, the penalty, perfectly, so that when God looks at you, because you have received Christ as your Savior, and what does it mean to receive Christ as Savior?
+
+What does it mean to be a Christian? It doesn't mean to say, I'm going to try to be like Jesus, help me. To be a Christian is to say, I rest not on my works, but his.
+
+I rest on his finished work. Accept me because of not my record, his record. Accept me not because of my work, because of his works.
+
+And the minute you say that, God imputes your sin to him. That's what Second Corinthians 5, 21 means, and imputes his righteousness to you, which means that when God looks at you in Christ, he says, it is good. And everything necessary that you've got to do is finished.
+
+And the only set of eyes in the world that you should have to prove yourself to has already said, this is my beloved child in whom I'm well-pleased. Remember, Jerry, it's a fire. Two guys.
+
+And so about the Sabbath, it's the only movie I know in the last 50 years about the Sabbath that I know. And one guy can't stop working. He's a runner, he's a sprinter, and somebody asks him, like they ask Rocky, why are you working so hard to go to the Olympics and win a medal?
+
+And the answer is, I have 10 seconds, he's talking about the dash, you know, 9, 10 seconds the dash. I have 10 seconds to justify my existence. I'm trying to prove myself.
+
+I'm trying to make sure I know who I am, as Judith Schull of it says. That's the work under all the work. And so he's driven, but there's another guy who finds out that the gold medal, I mean, the medal race is going to be held on a Sunday.
+
+And he's a Christian, and he's committed to the practice of Sabbath. But see, the important thing, it's not a legalistic thing at all. He is so secure in who he is in Christ that he is willing to say, I'm not going to run, even if it means costing a gold medal.
+
+The irony is, the first guy gets the gold medal, but it's not enough. It's never enough, because it's never, never enough, because the work underneath the work, the work that really makes you weary, is never finished except in Jesus. In Jesus, God says, it is good.
+
+In Jesus, God looks at you and says it is good. In Jesus, you hear it is finished. You get that, then you can move to the third point.
+
+The third point is, if and only if you get the deep rest that Jesus Christ offers you, can you now turn and ask the question, how do we do this? Now anything you try to do to practice Sabbath, to take time off from work, to stay away from the, anything you do before you understand what I've just gone through is never going to work. Focations don't deal with the deep thing, the deep rest, the REM of the soul.
+
+But once you understand that, let me quickly at least make a list of a few things. What do we learn about how to do it? How to actually practice Sabbath?
+
+And here are a few things, and I got to be fast. Obviously, I can't go into too many details, but the last thing we see with Jesus is, He heals a man on the Sabbath. Now, according to the Halak at the time, you could do medical treatment if the man was dying.
+
+If the person was about to die, it was in dire situation. But you ordinarily couldn't do medical treatment on it like this. You couldn't do this.
+
+So he broke the Sabbath, but notice he does not say, again, he does not say, the reason I'm doing this is because the Sabbath is abrogated. We don't do Sabbath anymore. We don't need to practice the Sabbath.
+
+That's not what he says. He talks as if the Sabbath is still there. He says, I ask you, is it lawful on the Sabbath to do good or to do evil?
+
+What he's saying is, I'm doing what I should be doing on the Sabbath, which is restorative. I'm restoring the shriveled. So here's what Jesus is telling us, unfortunately.
+
+We believe, most Christians believe that because of Jesus coming, He fulfills the Sabbath in such a way that we do not have to go through all the regulations of the Old Testament. We don't have to have 3,000 different things we can do and can't do. We can't walk this far.
+
+We can walk this far. So we believe that, but that's a problem because Jesus is saying the practice of Sabbath is still absolutely necessary. And because you don't have the rules, you've got to have anything more danger as Christians who want to practice Sabbath because we don't have the rules.
+
+There are certain disciplines I would suggest very, very strongly that you do. There's three inner disciplines and several outer disciplines so that you can take what you have in Jesus and practice Sabbath so that your relationship to work, and if you're in New York, it probably is would not be any longer seriously out of whack. Interdisciplines.
+
+First of all, if you don't do these three inner disciplines, the outer ones won't work. Number one, interdiscipline. According to the Bible, Sabbath is an act of liberation.
+
+In Deuteronomy Chapter 15, God says, because I read it to you. In Deuteronomy Chapter 15, it says, remember that you were slaves in Egypt and that I brought you out with a mighty hand. Therefore, observe the Sabbath day.
+
+Isn't that interesting? While a God say, you were slaves, but you're free, therefore observe the Sabbath day. And I'll tell you why because obviously, first of all, slaves didn't have a day off.
+
+If you don't rest, you're a slave. Well, think about what this means. If you can't rest, if you can't...
+
+A lot of what I'm talking about here is not just work for income friends. A lot of you can't say no. A lot of you are incredibly over committed.
+
+You're way too busy. You're always too busy. And if you are always too busy and you can't just say no to people and you can't set some time aside, you're a slave.
+
+You're a slave. It's maybe self-imposed. You're a slave to your own needs.
+
+You're a slave to your own insecurities. You're a slave to your own need of self-salvation. You're a slave to your family's hopes.
+
+You're a slave to your culture's expectations. You're a slave to your company. But you're a slave.
+
+You have to say, inside your heart, deep into your own soul, this is an act of liberation. My work does not define me. Christ defines me.
+
+I am not defined by how many customers I get, how much money I make, how well I'm doing this. How expert I become. I am not.
+
+I'm taking time off today. I'm taking time off tonight. I'm taking time off this week.
+
+I'm not going to think about it because I am not a slave. So it's an act of liberation, number one, number two. It's an act of trust.
+
+The Sabbath, our rest points to God's work and rest, which means you're not God. He is. And one of the problems a lot of us have, and unless you tell yourself this is an interdiscipline, you're not going to be able to take the time off you need to.
+
+You need to say it to yourself, I am not the one who keeps the world running. I'm not the one who's bringing money to my family. I'm not the one who's meeting my needs.
+
+I'm not the one. God is the one. I am not God.
+
+Sabbath is not only a discipline of liberation. It's a discipline of trust. I'm not God.
+
+Better stop. I got to move on to the external disciplines, all right? There's five external disciplines.
+
+If you do the internal disciplines, and only if you do them, you'll be able to relax at the external disciplines. If you don't do the internal ones, you're just going to spend the whole day somehow still weary when it's over. But here's the external disciplines.
+
+Number one, take more Sabbath time. Well, somebody says, how do you know how much to take? I'll get to that in a second, but probably more than you're taking, okay?
+
+Take more Sabbath time. Number one, that's easy. Number two, balance your Sabbath time, which means do some avocational, some contemplative, and some inactive stuff.
+
+Avocational means do some things that you ordinarily don't do, okay? Fishing is an avocation if it's not how you make your living, right? You know, a guy who makes his living fishing doesn't want to shouldn't fish on his day off, okay?
+
+But maybe you can. Avocation, and you need some of that, because in avocation, you're enjoying God's finished work, his creation. Number two, contemplative.
+
+Judicial of it was absolutely right when she says, you're not doing the deep work of rest by just doing leisure things. You've got to tell yourself the story of who you are. The reason we can't rest is we're not sure we're okay.
+
+She said that. And therefore, you've got to do worship on your day off. In fact, this is not my day off.
+
+Does everybody know that? This is a 16-hour day for me. When I take my day off on Tuesday or Wednesday, what do I have to start with?
+
+I have to start with worship. I've got to start with worship. If I don't start with worship, I'm not really going to be relaxed the rest of the time.
+
+I've got to tell myself who I am. I've got to tell myself the story of who I am. Avocational, contemplative, and inactive.
+
+Now, what I mean by that is, do you know in the Old Testament, not only people, but the land got a Sabbath year every so often, did you know that? And whenever the land got a Sabbath year, what do they do to it? Do they put different grain in?
+
+No, they'll just let anything come up that would come up. And if you're not rested, unless you have some unstructured time, some unplanned time, some time without family gathering, sometimes without avocation, sometimes where you just can think about whatever thought comes, feel whatever feeling comes. You've got to have some of that.
+
+That's a biblical principle. So balance your use of Sabbath time. So first, take more Sabbath times.
+
+Secondly, balance more Sabbath time. Number three, be accountable for Sabbath time. It is not possible in this world, not to have seasons in which you tend to overwork.
+
+I don't know how you're going to be a doctor ever unless you become a resident, which means you overwork for three years. I don't know how you start a business without sometimes overworking at first, but you need to have accountability. You need to look at somebody in the eye and say, when the two years is up, when the one year is up, when the three years is up, stop me because I do not want to spend the rest of my life in under Sabbath mode.
+
+How many of you know the plates illustration? You're kidding. When I came here, I said to my wife and my children, I'm going to overwork for about three years because we're going to start a church, but then it would be great.
+
+Three and a half years, four years, no change in my schedule. One day, I was coming back into my apartment, and it was a warm day, so the balcony was open, and there was my wife. She had plates, our wedding plates, plates that were given to us when we first got married, and she was out there and she had a hammer.
+
+And as I came in, I heard a smash, and then I looked out there, and there she was, and she put another one down, and she took a hammer and she was smashing the plates. And I went up and I said, what is going on? And she said, she says, you haven't heard me.
+
+You promised that you would at a certain point power down. You're not taking enough time off. You're not taking enough Sabbath.
+
+You're not practicing Sabbath. And you're not hearing me. You're not hearing how incredibly serious this is.
+
+You are not listening to me. And I freaked out, and I was very upset, and I you know, and I wept, and I can't believe you're this upset. And she said, I'm not that upset.
+
+And she said, well, of course you must be that upset. And I was very upset. And it really sunk in, and I really made a change.
+
+But not long afterwards, I said to her, I said, you know, what do you mean you weren't upset? She said, I really wasn't upset. I said, well, you must have been upset.
+
+She says, no. She says, you know, the plates that we've, you know, the saucers that I was breaking, they were all saucers that we didn't have cups for anymore. Be accountable.
+
+Number four, inject Sabbath time into your work. Now, how does that? In other words, in the Old Testament, there was a rule.
+
+There was a law called gleaning, and gleaning meant you could not reap all the way out to the corners of your field. It was a designed limit on productivity so you wouldn't overwork. It will not be enough for you to work like a demon and then take time off.
+
+It means fewer goals. It means, at some point in your life, to really practice what this is saying, to really get the right relationship to work. You probably are going to have to risk falling behind in your career, or you will not be a disciple.
+
+In other words, at some point you're going to say, I'm going to do the things I need to do. Avocationally, contemplatively, I'm going to do my Sabbath. I'm going to do, I'm not going to let this work completely overwhelm me.
+
+And if you do this, you're going to risk falling behind in your career. Maybe God will let you. Maybe He won't.
+
+That's up to Him. Either way, you'll be sane. And even if you fall behind the people who get ahead of you because they're overworking won't be.
+
+So take more Sabbath time, balance your Sabbath time, be accountable for Sabbath time, inject Sabbath time actually into your work and last of all community. Community. I've already hinted at this.
+
+The only way you're going to think these things out is get some other people who are in the same job as you and brainstorm, how can we keep ourselves from being overwhelmed by work? How can we put work in its place? How can you do leisure?
+
+How can you do rest? How can you do it? The only person whose eyes you should have to prove yourself to looks at you now and says it is good.
+
+It is finished. Let that sink deeply into your life. It's going to change your attitude toward work.
+
+Let us pray. Thank you, Father, for giving us what we need to know that we're able to have deep peace, deep poise. There's a calm in our lives that can be here because we know that Jesus Christ has done everything necessary.
+
+He's finished the work. We pray therefore that we could take a look at all the other work that we do and never get rid of our perfectionism, get rid of our overwork, get rid of our underwork because I know Lord many of us underwork because we're afraid of failure, afraid of failure. Many people underwork because they're afraid of failure.
+
+The gospel takes that out too because in Jesus Christ it is finished. We thank you, Father, for this possibility, but we also know we don't realize that by your Holy Spirit help us too. We ask in Jesus' name, amen.
+
+Thanks for listening to Tim Keller on the Gospel and Life podcast. If you'd like to see more people encouraged by the Gospel-centered teaching and resources of this ministry, we invite you to consider becoming a Gospel and Life monthly partner. Your partnership allows us to reach people all over the world with the life-giving power of Christ's love.
+
+To learn more, just visit gospelandlife.com-slash-partner. That website again is gospelandlife.com-slash-partner. Today's sermon was recorded in 2003.
+
+The sermons and talks you hear on the Gospel and Life podcast were recorded between 1989 and 2017 while Dr.
