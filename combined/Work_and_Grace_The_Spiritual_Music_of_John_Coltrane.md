@@ -1,6 +1,8 @@
-# Work & Grace The Spiritual Music of John Coltrane / Work & Grace The Spiritual Music of John Coltrane
+# 工作与恩典：柯川的属灵音乐 / Work & Grace The Spiritual Music of John Coltrane
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel and Life. If you have a job, it's likely that you think about it a lot. But how much of you thought about the Biblical approach to your work?
 
@@ -462,6 +464,9 @@ The sermons and talks you hear on the Gospel and Life Podcast were recorded betw
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音与生命》。如果你有工作，你很可能经常思考它。但你是否想过圣经对工作的看法？今天，在《福音与生命》节目中，提姆·凯勒向我们展示了圣经中关于我们工作的极其有帮助和实用的智慧。
 
 这些智慧可能让你感到惊讶，甚至改变你的生活。我想谈谈约翰·科尔特兰说过的两句话，关于上帝和他的音乐之间的关系。我认为这两句话都告诉我们一些非常重要的东西。第一句告诉我们音乐和艺术与上帝之间关系的一些东西。
@@ -765,3 +770,7 @@ The sermons and talks you hear on the Gospel and Life Podcast were recorded betw
 所以让我们为他的到来鼓掌感谢他。谢谢。感谢大家的到来。感谢大家收听《福音与生活播客》。
 
 希望今天的教导能够挑战和鼓励你。我们邀请你通过评分和评论帮助更多人发现这个播客。如果你想了解更多以福音为中心的内容，可以访问GospelUnlife.com。今天的谈话录制于2006年。
+
+---
+
+*翻译整理：小雷 ⚡*

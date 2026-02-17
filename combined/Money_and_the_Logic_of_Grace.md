@@ -1,6 +1,8 @@
-# Money and the Logic of Grace / Money and the Logic of Grace
+# 金钱与恩典的逻辑 / Money and the Logic of Grace
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Why does the Bible talk about money so much? How we think about and use our money is one of the most common subjects throughout Scripture.
 
@@ -332,6 +334,9 @@ That's gospelandlife.com slash Tuesday because the Gospel changes everything. To
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎收听《生命中的福音》。为什么圣经中这么多次提到金钱？我们在金钱上的想法和使用方式是整本圣经中最常见的主题之一。并且，圣经告诉我们一个令人震惊的事实：没有把钱和对它的态度交在上帝手中，就无法经历深刻的灵性成长。
 
 请聆听提摩太·基勒（Tim Keller）如何向我们展示为什么慷慨对于基督徒来说不是可选的，而是真实信仰的重要标志。今晚我们的经文来自路加福音第14章7-24节。当他注意到客人在宴席上挑选座位时，耶稣对他们讲了这个比喻：当有人邀请你参加婚宴的时候，不要去挑最好的位置；因为可能有比你更有名望的人也被邀请了。如果真是这样，主人会来对你说：“请把这个位子让给那个人。
@@ -551,3 +556,7 @@ That's gospelandlife.com slash Tuesday because the Gospel changes everything. To
 今年当你向《福音与生活》捐款时，在与复兴城市伙伴计划合作下，您的礼物将帮助资助在肯尼亚的一次培训密集期，为非洲城市的牧师植堂提供辅导和支持，从坎帕拉到雷戈斯再到约翰内斯堡。要今天捐款，请访问gospelandlife.com/slash-Tuesday。那是gospelandlife.com/slash-Tuesday，因为福音改变了一切。今天的讲道是在2010年录制的。
 
 您在《福音与生活》播客上听到的讲道和谈话，是从1989年至2017年由凯勒博士录制的。
+
+---
+
+*翻译整理：小雷 ⚡*

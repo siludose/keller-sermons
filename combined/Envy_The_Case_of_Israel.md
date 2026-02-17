@@ -1,6 +1,8 @@
-# Envy The Case of Israel / Envy The Case of Israel
+# 嫉妒：以色列的案例 / Envy The Case of Israel
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Some people say the fundamental problem of the world is poverty. Others say it's bad systems, poor education, or biology, but what if none of these can fully explain the brokenness we see, both in the headlines and in our own hearts?
 
@@ -356,6 +358,9 @@ The sermons and talks you hear on the Gospel and Life Podcast were recorded betw
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音人生》。有些人说世界的根本问题是贫困。其他人说这是坏制度、教育不足或生物学，但如果这些都不能完全解释我们所看到的破裂——在新闻标题中和我们自己的心里——会怎样？在今天的教导中，蒂姆·凯勒看圣经关于罪的教导如何给我们一个既深刻诚实又令人难以置信的希望的观点。
 
 我想讨论嫉妒。嫉妒是什么？嫉妒是当你看到某人拥有的东西，当你想要他们拥有的东西时的感觉，你开始变得苦涩和愤怒。现在，在我们的文化中，我们不常谈论嫉妒。
@@ -429,3 +434,7 @@ The sermons and talks you hear on the Gospel and Life Podcast were recorded betw
 " 我邀请你投靠耶稣。我邀请你记住你的价值来自于他。我邀请你停止比较。我邀请你学会感谢。
 
 我邀请你为他人的成功而高兴。因为当你这样做时，当你真的让这些事情改变你的心时，嫉妒就会开始消退。你会开始感到自由。
+
+---
+
+*翻译整理：小雷 ⚡*

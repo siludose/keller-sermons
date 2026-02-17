@@ -1,6 +1,8 @@
-# Anatomy of Sin (Part 2) / Anatomy of Sin (Part 2)
+# 罪的解剖（下） / Anatomy of Sin (Part 2)
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Some people say the fundamental problem of the world is poverty. Others say it's bad systems, poor education or biology, but what if none of these can fully explain the brokenness we see, both in the headlines and in our own hearts?
 
@@ -462,6 +464,9 @@ The sermons and talks you hear on the Gospel Unlife Podcast were recorded betwee
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音与生活》。有些人说世界的根本问题是贫困。其他人说这是坏制度、教育不足或生物学，但如果这些都不能充分解释我们看到的破碎，无论是在头条新闻还是在我们自己的心中呢？在今天的教学中，提摩太·凯勒观察圣经关于罪的教导如何给我们一个深刻诚实的，但令人难以置信的充满希望的世界观。
 
 我想为你读我们今天上午教学基于的文本。这是耶利米书第 2 章。我们上周开始查看这一章。这是耶利米对犹大人民的第一个讲道。
@@ -625,3 +630,7 @@ The sermons and talks you hear on the Gospel Unlife Podcast were recorded betwee
 感谢你今天加入我们在福音与生活播客。我们希望今天的教学鼓励你更深入地进入神的话语。你可以通过评定和评论来帮助他人发现这个播客。要找到更多提摩太·凯勒的福音中心的内容，访问 GospelUnliked.com.今天的讲道是在 1995 年录制的。
 
 你在福音与生活播客上听到的讲道和谈话是在 1989 年至 2017 年间录制的，当时凯勒博士是救赎长老会的主任牧师。
+
+---
+
+*翻译整理：小雷 ⚡*

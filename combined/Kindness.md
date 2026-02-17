@@ -1,6 +1,8 @@
-# Kindness / Kindness
+# 恩慈 / Kindness
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. The Bible says there's a world of difference between a will-power-driven heart and a supernaturally changed one. Today, Tim Keller is unpacking one of the fruit of the Spirit, helping us see what it means to move from trying to be good to truly changing from the inside out.
 
@@ -306,6 +308,9 @@ The sermons and talks you hear on the Gospel Online Podcast were recorded betwee
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《生命中的福音》。圣经说，靠意志力驱动的心和被圣灵改变的心之间有着天壤之别。今天，提摩太·基勒将为我们解开圣灵果子之一的意义，帮助我们明白从试图做好人到从内心深处真正改变的转变意味着什么。今晚的经文来自约翰福音15章6至15节：“若不常在我里面，就像枝子丢在外面枯干了。
 
 人都把它捡起来，扔在火里烧了。你们如果常在我里面，我的话也常在你们里面；凡你们所愿意的，祈求就给你们成就。这样，我的喜乐就完全归于你们了。” 你们要常在我的爱里。
@@ -497,3 +502,7 @@ The sermons and talks you hear on the Gospel Online Podcast were recorded betwee
 感谢收听《福音在线播客》上的提摩西·基勒牧师的讲道。如果你希望更多人通过福音中心的信息和资源得到鼓励，请考虑成为“福音在线”的月度合作伙伴。您的支持将使我们能够向全世界的人传递基督之爱的生命力量。要了解更多，请访问 gospelonlife.com/partner。
 
 再次提醒，网站地址是 gospelonlife.com/partner。今天的讲道是在2010年录制的。您在《福音在线播客》中听到的所有讲道和分享，都是在1989年至2017年间由博士录制的。
+
+---
+
+*翻译整理：小雷 ⚡*

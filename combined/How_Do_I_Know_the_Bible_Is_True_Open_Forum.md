@@ -1,6 +1,8 @@
-# How Do I Know the Bible Is True (Open Forum) / How Do I Know the Bible Is True (Open Forum)
+# 我怎么知道圣经是真的 / How Do I Know the Bible Is True (Open Forum)
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. How comfortable are you when it comes to being open about your faith? This month on the podcast, Tim Keller looks at what the Bible says about having a public faith.
 
@@ -362,6 +364,9 @@ Today's sermon was recorded in 1994. The sermons and talks you here on the Gospe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音与生活》。人们常常问一个问题："我怎么知道圣经是真的？"在这个开放论坛中，蒂姆·凯勒回答了关于圣经真理、信心和信心基础的问题。这是一个非常好的问题，我想我们应该讨论。
 
 许多人有关于圣经的问题。许多人想知道圣经是否可信。许多人想知道为什么相信圣经。现在，有很多方法可以接近这个问题。
@@ -409,3 +414,7 @@ Today's sermon was recorded in 1994. The sermons and talks you here on the Gospe
 这是信仰的本质。这是我们必须做的决定。现在，当你做这个决定，当你真的选择相信，会发生什么？你会被改变。
 
 你会被原谅。你会被拯救。你会与上帝建立关系。而这改变一切。
+
+---
+
+*翻译整理：小雷 ⚡*

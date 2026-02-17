@@ -1,6 +1,8 @@
-# The Judgment on Sin / The Judgment on Sin
+# 对罪的审判 / The Judgment on Sin
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. You don't have to look far to see that something's deeply wrong with our world and with us. But is there an answer that gets to the root of why?
 
@@ -352,6 +354,9 @@ Today's sermon was recorded in 1995. The sermons and talks you hear on the Gospe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《生命中的福音》。你不需要走得太远就能看到，我们的世界和我们自身出了大问题。但这个问题的根本原因是什么？有没有答案能够触及到？
 
 在今天的讲道中，提姆·凯勒通过圣经中的故事探讨了人类的处境，并揭示了圣经对罪的看法以及为什么只有这种解释才能面对关于我们自身的真相。今天的教导基于出埃及记17章1至7节的内容。当时以色列人正在旷野漂流，我们读到：整个以色列会众从罪的旷野出发，在耶和华所吩咐的地方行路。他们在弗拉地安营，但那里没有水喝。
@@ -583,3 +588,7 @@ Today's sermon was recorded in 1995. The sermons and talks you hear on the Gospe
 奉耶稣的名求。阿们。感谢您加入《福音未被喜欢播客》。希望今天的教导能够激励您更深入地探索神的话语。
 
 您可以帮助他人发现这个播客，请给予评分和评论，并访问gospelunlife.com，以获取更多由提姆·凯勒提供的精彩福音中心内容。今天这段讲道录制于1995年。在《福音未被喜欢播客》上听到的讲道和谈话录制于1989年至2017年间。
+
+---
+
+*翻译整理：小雷 ⚡*

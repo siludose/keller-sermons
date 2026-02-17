@@ -1,6 +1,8 @@
-# Integrity / Integrity
+# 正直 / Integrity
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in life. The Bible tells us there's a difference between outward self-control and the deep lasting change only the Holy Spirit can bring. In Galatians 5 Paul calls these inner transformations the fruit of the Spirit.
 
@@ -336,6 +338,9 @@ The sermons and talks you hear on the gospel and life podcast were recorded betw
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到生命中的福音。圣经告诉我们，外表的自制与圣灵带来的深刻持久改变之间是有区别的。在《加拉太书》5章中，保罗称这些内心的转变是圣灵的果子。爱、喜乐、和平、忍耐，还有更多。
 
 今天，让我们和提摩太·凯勒一起探讨圣灵的果子之一。今天的经文选自《以弗所书》4章14至15节，20至25节以及第29节。那时我们不再做婴孩，任凭自己被风吹浮，东摇西晃；而是要按着真理彼此说诚实话，在爱中成长。因为我们是基督的身体各部分。
@@ -563,3 +568,7 @@ The sermons and talks you hear on the gospel and life podcast were recorded betw
 愿您被鼓励，并且能够将这福音应用到自己的生活中，并与他人分享。如果您想要获取更多来自提姆·凯勒牧师的帮助资源，请访问gospelandlife.com。在那里您可以订阅《生命在福音中》季度期刊。订阅后，您还将获得免费的文章、讲道、灵修材料和其他许多以福音为中心的宝贵资源。
 
 再次提醒，所有资源都在gospelandlife.com上。您也可以通过Facebook、Instagram、YouTube和X平台与我们保持联系。今天的布道录制于2010年。您在《福音与生命》播客中听到的所有讲道和谈话都是从1989年至2017年由凯勒博士录制的。
+
+---
+
+*翻译整理：小雷 ⚡*

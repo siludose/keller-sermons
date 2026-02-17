@@ -1,6 +1,8 @@
-# Duplicity The Case of Peter / Duplicity The Case of Peter
+# 虚伪：彼得的案例 / Duplicity The Case of Peter
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. You don't have to look far to see that something's deeply wrong with our world and with us. But is there an answer that gets to the root of why?
 
@@ -396,6 +398,9 @@ The sermons and talks you hear on the Gospel Unliked Podcast were recorded betwe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音人生》。你不需要走远就可以看到世界上和我们身上有什么问题。但是否有一个答案能找到根源？在今天的信息中，蒂姆·凯勒通过圣经中的故事来探讨人类的状况，揭示圣经对罪的看法，以及为什么它是唯一足够深刻的解释来面对关于我们自己的真相。
 
 最近，我一直在思考二重性的概念。二重性是什么意思？二重性意味着虚伪。二重性意味着一个人说一回事，但做另一回事。
@@ -483,3 +488,7 @@ The sermons and talks you hear on the Gospel Unliked Podcast were recorded betwe
 这是变得整合的方式。这是停止虚伪的方式。当我们离开这里时，我想问你：你准备好诚实了吗？你准备好承认你的二重性了吗？
 
 你准备好让耶稣改变你吗？如果答案是肯定的，我邀请你今天为基督做出承诺。
+
+---
+
+*翻译整理：小雷 ⚡*

@@ -1,6 +1,8 @@
-# Real Joy / Real Joy
+# 真正的喜乐 / Real Joy
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. The Bible says there's a world of difference between a will-power-driven heart and a supernaturally-changed one. Today, Tim Keller is unpacking one of the fruit of the Spirit, helping us see what it means to move from trying to be good to truly changing from the inside out.
 
@@ -354,6 +356,9 @@ That website again is gospel-on-life.com-slash-partner. Today's sermon was recor
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《生命中的福音》。圣经说，意志力驱动的心和被神改变的心之间有着天壤之别。今天，提姆·凯勒将为我们解开圣灵果子之一的含义，帮助我们从努力做好人转变为从内心深处真正改变。今天的经文来自罗马书5章1至11节。
 
 因为我们藉着信称义，就藉着我们的主耶稣基督与神和好；藉着信得进入这恩典中，在此站立得住。并且欢喜快乐地盼望神荣耀的显出来。不但如此，就是在患难中也是欢欢喜喜的；因为知道患难生忍耐，忍耐生老练，老练生盼望；盼望不至于羞耻，因所赐给我们的圣灵将神的爱浇灌在我们心里。你们看，当你们还是无力的时候，基督就在适当的时候为我们死。
@@ -573,3 +578,7 @@ That website again is gospel-on-life.com-slash-partner. Today's sermon was recor
 奉他的名祷告。阿们。感谢你收听 Tim Keller 在《福音在线播客》上的讲道。如果你希望看到更多人通过这个事工的福音中心化教导和资源受到激励，我们诚邀你考虑成为“生命中的福音”每月合作伙伴。
 
 你的伙伴关系使我们能够向世界各地的人们传递基督之爱的生命之力。要了解更多信息，请访问 gospel-on-life.com/partner。网站地址再次是 gospel-on-life.com/partner。今天的讲道是在2010年录制的。
+
+---
+
+*翻译整理：小雷 ⚡*

@@ -1,6 +1,8 @@
-# Love Beyond Degree / Love Beyond Degree
+# 超越限度的爱 / Love Beyond Degree
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Are you longing to see real change in your life, in your habits, your relationships, your heart? Today, Tim Keller explores how lasting change actually happens in the life of a Christian, and why the Gospel offers a radically different process of transformation than anything else.
 
@@ -284,6 +286,9 @@ Today's sermon was recorded in 2006. The sermons and talks you hear on the gospe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《生命中的福音》。你是否渴望在生活、习惯、关系和心灵中看到**真正的改变？今天，提姆·凯勒将探讨基督徒生活中持久改变是**如何发生的，并解释为什么福音提供了与任何其他方式都截然不同的转变过程。今晚的经文来自罗马书8章28至39节。
 
 我们知道，在一切事上，神为爱祂的人工作，使他们得益处，按着祂旨意被召的人。神既预先所知道的人，就预定他们得荣耀；又预先所预定的人，也召他们来；所召来的人，又称他们为义；所称为义的人，也称他们为后嗣。我们说，这怎么说呢？若神是为我们，谁能敌挡我们？
@@ -471,3 +476,7 @@ Today's sermon was recorded in 2006. The sermons and talks you hear on the gospe
 在那里，你可以订阅《生命在福音季刊》期刊。当你订阅后，你还将获得免费的文章、讲道、灵修材料和其他优秀的以福音为中心的资源。再次提醒，一切资源都在gospelonlife.com上。你们也可以通过Facebook、Instagram、YouTube和X关注我们。
 
 今天的布道是在2006年录制的。
+
+---
+
+*翻译整理：小雷 ⚡*

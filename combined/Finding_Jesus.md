@@ -1,6 +1,8 @@
-# Finding Jesus / Finding Jesus
+# 寻见耶稣 / Finding Jesus
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel and Life. When someone you know is contemplating life's deepest questions, who am I? What's wrong with the world?
 
@@ -262,6 +264,9 @@ The sermons and talks you hear on the Gospel and Life podcast were recorded betw
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音人生》。你想知道耶稣真的是谁吗？你想知道他的生活和教导意味着什么吗？在今天的信息中，蒂姆·凯勒帮助我们发现关于耶稣的真相，以及他如何改变我们的生活。
 
 我想从一个问题开始："耶稣是谁？" 现在，这个问题的答案取决于你问谁。有些人说耶稣是一位伟大的道德教师。有些人说耶稣是一位精神大师。
@@ -327,3 +332,7 @@ The sermons and talks you hear on the Gospel and Life podcast were recorded betw
 所以，如果你今天听这个，如果你想找到耶稣，我想邀请你相信。相信耶稣是上帝的儿子。相信他为你而死。相信他复活了。
 
 相信他可以改变你的生活。因为当你这样做时，当你真的向耶稣投降时，你的一切都改变了。
+
+---
+
+*翻译整理：小雷 ⚡*

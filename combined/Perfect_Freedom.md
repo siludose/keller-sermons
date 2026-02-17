@@ -1,6 +1,8 @@
-# Perfect Freedom / Perfect Freedom
+# 完全的自由 / Perfect Freedom
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Are you longing to see real change in your life, in your habits, your relationships, your heart? Today, Tim Keller explores how lasting change actually happens in the life of a Christian and why the Gospel offers a radically different process of transformation than anything else.
 
@@ -398,6 +400,9 @@ That website again is gospelandlife.com slash partner. Today's sermon was record
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《生命中的福音》。你是否渴望在自己的生活、习惯、关系和心灵中看到**真正的改变？今天，提姆·凯勒将探讨基督徒生活中持久改变是**如何发生的，以及福音如何提供一种与任何其他方式截然不同的转化过程。经文出自罗马书第六章。
 
 那么我们该说什么呢？难道我们可以继续犯罪以致恩典增多吗？当然不可以。我们已经与罪死了。
@@ -647,3 +652,7 @@ That website again is gospelandlife.com slash partner. Today's sermon was record
 阿们。感谢您收听蒂姆·凯勒在《福音与生活播客》上的讲道。如果您希望更多人因福音中心的教导和资源而受到激励，我们诚邀您成为《福音与生活》月度合作伙伴。您的支持使我们能够向世界各地的人传递基督爱的生命力量。
 
 要了解更多，请访问gospelandlife.com/partner。该网站地址再次是gospelandlife.com/partner。今天的讲道录制于2006年。在1989年至2017年间，凯理博士录制了您在《福音与生活播客》上听到的讲道和谈话。
+
+---
+
+*翻译整理：小雷 ⚡*

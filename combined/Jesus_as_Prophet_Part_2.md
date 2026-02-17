@@ -1,6 +1,8 @@
-# Jesus as Prophet (Part 2) / Jesus as Prophet (Part 2)
+# 耶稣为先知（下） / Jesus as Prophet (Part 2)
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Christianity isn't just a spiritual practice or set of moral teachings. At its heart, it's the person of Jesus actively pursuing us.
 
@@ -494,6 +496,9 @@ The sermons and talks you hear on the gospelunlife podcast were recorded between
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《生命中的福音》。基督教不仅仅是灵性实践或道德教诲。它的核心是耶稣主动追求我们。今天，提摩太·基勒（Tim Keller）将为我们讲解耶稣如何主动寻找我们、向我们揭示真理，并呼召我们归向祂。
 
 让我读一读路加福音第24章的内容，它印在你们的圣餐单上。这是路加福音的最后一部分，从第44节到53节。他对他们说：“正如我从前与你们在一起的时候所告诉你们的。” “这一切必须应验在耶稣身上，正如摩西律法、先知书和诗篇上所记写的。
@@ -831,3 +836,7 @@ The sermons and talks you hear on the gospelunlife podcast were recorded between
 我们希望您从中受到鼓励，能够将福音应用到自己的生活中，并与他人分享。更多来自提摩太·基勒（Tim Keller）的帮助资源，请访问gospelunlife.com。在那里您可以订阅《福音与生命》季度期刊。当您订阅时，还将获得免费的文章、讲道、灵修和其他丰富的以福音为中心的资源。
 
 ``` 再次强调，所有内容都可以在 gospelunlife.com 上找到。您还可以通过 Facebook、Instagram、YouTube 和 X 平台与我们保持联系。今天的布道是在 1994 年录制的。您在《福音生活播客》上听到的所有讲道和分享都是在 1989 年至 2017 年期间，凯勒博士担任复兴长老会教会首席牧师时录制的。
+
+---
+
+*翻译整理：小雷 ⚡*

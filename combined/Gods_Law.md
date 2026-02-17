@@ -1,6 +1,8 @@
-# God's Law / God's Law
+# 神的律法 / God's Law
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 **Introduction:**
 
@@ -316,6 +318,9 @@ That website again is gospelinlife.com slash partner. Today's sermon was recorde
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 **引言：** 欢迎来到《福音生活》。在一月份，我们邀请听众考虑成为《福音生活》的月捐伙伴。如果你想了解更多信息，请在今天的播客结束时继续收听。你是否曾想过，过一个伟大人生到底意味着什么？
 
 圣经告诉我们，十诫并不是约束我们的规定，而是建造真正伟大生活的框架。今天，蒂姆·凯勒会深入解读其中一条诫命，帮助我们明白按照神的设计生活的意义，在祂的爱中自由、完整并扎根。今天的经文选自《申命记》第五章6-21节和24-29节。“我是耶和华你的神，曾把你从埃及地为奴之家领出来。
@@ -471,3 +476,7 @@ That website again is gospelinlife.com slash partner. Today's sermon was recorde
 我们奉耶稣基督的名祈祷，阿门。感谢您收听Tim Keller在生命中的福音播客。如果您希望看到更多人因这个事工以福音为中心的教导和资源而得到鼓励，我们邀请您考虑成为“生命中的福音”的月度合作伙伴。您的月度合作帮助我们全年规划和管理我们的资源，以最有效的方式将基督爱的生命力传递给世界各地的人们。
 
 作为对您每月支持的小小感谢，我们将会邮寄给您每期新的《生命中的福音》季刊的实体副本，您可以享受并分享给他人。要了解更多信息，请访问gospelinlife.com/partner.那个网站再次是gospelinlife.com/partner.今天的讲道录制于2007年。您在“生命中的福音”播客中听到的每个讲道和演讲都录制于1989年至2017年，期间Dr. Keller担任Redeemer长老会的资深牧师。
+
+---
+
+*翻译整理：小雷 ⚡*

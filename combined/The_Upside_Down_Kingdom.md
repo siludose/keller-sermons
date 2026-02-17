@@ -1,6 +1,8 @@
-# The Upside Down Kingdom / The Upside Down Kingdom
+# 颠倒的国度 / The Upside Down Kingdom
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. This month on the podcast, we are featuring a series on the Sermon on the Mount, a collection of teachings where Jesus outlines what it really means to live the Christian life. In the series, Tim Keller explores a striking idea that Christianity is not just different from the world, it's also radically different from religion.
 
@@ -388,6 +390,9 @@ If you can help others discover this podcast by rating and reviewing it, and to 
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎收听《生命中的福音》播客。本月的系列节目我们将聚焦于“登山宝训”，这是耶稣阐述基督徒生活真正含义的一系列教导。在这个系列中，提摩太·凯勒探讨了一个引人深思的观点：基督教不仅与世界不同，而且与宗教也有根本的不同。他同他们下去，在一个平地上站定。
 
 有许多门徒跟随他来；还有许多人从犹太全地、耶路撒冷、提洛和西顿的海边都来了，为的是要听他讲道，也被他治好了病。那些被污鬼缠磨的人都被医治了。众人都想摸他，因为有能力从他身上发出来，医好了他们。贫穷的人有福了！
@@ -649,3 +654,7 @@ If you can help others discover this podcast by rating and reviewing it, and to 
 感谢你们收听《福音与生活播客》。希望今天的教导能激励你们更深入地研读神的话语。如果你能帮助他人发现这个播客，可以通过评分和撰写评论来实现，并找到更多以福音为中心的内容，可以访问 gospelandlife.com。今天的讲道录制于1999年。
 
 你在《福音与生命播客》上听到的讲道和布道，都是在1989年至2017年间录制的，当时凯勒博士是复兴长老会教会的主任牧师。
+
+---
+
+*翻译整理：小雷 ⚡*

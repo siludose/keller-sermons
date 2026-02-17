@@ -1,8 +1,9 @@
-### 寻求神
+# 追寻神
+## The Search for God
 
-# The Search for God
+**讲员**: 提摩太·凯勒 (Tim Keller)
 
-## Chinese Translation / 中文翻译
+---
 
 欢迎来到《福音与生命》。你有没有问过自己，我所做的一切真的有意义吗？这真的是全部了吗？今天，提姆·基勒（Tim Keller）将带我们看看《传道书》如何帮助我们面对疑惑、恐惧和不确定性，并引导我们找到在基督里的持久希望和意义。
 
@@ -285,3 +286,7 @@
 感谢你们今天聆听这教导。愿你们被鼓励，并且能够将福音应用到自己的生活中并传给他人。为了获取更多来自蒂姆·基勒（Tim Keller）的帮助资源，请访问 [gospelunlife.com](http://gospelunlife.com)。在那里，您可以订阅《福音与生活》季度期刊。
 
 订阅后，您还将获得免费的文章、讲道、灵修材料和其他许多以福音为中心的资源。再次强调，所有资源都在 [gospelunlife.com](http://gospelunlife.com) 上。您还可以通过 Facebook、Instagram、YouTube 和 X 留意我们的动态。今天的讲道录制于 1998 年。
+
+---
+
+*翻译整理：小雷 ⚡*

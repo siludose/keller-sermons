@@ -1,6 +1,8 @@
-# How Sin Makes Us Convicts / How Sin Makes Us Convicts
+# 罪如何使我们成为囚犯 / How Sin Makes Us Convicts
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Why is the world so broken? And why are we capable of inflicting such harm even toward those we love?
 
@@ -400,6 +402,9 @@ Today's sermon was recorded in 1999. The sermons and talks you hear on the gospe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音人生》。罪如何使我们成为囚犯？今天，蒂姆·凯勒探讨了罪如何奴役我们，以及基督如何是我们自由的关键。现在，当我们考虑罪时，我们通常考虑坏的行为。
 
 我们考虑做的坏事。但圣经还说了一件事——罪使我们成为囚犯。罪使我们有罪感。罪使我们有内疚。
@@ -471,3 +476,7 @@ Today's sermon was recorded in 1999. The sermons and talks you hear on the gospe
 我们可以建立一个新的生活。我们可以成为一个新的人。所以，如果你被某事监禁——你的过去，你的内疚，你的恐惧，你的失败——我想邀请你来耶稣。来寻求原谅。
 
 相信基督。被释放。
+
+---
+
+*翻译整理：小雷 ⚡*

@@ -1,6 +1,8 @@
-# Choose Life / Choose Life
+# 拣选生命 / Choose Life
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. How comfortable are you when it comes to being open about your faith? This month on the podcast, Tim Keller looks at what the Bible says about having a public faith.
 
@@ -260,6 +262,9 @@ Today's sermon was recorded in 2007. The sermons and talks you here on the Gospe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音人生》。谈到公开表达你的信仰时，你感到舒适吗？本月在播客上，蒂姆·凯勒探讨圣经关于拥有公开信仰的教导。他向我们展示了在多元社会中公开信仰的样子，以一种能创造文明、和平和与邻舍有意义对话的方式。
 
 早上好。今早的经文摘自《申命记》第30章第11-20节。我想讨论的是：什么是真正的选择？这个问题很重要，因为现代社会中我们谈论很多关于选择的事情。
@@ -321,3 +326,7 @@ Today's sermon was recorded in 2007. The sermons and talks you here on the Gospe
 我们都在这场旅程中。但今天，我邀请你再次选择。选择让今天与昨天不同。选择让你的信仰成为你生活中的一个活跃、可见的力量。
 
 选择生命。
+
+---
+
+*翻译整理：小雷 ⚡*

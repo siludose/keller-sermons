@@ -1,6 +1,8 @@
-# Greed The Case of the Rich Young Ruler / Greed The Case of the Rich Young Ruler
+# 贪财：少年财主的案例 / Greed The Case of the Rich Young Ruler
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Some people say the fundamental problem of the world is poverty. Others say it's bad systems, poor education, or biology, but what if none of these can fully explain the brokenness we see, both in the headlines and in our own hearts?
 
@@ -286,6 +288,9 @@ Our website again is gospelandlife.com slash partner. Today's sermon was recorde
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音人生》。我们都在某种形式的贪婪中挣扎。也许不是对金钱的渴望，而是对安全、权力或地位的渴望。蒂姆·凯勒通过圣经中的故事来探讨贪婪，该故事向我们揭示了贪婪的真实成本。
 
 贪婪是什么？贪婪是过度想要有。贪婪是说："我需要更多。我不能有足够。
@@ -359,3 +364,7 @@ Our website again is gospelandlife.com slash partner. Today's sermon was recorde
 我们被爱所驱动。我们被目的所驱动。我们被服事欲望所驱动。所以，当我们离开这里时，问你自己：金钱在我的生活中占据什么位置？
 
 我会为了跟随耶稣而放弃它吗？
+
+---
+
+*翻译整理：小雷 ⚡*

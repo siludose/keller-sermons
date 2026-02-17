@@ -1,6 +1,8 @@
-# Anatomy of Sin (Part 1) / Anatomy of Sin (Part 1)
+# 罪的解剖（上） / Anatomy of Sin (Part 1)
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. You don't have to look far to see that something's deeply wrong with our world and with us. But is there an answer that gets to the root of why?
 
@@ -256,6 +258,9 @@ Today's sermon was recorded in 1995. The sermons and talks you hear on the Gospe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音与生活》。你不必仔细观察就能看到有些东西深深地出了问题，无论是在我们的世界还是在我们身上。但有没有一个能达到根源的答案？在今天的信息中，提摩太·凯勒通过圣经中的故事探索人类状况，揭示了经文关于罪的含义，以及为什么这是唯一足够深刻能够面对我们真实自我的解释。
 
 今天上午的教学基于耶利米书中的这段经文。我将读第 2 章，以及那里印刷的，第 2 到 13 节和第 19 节。耶利米是神在他们的民族和文化完全崩溃之前派遣给犹大人民的最后一位先知。他们被入侵，被掳到流放中，耶利米书在某种意义上是神通过先知耶利米给人民的一系列讲道。
@@ -443,3 +448,7 @@ Today's sermon was recorded in 1995. The sermons and talks you hear on the Gospe
 我们用耶稣的名义要求。阿们。感谢您加入我们这里在福音不像播客。我们希望今天的教学鼓励你更深入地进入神的话语。
 
 你可以通过评定和评论来帮助他人发现这个播客，要找到更多提摩太·凯勒的伟大福音中心的内容，访问 GospelUnliked.com.今天的讲道是在 1995 年录制的。你听到的讲道和福音不像播客上的谈话是在 1989 年至 2017 年间录制的，当时凯勒博士是救赎长老会的主任牧师。
+
+---
+
+*翻译整理：小雷 ⚡*

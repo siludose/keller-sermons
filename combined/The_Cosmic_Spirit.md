@@ -1,6 +1,8 @@
-# The Cosmic Spirit / The Cosmic Spirit
+# 宇宙性的圣灵 / The Cosmic Spirit
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel and Life! Who is the Holy Spirit? And why is the Spirit's work so vital to the Christian life?
 
@@ -268,6 +270,9 @@ You can help others discover this podcast by rating and reviewing it and to find
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音与生命》！圣灵是谁？为什么圣灵的工作对基督徒的生命如此重要？圣经告诉我们，圣灵不仅是一个模糊的力量，而是一个在基督徒生活中以深刻方式工作的有位格的人。
 
 今天提摩太·凯勒将探讨圣灵如何呼召我们归信、使我们联合在一起、赋予我们恩赐，并塑造我们成为更多像基督的人。今晚的经文来自罗马书第八章第15至27节。你们所领受的不是奴仆的心，仍旧害怕；但你们领受了神的儿子的灵，可以作儿子；既然是儿子，就靠神为后嗣。圣灵与我们的心同证我们是神的儿女。
@@ -455,3 +460,7 @@ C.S.刘易斯曾说过（如果他愿意的话），他会把我们中最软弱�
 感谢你给予我们的这些保证。让我们成为充满热情和喜乐的人，同时也懂得为那些哭泣的人哭泣，因为我们知道这些伟大的真理。我们奉耶稣的名祷告，阿门。感谢你们加入我们的《福音与生命播客》。
 
 希望今天的教导能激励你们更深入地研读神的话语。你们可以通过评分和评论帮助其他人发现这个播客，并访问 gospelandlife.com 查找更多以提摩太·凯勒博士为中心的伟大福音内容。今天这讲是在2010年录制的。《福音与生命播客》中听到的讲道和演讲是自1989年至2017年由提摩太·凯勒博士录制的。
+
+---
+
+*翻译整理：小雷 ⚡*

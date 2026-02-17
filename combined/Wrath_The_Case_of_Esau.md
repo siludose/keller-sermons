@@ -1,6 +1,8 @@
-# Wrath The Case of Esau / Wrath The Case of Esau
+# 愤怒：以扫的案例 / Wrath The Case of Esau
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Why is the world so broken? And why are we capable of inflicting such harm, even toward those we love?
 
@@ -274,6 +276,9 @@ Today's sermon was recorded in 1995. The sermons and talks you hear on the gospe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《生命中的福音》。为什么这个世界如此破碎？我们为何能够对所爱之人施以伤害？人们指责任何事物，如政治、贫困或心理学，但这些都无法完全解释我们在自己和历史中看到的现象。
 
 本月在播客中，Tim Keller 将从一个系列讲座中探讨这个问题：我们哪里出了问题？知道圣经关于罪的教导是唯一能够深入揭示真相并提供足够强大希望来改变我们的解释。我们基于这段教学的是希伯来书12章第14至17节。请允许我只朗读这一段落，从第14节到第17节。
@@ -449,3 +454,7 @@ Today's sermon was recorded in 1995. The sermons and talks you hear on the gospe
 为自己寻求这些美好的事吧。不要自己去寻找它们。我们来祷告。当你这样做的时候，你也将会收到免费的文章、讲道、灵修材料和其他许多以福音为中心的资源。
 
 再次提醒大家，所有内容都在 gospelunlife.com 上。你也可以通过 Facebook、Instagram、YouTube 和 X 平台与我们保持联系。今天的讲道录制于 1995 年。
+
+---
+
+*翻译整理：小雷 ⚡*

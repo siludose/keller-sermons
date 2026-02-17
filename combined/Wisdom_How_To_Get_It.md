@@ -1,6 +1,8 @@
-# Wisdom How To Get It / Wisdom How To Get It
+# 智慧：如何获得 / Wisdom How To Get It
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to the Gospel Unliked Podcast. Many of the questions we face in life are complex and aren't always answered by simply following rules. Do I speak up now or do I wait?
 
@@ -330,6 +332,9 @@ Today's sermon was recorded in 2013. The sermons and talks you hear on the gospe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎收听《福音不受待见播客》。生活中我们面临许多复杂的问题，而不仅仅是遵循规则就能解决的。现在说还是等一等？接受那份工作还是保持沉默？
 
 去还是不去？这就是为什么智慧如此重要。但我们如何培养这种智慧呢？今天，让我们一起聆听提摩太·凯勒（Tim Keller）如何探讨将上帝的智慧应用到我们日常生活中的复杂问题上。
@@ -543,3 +548,7 @@ gospelonlife.com/give 现在，提摩太·凯勒将继续今天的教导。亚�
 阿们。感谢你们今天聆听这教导。愿你们被鼓励，并且能够将福音应用到生活中去。更多来自提摩太·基勒的有益资源，请访问gospelandlife.com。
 
 在那里你可以订阅《福音与生命》季度期刊。当你这样做时，你还将获得免费的文章、讲道、灵修和其它许多宝贵的以福音为中心的资源。再次感谢你们在Facebook、Instagram、YouTube和X上的关注和支持。今天的讲道录制于2013年。
+
+---
+
+*翻译整理：小雷 ⚡*

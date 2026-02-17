@@ -1,6 +1,8 @@
-# The Gifts of the Spirit / The Gifts of the Spirit
+# 圣灵的恩赐 / The Gifts of the Spirit
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel and Life. Who is the Holy Spirit? And why is the Spirit's work so vital to the Christian life?
 
@@ -286,6 +288,9 @@ The sermon and talks you hear on The Gospel-on-Life Podcast were recorded betwee
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音与生命》。圣灵是谁？为什么圣灵的工作对基督徒的生命如此重要？圣经告诉我们，圣灵不仅是一个模糊的力量，而是一个在基督徒生活中以深刻方式工作的有位格的人。
 
 今天，提摩太·基勒（Tim Keller）将探讨圣灵如何呼召我们信靠他、使我们联合在一起、赐给我们恩赐，并塑造我们成为更像基督的人。我们今天的经文选自以弗所书4章7节至16节。但神赋予每个人的恩赐都是按着基督的分赐给他们的。因此，圣经说：“他曾升上高处，掳掠了 captives 捉来；将各样的恩赐赏给人。
@@ -479,3 +484,7 @@ The sermon and talks you hear on The Gospel-on-Life Podcast were recorded betwee
 我们在耶稣的名下祷告，阿门。感谢收听蒂姆·凯勒在《透过福音的信息播客》上的讲道。如果你希望更多人被福音中心化的教导和资源所激励，请考虑成为“生命中的福音”月度合作伙伴。你的支持将帮助我们向全世界的人传递基督爱的滋养力量。
 
 要了解更多详情，请访问gospelonlife.com-partner。该网站地址是：gospelonlife.com-partner。今天的讲道录制于2010年。
+
+---
+
+*翻译整理：小雷 ⚡*

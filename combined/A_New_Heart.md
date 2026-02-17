@@ -1,6 +1,8 @@
-# A New Heart / A New Heart
+# 一颗新心 / A New Heart
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel and Life. When someone you know is contemplating life's deepest questions, who am I? What's wrong with the world?
 
@@ -316,6 +318,9 @@ Just go to gospelandlife.com slash share and let us know you've participated. To
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音与生活》。当你认识的某个人在思考人生最深刻的问题时，我是谁？世界出了什么问题？什么真正能让我整全？
 
 耶稣不仅仅是给我们答案。他把他自己给了我们。在本月的播客中，提摩太·凯勒观察我们如何能在基督里分享我们所拥有的盼望，作为一个人对意义和目的的追寻的答案。如你所知，八月是《福音与生活》的"去并分享月"，我们精心策划了一系列免费资源来帮助你采取简单的步骤与神在你生活中所放置的某个人分享福音。
@@ -549,3 +554,7 @@ Just go to gospelandlife.com slash share and let us know you've participated. To
 如你所知，八月将是福音与生活的分享月。我们相信神使用小行为来做大事。如果你已经采取了一个步骤，也许你已经分享了一个资源或开始为某人祈祷。我们很想知道。
 
 你可以通过在我们的"去并分享地图"上标记你的位置来鼓励他人。只需前往 gospelandlife.com-slash-share,让我们知道你已经参与。今天的讲道于 2007 年录制。你在福音与生活播客上听到的讲道和谈话是在 1989 年至 2017 年之间录制的，当时凯勒博士是救赎长老会的主任牧师。
+
+---
+
+*翻译整理：小雷 ⚡*

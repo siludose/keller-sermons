@@ -1,6 +1,8 @@
-# Jesus Our King / Jesus Our King
+# 耶稣：我们的君王 / Jesus Our King
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Christianity isn't just a spiritual practice or set of moral teachings. At its heart, it's the person of Jesus actively pursuing us.
 
@@ -346,6 +348,9 @@ That website again is gospelandlife.com-slash-partner. Today's sermon was record
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《生命中的福音》。基督教不仅仅是灵性修炼或道德教诲。它的核心是耶稣基督主动地追求我们。今天，蒂姆·凯勒将向我们展示耶稣如何积极地寻找我们、向我们揭示真理，并呼召我们归向祂。
 
 我将从诗篇2章读一段经文，今天下午的教导就取自诗篇2章。这段经文在你们的讲道单上也有印出。这是一首比最近我们所读的短得多的诗篇，似乎显得比较简短，我们之前一直在阅读很长的诗篇，这首只有12节，我先来念一遍：为什么列国喧哗？万民纷纷骚动？
@@ -581,3 +586,7 @@ That website again is gospelandlife.com-slash-partner. Today's sermon was record
 如果你希望看到更多的人通过福音中心的教导和资源受到鼓励，我们诚邀你考虑成为“福音与生命”的月度合作伙伴。你的支持使我们能够向世界各地的人们传递基督之爱的生命力量。要了解更多详情，请访问 gospelandlife.com/partner。网站地址再次是 gospelandlife.com/partner。
 
 今天的讲道录制于1993年。
+
+---
+
+*翻译整理：小雷 ⚡*

@@ -9,22 +9,11 @@
 > **John 1:12-13:**
 > "Yet to all who did receive him, to those who believed in his name, he gave the right to become children of God—children born not of natural descent, nor of human decision or a husband's will, but born of God."
 
+---
+
 > **约翰福音 1:12-13：**
 > "然而，凡接待他的，就是信他名的人，他就赐他们权柄，作神的儿女——不是从血气生的，不是从情欲生的，也不是从人意生的，乃是从神生的。"
-
----
-
-## 为什么像尼哥底母这样的人也必须重生？ / Born Again is Essential
-
-Jesus was the first one to say "you must be born again" and he said it to Nicodemus—about as admirable a figure as possible. He knows the Bible, he's incredibly moral, but he's not self-righteous. He's pulled together, he's successful.
-
-And what does Jesus say to him? "You must be born again to even understand the first thing about the kingdom of God."
-
-It can't be a call to get more religious. It can't be a call to get more moral structure in your life.
-
-It's a challenge to traditional religion.
-
----
+> ——### 为什么像尼哥底母这样的人也必须重生？
 
 耶稣是第一个说"你们必须重生"的人，并且他对尼哥底母说了这话——尼哥底母是个非常出色的人物。他通晓圣经，道德高尚，但并不自义。他条理清晰，事业有成。
 
@@ -34,7 +23,15 @@ It's a challenge to traditional religion.
 
 ---
 
-## 有机成长与新身份：重生意味着什么？ / Born Again is Radical
+## 有机成长与新身份：重生意味着什么？ / Born Again is Essential
+
+Jesus was the first one to say "you must be born again" and he said it to Nicodemus—about as admirable a figure as possible. He knows the Bible, he's incredibly moral, but he's not self-righteous. He's pulled together, he's successful.
+
+And what does Jesus say to him? "You must be born again to even understand the first thing about the kingdom of God."
+
+It can't be a call to get more religious. It can't be a call to get more moral structure in your life.
+
+It's a challenge to traditional religion. ### Born Again is Radical
 
 **New Life**: Being born again means organic growth—growing in love, joy, peace, patience, kindness, humility. Not growing your resume, but growing personally.
 
@@ -65,3 +62,7 @@ But like a woman in labor, when I see you, my joy overwhelms my pain.
 耶稣在约翰福音16章中说："女人生产的时候会有痛苦，因为她的时候到了；但孩子生下来之后，她就不再记得那痛苦，因为欢喜有一个孩子诞生在世上。"
 
 **耶稣的意思是：你通过我的痛苦、我的苦难、我的工作和生命的代价而重生。** 但就像一个正在生产的妇女一样，当我看到你时，我的喜悦会压倒我的痛苦。
+
+---
+
+*翻译整理：小雷 ⚡*

@@ -1,6 +1,8 @@
-# Treasure vs. Money / Treasure vs. Money
+# 财宝与金钱 / Treasure vs. Money
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel and Life. This month on the podcast, we are featuring a series on the Sermon on the Mount, a collection of teachings where Jesus outlines what it really means to live the Christian life. In the series, Tim Keller explores a striking idea that Christianity is not just different from the world, it's also radically different from religion.
 
@@ -388,6 +390,9 @@ You can help others discover this podcast by rating and reviewing it, and to fin
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音与生活》播客。本月我们将推出一系列关于“登山宝训”的节目，这是耶稣阐述基督徒生活的真正含义的一系列教导。在这个系列中，提摩太·凯勒探讨了一个引人深思的观点：基督教不仅不同于世界，它还从根本上不同于宗教。请看你们的会刊，今天的教义基于这一段经文，我们正在研读“登山宝训”，现在我们要来看看耶稣关于金钱和财产的看法，他有很多话要说。
 
 让我们一起阅读马太福音6章的内容： > “不要为自己积攒财宝在地上，地上有虫子咬，有贼挖窟窿来偷；只要积存财宝在天上，天上没有虫子咬，也没有贼挖窟窿来偷。因为哪里有你的财宝，你的心也必在哪里。” 眼睛是身体的灯。“你的眼睛好，全身就光明；你的眼睛不好，全身就黑暗。
@@ -639,3 +644,7 @@ And你说，如果我能拥有这个，一切就都值得了。房间里每个�
 阿门。感谢您收听《福音与生活播客》。希望今天的教导激励您更深入地研读神的话语。您可以通过评价和推荐帮助他人发现这个播客，并访问 gospelandlife.com 以获取更多由提摩西·凯勒牧师提供的福音中心内容。
 
 今天的讲道录制于1999年。
+
+---
+
+*翻译整理：小雷 ⚡*

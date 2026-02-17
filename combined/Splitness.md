@@ -1,6 +1,8 @@
-# Splitness / Splitness
+# 分裂 / Splitness
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Are you longing to see real change in your life, in your habits, your relationships, your heart? Today, Tim Keller explores how lasting change actually happens in the life of a Christian and why the Gospel offers a radically different process of transformation than anything else.
 
@@ -322,6 +324,9 @@ You can also stay connected with us on Facebook, Instagram, YouTube, and X. Toda
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《生命中的福音》。你是否渴望在自己的生活、习惯、关系和心灵中看到**真正的改变？今天，提姆·基勒将探讨基督徒生活中持久改变是**如何发生的，以及为什么福音提供了与任何其他方式截然不同的转化过程。今天的圣经阅读内容在传单的第9页，来自罗马书7章1至9节及18至25节。
 
 或者你不知道吗，弟兄们？我是在对那些熟悉律法的人说——律法只对活着的人有效。因此，在丈夫活着的时候，已婚妇女受婚姻法律约束；但若丈夫去世，她就不再受婚姻法律的约束。如果在丈夫还活着的情况下与他人同居，她会被视为通奸。
@@ -525,3 +530,7 @@ B、如果我饿了，我也不会喜欢梨。但他在偷了梨之后，把它�
 愿神赐福于你，并帮助你在生活中应用福音，也与他人分享它。更多来自提摩太·基勒的圣经资源，请访问gospelonlife.com。在那里，您可以订阅《福音中的生命季度刊》。订阅后，您还将获得免费的文章、讲道、灵修材料和其他许多以福音为中心的资源。
 
 再次强调，一切都在gospelonlife.com。您也可以通过Facebook、Instagram、YouTube和X平台与我们保持联系。今天的讲道是在2006年录制的。
+
+---
+
+*翻译整理：小雷 ⚡*

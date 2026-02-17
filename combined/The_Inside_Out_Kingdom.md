@@ -1,6 +1,8 @@
-# The Inside Out Kingdom / The Inside Out Kingdom
+# 由内而外的国度 / The Inside Out Kingdom
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. What does it really mean to live in a way that reflects God's kingdom? For many of us, the kingdom can feel like an abstract idea.
 
@@ -376,6 +378,9 @@ Today's sermon was recorded in 1999. The sermons and talks you hear on the Gospe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《生命中的福音》。何为真正地活出上帝国度的样式？对于许多人来说，国度可能只是一个抽象的概念。但在今天从山上宝训中，提摩太·基勒（Tim Keller）向我们展示了基督如何为我们提供了实践性的指导，以实现一种新的社区愿景，这种社区由恩典塑造。
 
 你是什么样的人呢？当人们侮辱你、迫害你，并且无端地对你恶语相加，说各种坏话是因为我。你们要欢喜快乐，因为你们在天上的赏赐是大的；因为在先知受逼迫的时候，你们也曾受过同样的对待。你们是世上的盐。
@@ -530,7 +535,7 @@ Today's sermon was recorded in 1999. The sermons and talks you hear on the Gospe
 
 你会想：“我要让他们吃不了兜着走。” 恐惧和骄傲导致了他们说谎。那么，为什么宗教人士不会撒谎？为什么他们会讲真话呢？
 
-耶稣说的就是这两个原因：恐惧和骄傲。要么是出于对神的敬畏，你不想被神抓住，所以不敢撒谎；要么是因为你认为自己不是那种会撒谎的人，你是好人。> 你们要胜过律法师和法利赛人以及犹太人。> > 他所说的超越宗教人士，实际上希望你们的心灵得到改变。
+耶稣说的就是这两个原因：恐惧和骄傲。要么是出于对神的敬畏，你不想被神抓住，所以不敢撒谎；要么是因为你认为自己不是那种会撒谎的人，你是好人。> 你们要胜过律法师和法利赛人以及犹太人。> 他所说的超越宗教人士，实际上希望你们的心灵得到改变。
 
 而宗教只关注外在的行为。很多人遵守法律，他们没有通奸、杀人、报复，并且说真话。但他们都是出于恐惧和骄傲去做这些事的。所以，在恐惧和骄傲面前，你不撒谎；而在这里，在恐惧和骄傲面前，他们却撒谎。
 
@@ -625,3 +630,7 @@ Today's sermon was recorded in 1999. The sermons and talks you hear on the Gospe
 因此，我们的祷告生活充满了死气沉沉，我们祈求你能帮助我们在今晚的福音中找到喜乐，这样这一周我们会更像你的儿子，从而过上更加光明、深刻和甜美的人生。现在，我们奉耶稣的名祷告，阿门。感谢你收听了Tim Keller在《福音未生》播客上的讲道。如果你希望更多人通过这个事工的福音中心教导和资源得到鼓励，请考虑成为《福音未生》的月度合作伙伴。
 
 你的支持使我们能够向全世界的人传递基督之爱的生命之力。要了解更多信息，请访问gospelunlife.com/partner。该网站地址再次是gospelunlife.com/partner。今天的讲道录制于1999年。
+
+---
+
+*翻译整理：小雷 ⚡*

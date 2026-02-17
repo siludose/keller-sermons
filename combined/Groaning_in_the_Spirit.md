@@ -1,6 +1,8 @@
-# Groaning in the Spirit / Groaning in the Spirit
+# 在圣灵中叹息 / Groaning in the Spirit
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Are you longing to see real change in your life, in your habits, your relationships, your heart? Today, Tim Keller explores how lasting change actually happens in the life of a Christian and why the Gospel offers a radically different process of transformation than anything else.
 
@@ -264,6 +266,9 @@ The sermons and talks you hear on the Gospel and Life podcast were recorded betw
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音人生》播客。世界受到痛苦和伤害的困扰。我们中许多人都在等待永恒和完整的生活。蒂姆·凯勒探讨圣经对盼望和耐心等待拯救世界意味着什么。
 
 我想从一个问题开始：你在等什么？你可能在等很多事情。也许你在等一份新工作。也许你在等爱情。
@@ -333,3 +338,7 @@ The sermons and talks you hear on the Gospel and Life podcast were recorded betw
 所以我们可以在苦难中有盼望。我们可以哀叹，但不要陷入绝望。我们可以等待上帝修复创造。当我们离开这里时，问你自己：你在哀叹什么？
 
 你在为什么而伤心？但你还对什么有盼望？
+
+---
+
+*翻译整理：小雷 ⚡*

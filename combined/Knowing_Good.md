@@ -1,6 +1,8 @@
-# Knowing Good / Knowing Good
+# 认识善 / Knowing Good
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel and Life. When someone you know is contemplating life's deepest questions, who am I? What's wrong with the world?
 
@@ -350,6 +352,9 @@ Today's sermon was recorded in 2013. The sermons and talks you hear on the gospe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音与生命》。当有人在思考人生的 deepest questions 时，我是谁？世界出了什么问题？真正能让我完整的是什么呢？
 
 耶稣不只是给我们答案，他更给了我们他自己。在这个月的播客中，Tim Keller 将探讨我们如何分享我们在基督里的盼望作为人生意义和目的的答案。你可能已经知道，八月份是Goen 的分享月，在《福音与生命》中，我们精心准备了多种免费资源，帮助你采取简单的步骤向身边的人分享福音。你可以通过 gospelandlife.com/share 访问这些资源。
@@ -581,3 +586,7 @@ W.H. 奥登（W.H. Auden），历史上一位伟大的诗人，20世纪的伟大
 天父，这智慧让我们感到敬畏，求你借着圣灵帮助我们在生活中应用它。我们奉耶稣的名祷告，阿门。再次提醒，更多内容请参见gospelandlife.com。您也可以通过Facebook、Instagram、YouTube和X平台与我们保持联系。
 
 今天的讲道录制于2013年。
+
+---
+
+*翻译整理：小雷 ⚡*

@@ -1,6 +1,8 @@
-# Indestructible Love / Indestructible Love
+# 不可摧毁的爱 / Indestructible Love
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. You don't have to look far to see that something's deeply wrong with our world and with us. But is there an answer that gets to the root of why?
 
@@ -434,6 +436,9 @@ The sermons and talks you hear on the Gospel Unliked Podcast were recorded betwe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《生命中的福音》。我们不需要走太远就能看到这个世界和我们自身出了什么问题，但是否有一种答案能触及根本，解释为何如此？今天的信息中，提摩西·基勒尔通过圣经中的故事探讨了人类的处境，并揭示了圣经对罪的看法以及它为何是唯一能够面对我们自己真相的深刻解释。我将从以赛亚书第49章读起，读到第16节。
 
 这在你们的手册上有。我将读到第16节。这是耶和华说的： 正当我的良善时节，我要应允你；正当我救恩的日子，我要帮助你。我要保护你，使你成为与万民立约的磐石，为要恢复大地，安置荒凉之地的人口，对被囚禁的人说：出来吧！
@@ -701,3 +706,7 @@ The sermons and talks you hear on the Gospel Unliked Podcast were recorded betwe
 主啊，今晚求你赐给我们恩典，把这些真理深深地刻入我们的心中，比以往任何时候都要深刻，好让我们开始实践我们是谁，并真正看到你为我们所做的一切。我们在耶稣的名里祷告。阿门。感谢大家收听《福音不合群播客》。
 
 希望今天的教导能激励你更深入地探索神的话语。你可以通过给这个播客评分和撰写评论来帮助他人发现它，同时访问GospelUnliked.com，寻找更多由提姆·凯勒提供的精彩福音中心内容。今天的讲道录制于1999年。
+
+---
+
+*翻译整理：小雷 ⚡*

@@ -1,6 +1,8 @@
-# Jesus as King; The King of Hearts / Jesus as King; The King of Hearts
+# 耶稣为王：心灵之王 / Jesus as King; The King of Hearts
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Who is Jesus? The Bible says He's fully God, the creator of the universe, and at the same time, fully human.
 
@@ -110,6 +112,9 @@ A the same thing happens Mrs. A but she says to herself as my my lord Jesus has 
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到福音生活。耶稣是谁？圣经说他是全然的神，宇宙的创造者，同时又是全然的人。少了其中任何一个方面，基督教就会失去其核心。
 
 今天，让我们一起聆听提摩太·凯勒关于耶稣基督的身份和应许的探讨。《哥林多后书》10章1-6节。这是保罗的话。凭着基督的温柔谦卑，我劝你们；我自己虽然在你们面前是胆怯的，但在外邦人面前却是刚强的。
@@ -207,3 +212,7 @@ A the same thing happens Mrs. A but she says to herself as my my lord Jesus has 
 我们现在生活中发生的事情只有当我们通过哥林多后书10章来理解时才能明白。求你在圣灵的帮助下让我们能够应用这个教导。奉耶稣的名祷告。阿们。
 
 感谢您今天加入我们福音与生命播客，希望今天的教诲能激励您更深入地研读神的话语。您可以帮助其他人发现这个播客，请给予评分和评论，并访问 gospelonlife.com 获取更多以福音为中心的内容。
+
+---
+
+*翻译整理：小雷 ⚡*

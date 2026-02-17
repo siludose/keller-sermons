@@ -1,6 +1,9 @@
-# The New Community
+# 新群体
+## The New Community
 
-## Chinese Translation / 中文翻译
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 欢迎来到《福音与生活》播客。今天，蒂姆·凯勒将为我们讲解有史以来最著名的讲道之一——登山宝训。在这段讲道中，我们将找到耶稣对一种超越道德指导的全新生活方式的邀请。听完今天的教诲后，请访问 gospelandlife.com 并订阅邮件更新。
 
@@ -249,3 +252,7 @@ This translation maintains the original structure, tone, and meaning while ensur
 愿你们从其中得到鼓励，并将其应用到生活中去。更多来自提姆·凯勒的有帮助资源，请访问gospelandlife.com。在那里，你可以订阅《福音与生命》季度期刊。订阅后，你还将获得免费的文章、讲道、灵修材料和其他优秀的以福音为中心的资源。
 
 再次提醒，所有内容都在gospelandlife.com上。你们也可以在Facebook、Instagram、YouTube和X平台上关注我们。今天的讲道录制于1999年。你在《福音与生命》播客中听到的所有讲道和谈话录音都是提姆·凯勒担任雷德米改革宗教会主任牧师期间，即1989年至2017年间录制的。
+
+---
+
+*翻译整理：小雷 ⚡*

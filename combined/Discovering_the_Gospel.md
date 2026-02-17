@@ -1,6 +1,8 @@
-# Discovering the Gospel / Discovering the Gospel
+# 发现福音 / Discovering the Gospel
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel and Life. How do we share what it means to truly know Jesus? Not just as a historical figure or moral teacher, but as Savior and King.
 
@@ -428,6 +430,9 @@ Keller was senior pastor at Redeemer Presbyterian Church.
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音与生活》。我们如何分享真正认识耶稣意味着什么？不仅仅是作为一个历史人物或道德教师，而是作为救世主和君王。本月，蒂姆·凯勒探讨了圣经告诉我们关于公开信仰和分享我们在基督里的盼望意味着什么。
 
 今早的经文摘自《哥林多前书》第15章第1-11节。现在，保罗在这里做了一件非常有趣的事。他说："弟兄们，我如今把先前所传给你们的福音告诉你们知道"。保罗用这个短语"我告诉你们"。
@@ -525,3 +530,7 @@ Keller was senior pastor at Redeemer Presbyterian Church.
 不是所有人都会接受你在说什么。但这不是要点。要点是，如果你真的相信这个，如果这真的改变了你的生活，那么你应该愿意分享它。因为福音改变生活。
 
 福音改变人。福音改变世界。
+
+---
+
+*翻译整理：小雷 ⚡*

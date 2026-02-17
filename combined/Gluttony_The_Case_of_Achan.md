@@ -1,6 +1,8 @@
-# Gluttony The Case of Achan / Gluttony The Case of Achan
+# 贪食：亚干的案例 / Gluttony The Case of Achan
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Why is the world so broken? And why are we capable of inflicting such harm even toward those we love?
 
@@ -238,6 +240,9 @@ Amen. Today's sermon was recorded in 1995. The sermons and talks you hear on the
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音人生》。贪心是什么意思？不仅仅是食物，还有我们如何追逐快乐和满足。在这个信息中，蒂姆·凯勒通过旧约中的故事来探讨贪婪的罪，该故事向我们揭示了贪婪的真实代价。
 
 贪心——过度放纵的罪——这是什么意思？当我们想到贪心时，我们通常想到吃太多。贪心是关于食物。一个贪心的人是一个暴饮暴食的人。
@@ -321,3 +326,7 @@ Amen. Today's sermon was recorded in 1995. The sermons and talks you hear on the
 只有与上帝的关系能填补空虚。只有爱上帝和被上帝爱才能真正满足我们。所以当我们离开这里时，问你自己：你在什么中寻求满足？你在追逐什么？
 
 你在消费什么来试图填补空虚？因为如果你追逐东西，你将失败。如果你追逐满足感，你将失败。但如果你追逐上帝，你将找到你一直在寻找的东西。
+
+---
+
+*翻译整理：小雷 ⚡*

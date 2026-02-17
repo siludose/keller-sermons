@@ -1,6 +1,8 @@
-# A Covenant Relationship / A Covenant Relationship
+# 盟约关系 / A Covenant Relationship
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel and Life. How do we share what it means to truly know Jesus? Not just as a historical figure or moral teacher, but as Savior and King.
 
@@ -256,6 +258,9 @@ Keller was senior pastor at Redeemer Presbyterian Church.
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音与生活》。我们如何才能分享真正认识耶稣的含义？不仅仅是作为一个历史人物或道德教师，而是作为救主和王。本月，提摩太·凯勒为我们探讨圣经所揭示的关于公开分享信仰和传播我们在基督里所拥有的盼望的内容。
 
 我们的经文来自申命记 29：23。摩西召集所有以色列人对他们说，你们亲眼看见了耶和华在埃及向法老和他的众仆人、向他全国所行的一切大事。你们亲眼看过那大的试验和神迹奇事，但到今天，耶和华还没有给你们聪慧的心、能看的眼睛、能听的耳朵。你们要谨守这约的言语，如此才能在一切所做的事上亨通。
@@ -441,3 +446,7 @@ C.S. 刘易斯是这样说的。引言，一个非个人的神，嗯，很好。
 我们用耶稣的名义祷告。阿们。感谢你收听《福音与生活》播客上的提摩太·凯勒。如果你想看到更多人受到这个事工的《福音与生活》中心教学和资源的鼓励，我们邀请你考虑成为《福音与生活》的月度合作伙伴。
 
 你的合作伙伴关系使我们能够在世界各地用基督爱和宽恕的变革力量接触人。要了解更多关于你如何可以成为《福音与生活》月度合作伙伴的信息，只需访问 gospelandlife.com-slash-partner.该网站再次是 gospelandlife.com-slash-partner.今天的讲道于 2007 年录制。你在《福音与生活》播客上听到的讲道和谈话是在 1989 年至 2017 年间记录的，当时凯勒博士是救赎长老会的主任牧师。谢谢。
+
+---
+
+*翻译整理：小雷 ⚡*

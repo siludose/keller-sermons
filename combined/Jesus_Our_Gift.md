@@ -1,6 +1,8 @@
-# Jesus Our Gift / Jesus Our Gift
+# 耶稣：我们的礼物 / Jesus Our Gift
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to gospel in life. Who is Jesus? The Bible says He's fully God, the creator of the universe, and at the same time, fully human.
 
@@ -306,6 +308,9 @@ Today's sermon was recorded in 1993. The sermons and talks you hear on the Gospe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到生命中的福音。耶稣是谁？圣经说他是全然的神，宇宙的创造者，同时又是完全的人。失去其中任何一个，基督教就会失去其核心。
 
 今天，我们一同聆听蒂姆·凯勒探讨耶稣基督的身份与应许。这节经文是罗马书8章32节，我将读两遍，但这个章节没有印在讲道单上。圣经的其他部分都印在讲道单上了，唯独罗马书8章32节没有。在这段保罗写道：他不但舍了自己的儿子，并且为我们众人把他赐给我们。
@@ -507,3 +512,7 @@ Today's sermon was recorded in 1993. The sermons and talks you hear on the Gospe
 愿今晚我们所查考的话语、教导和真理，都能在圣灵中应用到每一个人身上，使没有人离开这里时没有更深刻的理解和渴慕去探索这无法言喻的礼物——耶稣基督。奉耶稣基督之名祷告。阿们。amen。
 
 再次提醒，所有内容都在 gospelandlife.com 上。您也可以通过 Facebook、Instagram、YouTube 和 X 平台与我们保持联系。今天的讲道录制于 1993 年。
+
+---
+
+*翻译整理：小雷 ⚡*

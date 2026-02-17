@@ -1,6 +1,8 @@
-# Jesus Our Servant / Jesus Our Servant
+# 耶稣：我们的仆人 / Jesus Our Servant
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Who is Jesus? The Bible says He's fully God, the Creator of the universe, and at the same time, fully human.
 
@@ -270,6 +272,9 @@ The sermons and talks you hear on The Gospel and Life Podcast were recorded betw
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到生命中的福音。耶稣是谁？圣经说他是全然的神，宇宙的创造者，同时又是全然的人。缺少其中任何一个方面，基督教就会失去其核心。
 
 今天，请和我们一起聆听提姆·凯勒探讨耶稣基督的身份与应许。现在，让我们一起诵读诗篇69章的一段经文： 拯救我吧，上帝！因为洪水已漫到我的脖子。我在深水中下沉，在无底深渊中找不到立足之地。
@@ -457,3 +462,7 @@ The sermons and talks you hear on The Gospel and Life Podcast were recorded betw
 父啊，当我们拿取饼和杯时，请使这一切发生在我们身上。奉耶稣的名祷告，阿们。感谢您收听《福音与生命播客》。希望今天的教导能激励你更深入地研读神的话语。
 
 您可以帮助他人发现这个播客并给予评分和评论，在 gospelandlife.com 上找到更多以福音为中心的内容。今天的讲道录制于1993年。
+
+---
+
+*翻译整理：小雷 ⚡*

@@ -1,6 +1,8 @@
-# Love and the Fruit of the Spirit / Love and the Fruit of the Spirit
+# 爱与圣灵的果子 / Love and the Fruit of the Spirit
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Many of us try to change through sheer willpower, conquering bad habits or forcing better behavior, only to find ourselves snapping back to old patterns. In today's message, Tim Keller is exploring the fruit of the Spirit, showing how real transformation isn't about moral restraint, but a heart that through Christ is changed from the inside out.
 
@@ -318,6 +320,9 @@ You can help others discover this podcast by rating and reviewing it, and to fin
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到生命中的福音。我们很多人试图通过意志力来改变自己，克服坏习惯或强迫更好的行为，却发现最终还是回到了旧有的模式中。在今天的讲道中，提摩太·基勒（Tim Keller）将探讨圣灵的果子，展示**真正的转变不是**关于道德克制，而是通过基督从内到外被改变的心。今天经文选自哥林多前书第13章1至13节： 如果我说各种人间语言和天使的语言，却没有爱，我就成了响亮的钹声。
 
 如果我有先知的能力，明白所有的奥秘和知识，甚至有信心能移动山岳，但没有爱，我还是什么都没有。即使我把所有财产都施舍给穷人，甚至把自己交给火，却没有爱，我也一无所得。爱是忍耐的，爱是慈祥的；它不嫉妒，不夸耀，不自大，不粗鲁，不寻求自己的利益，不轻易发怒，不记念别人的伤害。爱不做不义的事，只喜悦真理。
@@ -523,3 +528,7 @@ You can help others discover this podcast by rating and reviewing it, and to fin
 我们以耶稣的名祷告。阿门。感谢您收听《福音与生活播客》。希望今天的教导能激励你更深入地研读神的话语。
 
 您可以通过评分和评论帮助他人发现这个播客，并访问 gospelandlife.com 了解更多由提摩太·基勒牧师提供的福音中心内容。今天的讲道录制于2010年。
+
+---
+
+*翻译整理：小雷 ⚡*

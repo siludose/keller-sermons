@@ -1,6 +1,8 @@
-# First of All / First of All
+# 首先 / First of All
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 **Introduction:**
 
@@ -286,6 +288,9 @@ The sermons and talks you hear on the Gospel in Life podcast were recorded betwe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 **引言：** 欢迎来到福音生活。在一月份，我们邀请听众考虑成为福音生活的月度合作伙伴。月度合作伙伴对于帮助我们规划如何最有效地将福音传递给全世界的人们是非常重要的。如果您想成为月度合作伙伴，只需访问gospelinlife.com/partner.那是gospelinlife.com/partner.当您听到十诫时，您会想到什么？
 
 对许多人来说，它们带来了内疚和羞愧的感觉，或者它们似乎是一份不可能遵循的规则清单。在今天的讲道中，提姆·凯勒向我们展示了神并没有给我们十诫来用无法实现的道德标准压垮我们，而是指向耶稣基督，唯一完美履行神律法的人。约拿书第一章，第一到十节。但约拿大大不悦，且甚发怒。
@@ -473,3 +478,7 @@ The sermons and talks you hear on the Gospel in Life podcast were recorded betwe
 我们祈祷您受到鼓励，并帮助您将福音应用到您的生活中，并与他人分享。有关提姆·凯勒的更多有用资源，请访问gospelandlife.com.在那里，您可以订阅《生命与福音》季度期刊。当您这样做时，您还将收到免费的文章、讲道、灵修和其他伟大的福音中心资源。再次，这一切都在gospelandlife.com.您还可以在Facebook、Instagram、YouTube和X上与我们保持联系。
 
 今天的讲道录制于1989年。您在福音生活播客上听到的讲道和演讲是在1989年至2017年间录制的，当时凯勒博士是救赎主长老会的高级牧师。
+
+---
+
+*翻译整理：小雷 ⚡*

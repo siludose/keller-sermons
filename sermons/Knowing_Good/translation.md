@@ -1,8 +1,9 @@
-### 什么是真正的好？
+# 认识善
+## Knowing Good
 
-# Knowing Good
+**讲员**: 提摩太·凯勒 (Tim Keller)
 
-## Chinese Translation / 中文翻译
+---
 
 欢迎来到《福音与生命》。当有人在思考人生的 deepest questions 时，我是谁？世界出了什么问题？真正能让我完整的是什么呢？
 
@@ -235,3 +236,7 @@ W.H. 奥登（W.H. Auden），历史上一位伟大的诗人，20世纪的伟大
 天父，这智慧让我们感到敬畏，求你借着圣灵帮助我们在生活中应用它。我们奉耶稣的名祷告，阿门。再次提醒，更多内容请参见gospelandlife.com。您也可以通过Facebook、Instagram、YouTube和X平台与我们保持联系。
 
 今天的讲道录制于2013年。
+
+---
+
+*翻译整理：小雷 ⚡*

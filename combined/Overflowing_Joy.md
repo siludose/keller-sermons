@@ -1,6 +1,8 @@
-# Overflowing Joy / Overflowing Joy
+# 满溢的喜乐 / Overflowing Joy
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. During January, we're inviting our listeners to consider becoming a Gospel in Life monthly partner. If you'd like to learn more, keep listening at the end of today's podcast for details.
 
@@ -42,6 +44,9 @@ Remember his own word. It's more blessed.
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎收听《生命中的福音》。在一月份，我们邀请听众考虑成为《生命中的福音》的月度支持者。如果您想了解更多详情，请在今天的播客结束时继续收听。您是否曾希望生活能有一份使用手册，一份指南，在面对艰难抉择或只是努力以正直的态度度过日常生活的小时刻时可以遵循？
 
 今天在《生命中的福音》，提摩太·基勒（Tim Keller）向我们展示了十诫如何帮助我们使自己的生活与上帝的旨意相一致。不是通过用过时的规定限制我们，而是为我们奠定一个可以从其中自由和繁荣生活的基础。现在，弟兄们，请允许我们告诉您上帝赐给马其顿教会的恩典。在最严酷的考验中，他们溢出的喜乐和极端的贫穷激发出丰富的慷慨，因为我要作见证，他们所捐的是他们所能捐的，并且多捐了，是出于自己甘心乐意的心。
@@ -67,3 +72,7 @@ Remember his own word. It's more blessed.
 亲爱的基督徒们，如果你们想成为像基督的人，就要多给、常给、慷慨地给，甚至给那些不配的人，甚至是恶人。基督是荣耀和快乐的，你们也会如此。我不是要你们的钱。我要的是你们的幸福。
 
 记得他自己的话：‘更多有福。
+
+---
+
+*翻译整理：小雷 ⚡*

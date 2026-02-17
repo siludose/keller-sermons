@@ -1,6 +1,8 @@
-# True Spirituality / True Spirituality
+# 真正的灵性 / True Spirituality
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. This month on the podcast, we are featuring a series on the sermon on the Mount, a collection of teachings where Jesus outlines what it really means to live the Christian life. In the series, Tim Keller explores a striking idea that Christianity is not just different from the world, it's also radically different from religion.
 
@@ -268,6 +270,9 @@ Today's sermon was recorded in 1999. The sermons and talks you hear on the Gospe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎收听《生命中的福音》播客。本月的节目我们将推出一系列关于登山宝训的内容，这是耶稣阐述如何真正活出基督徒生活的教诲集。在这个系列中，提摩太·基勒探讨了一个引人深思的观点：基督教不仅与世界不同，它还与宗教有着根本的不同。现在，我们已经通过了整个春天的时间，一起学习了登山宝训。
 
 今天来到登山宝训的结尾部分，这是一个总结性的段落，也是整篇讲道的总结，因此耶稣在这里将他之前所说的一切汇聚在一起。因为这是对整篇讲道的一个总结，所以也成为了对我们这一系列讲道的一个总结，甚至可以说是整年的总结。因此，我想向今天第一次来参加我们教会活动的朋友表示祝贺，尤其是那些只是第一次来到“赎罪堂”的朋友，你们真是太聪明了！因为其他很多人花了数小时甚至数周的时间才弄懂登山宝训的内容，而你们却能在短时间内就理解了它的精髓。
@@ -332,7 +337,7 @@ Today's sermon was recorded in 1999. The sermons and talks you hear on the Gospe
 
 特别是今天有铜管乐和童声合唱“荣耀”时，我们在对神说：你是光荣的。然而经文却说，虔诚的人内心深处并没有自己的荣光感，没有自己的价值感，没有自己的重要性，也没有自我意识。第六章第十五节提到，他们外表像羊，但内心却是狼。> 你心里若充满荣耀感和自我价值，你的行为就会完全不同。
 
-> > 耶稣说：“你们要小心，不要外面作光作亮给人看，里面却黑暗无光。” NIV 里说凶猛，但这个词语的意义并不仅仅如此。这里有一个原因。这个词在新约其他地方出现时，都有一个非常特定的意思——勒索或敲诈。
+> 耶稣说：“你们要小心，不要外面作光作亮给人看，里面却黑暗无光。” NIV 里说凶猛，但这个词语的意义并不仅仅如此。这里有一个原因。这个词在新约其他地方出现时，都有一个非常特定的意思——勒索或敲诈。
 
 如果你是翻译者，在这里看到耶稣所说的这句话，你该怎么写呢？比如，耶稣说：“要防备假先知，他们来到你这里如同羊羔外面披着狼皮，里面却是凶猛的。” “内心凶猛？”这到底是什么意思？
 
@@ -467,3 +472,7 @@ Today's sermon was recorded in 1999. The sermons and talks you hear on the Gospe
 你是适合我们的，总是以最适合的方式与我们互动。你用不同的方式寻求我们的爱，但我们祈求你能来到我们中间，让我们敞开心扉接受你。在剩下的礼拜中，无论我们在祈祷、歌唱、思考还是冥想时，我们都希望你能真正遇见我们。我们渴望站在你的面前。
 
 感谢你们加入我们，在《福音与生活播客》中。希望今天的教导能激励你更深入地研读神的话语。你可以通过给这个播客评分和评论来帮助他人发现它，并访问GospelOnLife.com以获取更多由提摩西·凯勒提供的精彩福音中心内容。今天的讲道录制于1999年。
+
+---
+
+*翻译整理：小雷 ⚡*

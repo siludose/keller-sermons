@@ -1,6 +1,8 @@
-# Jesus as King; God's Ultimate Plan / Jesus as King; God's Ultimate Plan
+# 耶稣为王：神的终极计划 / Jesus as King; God's Ultimate Plan
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Christianity isn't just a spiritual practice or set of moral teachings. At its heart, it's the person of Jesus actively pursuing us.
 
@@ -380,6 +382,9 @@ The sermons and talks you hear on the Gospel and Life podcast were recorded betw
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到生命中的福音。基督教不仅仅是灵性修炼或道德教诲。在它的核心，它是耶稣基督主动追求我们的人。今天我们要听蒂姆·凯勒的教导，他将告诉我们耶稣如何积极地寻找我们、向我们揭示真理并召我们归向祂。
 
 这个月我们一直在探讨耶稣的身份，而今天我们将聚焦于耶稣作为君王的意义。顺便提醒一下，这个主题我已经讲过一次了，我可能在布道过程中吓跑了一些蛇，但并没有真正把它们打死。所以，今天下午4点礼拜后，我们可以像往常一样到东休息室进行问答环节。我想至少会有一些问题是我未能完全解答的，所以请记下你的疑问，在之后的问答环节中我们会讨论这些问题。
@@ -639,3 +644,7 @@ Ray Bradbury 有一篇关于未来的精彩故事，讲述了一次时间旅行�
 你可以有一个宇宙，在那里每一个分子都对你有利，也可以每一个分子都对你不利，但中间没有第三种情况。感谢收听蒂姆·凯勒和《福音与生命》播客。如果您希望看到更多人通过这个事工的福音中心教导和资源受到鼓励，我们诚邀您考虑成为《福音与生命》的月度合作伙伴。您的支持使我们能够向世界各地的人们传递基督之爱的生命之力。
 
 要了解更多信息，请访问gospelandlife.com/partner。该网站地址再次是gospelandlife.com/partner。今天的讲道录制于1994年。
+
+---
+
+*翻译整理：小雷 ⚡*

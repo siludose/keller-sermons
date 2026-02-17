@@ -1,6 +1,8 @@
-# Finding God / Finding God
+# 寻找神 / Finding God
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. How comfortable are you when it comes to being open about your faith? This month on the podcast, Tim Keller looks at what the Bible says about having a public faith.
 
@@ -264,6 +266,9 @@ The sermons and talks you here on the Gospel and Life Podcast were recorded betw
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音人生》。你是否在寻找上帝？你是否想了解他是什么样的？在今天的信息中，蒂姆·凯勒教导圣经告诉我们关于找到上帝和认识他的意思。
 
 我想从一个问题开始："你可以找到上帝吗？" 现在，许多宗教告诉你可以。许多宗教说如果你做正确的事，如果你进行正确的精神实践，如果你尽你所能，你将找到上帝。但基督教告诉你一些不同的东西。
@@ -329,3 +334,7 @@ The sermons and talks you here on the Gospel and Life Podcast were recorded betw
 你会被原谅。你会被拯救。你会找到你一直在寻找的东西。你会找到爱。
 
 你会找到目的。你会找到上帝。
+
+---
+
+*翻译整理：小雷 ⚡*

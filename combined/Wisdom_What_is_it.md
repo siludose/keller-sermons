@@ -1,6 +1,8 @@
-# Wisdom What is it / Wisdom What is it
+# 智慧：何为智慧 / Wisdom What is it
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to the Gospel Unliked Podcast. Many of the questions we face in life are complex and aren't always answered by simply following rules. Do I speak up now or do I wait?
 
@@ -296,6 +298,9 @@ The sermons and talks you hear on the gospelunlife podcast were recorded between
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音不受待见播客》。生活中我们面临许多复杂的问题，而不仅仅是遵循规则就能找到答案。现在我该说吗？还是等一等？
 
 我要不要接受那份工作？还是要说出我的位置？这就是为什么智慧如此重要。但我们如何培养这种智慧呢？
@@ -501,3 +506,7 @@ The sermons and talks you hear on the gospelunlife podcast were recorded between
 在那里你可以订阅《福音生活季刊》。当你订阅时，你还将收到免费的文章、讲道、灵修和其它优秀的以福音为中心的资源。再次提醒，所有资源都在gospelunlife.com上。你们也可以在Facebook、Instagram、YouTube和X上关注我们。
 
 今天的讲道录制于2013年。你在福音未亡播客上听到的讲道和谈话，是戴德生博士在1989年到2017年间录制的： > “传扬神的话语，使人们得着生命。
+
+---
+
+*翻译整理：小雷 ⚡*

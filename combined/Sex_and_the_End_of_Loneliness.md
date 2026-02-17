@@ -1,6 +1,8 @@
-# Sex and the End of Loneliness / Sex and the End of Loneliness
+# 性与孤独的终结 / Sex and the End of Loneliness
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. During January, we're inviting our listeners to consider becoming a Gospel in Life monthly partner. Monthly partners are an important part in helping us to plan for how we can be the most effective in reaching people all over the world with the gospel.
 
@@ -286,6 +288,9 @@ The sermons and talks you hear on the Gospel in Life podcast were recorded betwe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到Gospel in Life.在一月份，我们邀请听众考虑成为Gospel in Life的月度合作伙伴。月度合作伙伴在帮助我们规划如何最有效地向全世界传播福音方面起着重要作用。如果您愿意成为月度合作伙伴，只需访问gospelinlife.com/partner.那是gospelinlife.com/partner.当您听到十诫时，您会想到什么？对许多人来说，它们带来了内疚和羞耻的感觉，或者它们似乎是一份不可能遵守的规则清单。
 
 在今天的讲道中，蒂姆·凯勒向我们展示了上帝并没有给我们十诫来用无法实现的道德标准压垮我们，而是指向耶稣基督，唯一完美履行上帝律法的人。让我读一下哥林多前书第六章。我将从第六章第15节读到第七章第5节。哥林多前书16章第15节到第七章第5节。
@@ -305,3 +310,7 @@ The sermons and talks you hear on the Gospel in Life podcast were recorded betwe
 在这两方面，罗马人认为基督徒非常奇怪。尤其是在第二方面，他们说，这不仅不健康，而且是不可能的。你可以阅读早期罗马人对基督教的反应，你会看到基督徒的慷慨和纯洁让罗马人感到惊讶。然而，基督教赢得了胜利。
 
 当人们最终听到它时，越来越多的人亲身体验到它，基督教席卷了当时的现代世界。今天，我发现纽约的人们在你阐述基督教信仰时，对罗马人感到惊讶的事情同样感到惊讶。
+
+---
+
+*翻译整理：小雷 ⚡*

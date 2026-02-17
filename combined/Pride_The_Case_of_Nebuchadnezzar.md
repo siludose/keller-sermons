@@ -1,6 +1,8 @@
-# Pride The Case of Nebuchadnezzar / Pride The Case of Nebuchadnezzar
+# 骄傲：尼布甲尼撒的案例 / Pride The Case of Nebuchadnezzar
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Why is the world so broken? And why are we capable of inflicting such harm even toward those we love?
 
@@ -376,6 +378,9 @@ Today's sermon was recorded in 1995. The sermons and talks you hear on the gospe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎收听《生命中的福音》。为什么这个世界如此破碎？我们为何甚至能够对所爱之人造成伤害？人们把原因归咎于政治、贫穷或心理学，但这些都无法完全解释我们在自己和历史中看到的一切。
 
 本月在播客中，Tim Keller 将从一系列探讨“我们哪里出了问题？”这个问题的课程中进行讲解。圣经中的教导提供了唯一一个足够深刻的解释来面对复杂的真实，并且提供了唯一一种强大到足以改变我们的希望。让我读一下关于尼布甲尼撒王的故事，你们刚刚也听过了。
@@ -446,7 +451,7 @@ Today's sermon was recorded in 1995. The sermons and talks you hear on the gospe
 
 首先，骄傲是这样一种心态：它看待你生活中好的一面并说：“那是由我带来的。”我做到了，我完成了它。如果你的生活顺利，你会看到这些好事，并说：“因为我努力了。” 我之所以比别人做得好是因为我更努力。
 
-或者我是更聪明的人，或者工作更多，或者更加道德，无论你用什么理由来说服自己，那都是由我带来的。我做到了。> 傲慢是对自己存在的意义和价值的自信。> > ——埃索克·戴尼森 因此，第二点，骄傲看待生活和生活中好的事物，并说：“所以我应该得到。
+或者我是更聪明的人，或者工作更多，或者更加道德，无论你用什么理由来说服自己，那都是由我带来的。我做到了。> 傲慢是对自己存在的意义和价值的自信。> ——埃索克·戴尼森 因此，第二点，骄傲看待生活和生活中好的事物，并说：“所以我应该得到。
 
 ”骄傲让我们对生活有一种深深的被欠感。骄傲让我们看待生活并说：我理应获得这些好事。现在我要告诉你一件事。骄傲有多种形式，你必须小心。
 
@@ -623,3 +628,7 @@ Today's sermon was recorded in 1995. The sermons and talks you hear on the gospe
 在那里，您可以订阅《生命在福音中》季度期刊，还将免费获得文章、讲道、灵修等丰富的福音中心资源。再次感谢您，所有资源均在此网址：gospelandlife.com。您也可以通过Facebook、Instagram、YouTube和X平台与我们保持联系。今天的布道录制于1995年。
 
 您在《福音与生活播客》上听到的布道和讲道录音是在1989年至2017年由蒂姆·凯勒博士录制的。
+
+---
+
+*翻译整理：小雷 ⚡*

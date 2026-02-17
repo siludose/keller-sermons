@@ -1,6 +1,8 @@
-# Mortification Through Joy / Mortification Through Joy
+# 以喜乐治死罪 / Mortification Through Joy
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Are you longing to see real change in your life, in your habits, your relationships, your heart? Today, Tim Keller explores how lasting change actually happens in the life of a Christian and why the Gospel offers a radically different process of transformation than anything else.
 
@@ -208,6 +210,9 @@ The sermons and talks you hear on The Gospel and Life Podcast were recorded betw
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到生命中的福音。你是否渴望在自己的生活、习惯、关系和心灵中看到**真正的改变？今天，提姆·凯勒将探讨基督徒生活中持久改变是**如何发生的，以及福音为何提供了与任何其他方式截然不同的转化过程。今晚的圣经阅读内容可以在布道单第9页找到，是罗马书8章1-13节。
 
 因此现在在基督耶稣里的就没有定罪了。因为圣灵的律使你们得自由，脱离罪和死的律。神所做的，那软弱的律本不能做成的事，他已成就了。就是神差他的儿子，为我们的罪作了挽回祭，像罪一样，而且是肉体的样式；好在肉体中定罪的条例。
@@ -355,3 +360,7 @@ Kathy，我们无法看着那个画面而不流泪思念耶稣。你可能会说
 感谢你今天加入《福音与生活播客》。希望今天的教导能激励你更深入地研读神的话语。你可以通过评价和推荐帮助他人发现这个播客。如果你想了解更多由提姆·凯勒提供的福音中心内容，请访问GospelOnLife.com。
 
 今天的讲道录制于2006年。
+
+---
+
+*翻译整理：小雷 ⚡*

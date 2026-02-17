@@ -1,6 +1,8 @@
-# Educators Forum The Gospel Changes Everything / Educators Forum The Gospel Changes Everything
+# 教育者论坛：福音改变一切 / Educators Forum The Gospel Changes Everything
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to the Gospel and Life Podcast. What if the Gospel didn't just shape your private life, but transformed the way you show up in the world? One of the most visible places that would play out is in your work.
 
@@ -422,6 +424,9 @@ Amen. Thanks for listening to today's teaching it's our prayer that you were enc
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音与生活》播客。如果福音不仅仅塑造你的私生活，而是改变你在世界上的表现方式，会怎样？这会最明显地表现出来的地方之一是在你的工作中。加入我们，因为蒂姆·凯勒教导福音如何改变我们对工作的态度。
 
 我想从一个问题开始：你的信仰与你的工作有什么关系？现在，对于许多基督徒来说，这个问题的答案可能是"没有什么"。他们认为他们的信仰是私人的。他们认为他们的工作是他们赚钱和养家糊口的地方。
@@ -497,3 +502,7 @@ Amen. Thanks for listening to today's teaching it's our prayer that you were enc
 许多基督徒认为他们的信仰与他们的工作无关。但如果他们真的相信福音，如果他们真的相信耶稣改变了一切，那么他们的工作也应该改变。他们应该与诚实地工作。他们应该关心他们工作对他人的影响。
 
 他们应该以服事上帝的态度对待工作。他们应该从失败中学习。他们应该寻求在工作中荣耀上帝。这就是福音改变一切的意思。
+
+---
+
+*翻译整理：小雷 ⚡*

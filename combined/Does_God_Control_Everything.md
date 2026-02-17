@@ -1,6 +1,8 @@
-# Does God Control Everything / Does God Control Everything
+# 神掌管万事吗 / Does God Control Everything
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Are you longing to see real change in your life, in your habits, your relationships, your heart? Today, Tim Keller explores how lasting change actually happens in the life of a Christian and why the Gospel offers a radically different process of transformation than anything else.
 
@@ -336,6 +338,9 @@ And to find more great Gospel-centered content by Tim Keller, visit gospelonlife
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音人生》。你是否渴望在你的生活中看到**真正的改变——你的习惯、你的关系、你的心？今天，蒂姆·凯勒探讨了在基督徒的生活中真正持久的改变是**如何发生的，以及为什么福音提供了一个与其他任何东西根本不同的转变过程。今晚的经文摘自《罗马书》第8章第28节和第3-4节。
 
 我想从一个问题开始："上帝控制一切吗？" 现在，这是一个非常复杂的问题，许多基督徒对此有许多想法。有些人说："是的，上帝控制一切。"有些人说："不，上帝给了人类自由意志，所以上帝不控制一切。
@@ -423,3 +428,7 @@ And to find more great Gospel-centered content by Tim Keller, visit gospelonlife
 我想邀请你尝试另一种东西。我想邀请你向上帝投降。我想邀请你寻求他的灵。因为基督可以改变你。
 
 圣灵可以赋予你能力。上帝正在工作。
+
+---
+
+*翻译整理：小雷 ⚡*

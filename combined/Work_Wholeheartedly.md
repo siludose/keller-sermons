@@ -1,6 +1,8 @@
-# Work Wholeheartedly / Work Wholeheartedly
+# 全心工作 / Work Wholeheartedly
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel and Life. If you have a job, it's likely that you think about it a lot. But how much of you thought about the Biblical approach to your work?
 
@@ -346,6 +348,9 @@ Today's sermon was recorded in 1991. The sermons and talks you hear on the Gospe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音与生活》。如果你有工作，你很可能经常在想它。但你是否想过圣经对工作的态度呢？今天，在《福音与生活》中，提摩太·基勒将向我们展示，圣经中有非常有帮助和实用的智慧，我们可以将其应用于我们的工作中。
 
 有些观点可能会让你感到惊讶，甚至改变你的生活。请听以弗所书6章。我们将阅读5至9节的内容。关于这个主题，请注意一下。
@@ -589,3 +594,7 @@ Today's sermon was recorded in 1991. The sermons and talks you hear on the Gospe
 主啊，如果我们不为你工作，不为你活着，我们将被压垮。但我们知道，父啊，你既然向我们显明了这一切，就一定会赐给我们你的圣灵和实践它的能力。所以现在求你帮助我们，也求你帮助我们在需要的方式上实践它，并通过圣灵的帮助和你儿子的名应用到我们的生活中。阿门。
 
 感谢大家收听《福音与生活播客》。我们希望今天的教导能够挑战和鼓励你。我们邀请你通过评分和评价帮助他人发现这个播客，并访问gospelunlife.com，找到更多以福音为中心的内容，这些都是由提姆·凯勒牧师提供的。今天这堂 sermon 是在 1991 年录制的。
+
+---
+
+*翻译整理：小雷 ⚡*

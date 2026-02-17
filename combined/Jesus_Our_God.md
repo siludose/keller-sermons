@@ -1,6 +1,8 @@
-# Jesus Our God / Jesus Our God
+# 耶稣：我们的神 / Jesus Our God
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Christianity isn't just a spiritual practice or set of moral teachings. At its heart, it's the person of Jesus actively pursuing us.
 
@@ -126,6 +128,9 @@ Today's sermon was recorded in 1993. The sermons and talks you hear on the Gospe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎收听《生命中的福音》。基督教不仅仅是灵性修炼或道德教诲。在它的核心，它是耶稣基督积极地追求我们。今天我们要学习的是提摩太·基勒如何阐述耶稣积极地寻求我们、向我们揭示真理并呼召我们归向祂的内容。
 
 马太福音第一章20至23节。但约瑟心里正想这事的时候，有主的使者在梦中向他显现，说：“约瑟，大卫的儿子，不要惧怕，只管娶过你的妻子马利亚来；因她所怀的孕是从圣灵来的。她将要生一个儿子，你要给他起名叫耶稣，因为祂要将自己的百姓从罪恶里救出来。”这一切的事都是主借着先知所说的话要应验的：“必有童女怀孕生子，人要称祂的名字为以马内利。
@@ -211,3 +216,7 @@ Today's sermon was recorded in 1993. The sermons and talks you hear on the Gospe
 感谢你今天加入我们的《福音与生活》播客节目。希望今天的教导能激励你更深入地研读神的话语。你可以通过给这个播客评分和评论来帮助他人发现它，并访问GospelUnlife.com找到更多以福音为中心的内容。今天的布道录制于1993年。
 
 你在《福音与生活》播客中听到的讲道和演讲，都是在1989年至2017年间，在雷德米改革宗教会担任主任牧师期间录制的。
+
+---
+
+*翻译整理：小雷 ⚡*

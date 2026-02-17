@@ -1,6 +1,8 @@
-# How Sin Makes Us Homeless / How Sin Makes Us Homeless
+# 罪如何使我们无家可归 / How Sin Makes Us Homeless
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. You don't have to look far to see that something's deeply wrong with our world and with us. But is there an answer that gets to the root of why?
 
@@ -508,6 +510,9 @@ You can help others discover this podcast by rating and reviewing it and to find
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音人生》。一个没有家的人是什么意思？在这个信息中，蒂姆·凯勒探讨了罪如何使我们无家可归，以及我们如何在基督里找到家。现在，当我们想到无家可归时，我们通常想到一个人没有住房。
 
 一个没有地方睡觉的人。一个在街道上的人。但在精神层面上，有更深的无家可归。精神无家可归是当一个人与他或她的出身分离时。
@@ -569,3 +574,7 @@ You can help others discover this podcast by rating and reviewing it and to find
 我想邀请你到上帝。我想邀请你到教会社区。找一个地方属于。被爱。
 
 被接受。
+
+---
+
+*翻译整理：小雷 ⚡*

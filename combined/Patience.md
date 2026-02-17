@@ -1,6 +1,8 @@
-# Patience / Patience
+# 忍耐 / Patience
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Many of us try to change through sheer willpower, conquering bad habits or forcing better behavior, only to find ourselves snapping back to old patterns. In today's message, Tim Keller is exploring the fruit of the Spirit, showing how real transformation isn't about moral restraint, but a heart that, through Christ, is changed from the inside out.
 
@@ -298,6 +300,9 @@ The sermons and talks you hear on the Gospel and Life podcast were recorded betw
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎收听《生命中的福音》。我们很多人试图通过意志力来改变自己，克服坏习惯或强迫自己表现出更好的行为，却发现最终还是回到了旧有的模式中。今天的信息里，提摩太·基勒（Tim Keller）将探讨圣灵的果子，展示**真正的转变不是**靠道德约束，而是通过基督从内心深处被改变。圣经经文来自罗马书第12章第10节至第21节：“彼此相爱要殷勤。
 
 超过自己尊贵人的爱要彼此相顾。应当追求和睦的事，竭力保守圣灵所赐合而为一的心。存心谦卑，各人看别人比自己强。各人不要单顾自己的事，也要顾别人的事。
@@ -507,3 +512,7 @@ The sermons and talks you hear on the Gospel and Life podcast were recorded betw
 所以求你赐给我们所需的力量。鉴于你的怜悯，我们要用善来战胜恶。我们在耶稣的名里祷告。感谢你们加入我们的《福音与生活》播客。
 
 希望今天的教导能激励你更深入地研读神的话语。你可以通过给播客评分和评论帮助他人发现它，并访问 gospelandlife.com 以找到更多由提摩西·凯勒提供的精彩福音中心内容。今天的讲道录制于2010年。
+
+---
+
+*翻译整理：小雷 ⚡*

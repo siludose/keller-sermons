@@ -1,6 +1,8 @@
-# Who is this Jesus (Open Forum) / Who is this Jesus (Open Forum)
+# 这位耶稣是谁 / Who is this Jesus (Open Forum)
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. How comfortable are you when it comes to being open about your faith? This month on the podcast, Tim Keller looks at what the Bible says about having a public faith.
 
@@ -392,6 +394,9 @@ Today's sermon was recorded in 1994. The sermons and talks who hear on the gospe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《生命中的福音》。你在信仰上有多开放？本月的播客中，提摩西·基勒将探讨圣经关于公开信仰的观点。他向我们展示了在一个多元化的社会中如何以一种促进文明、和平和有意义对话的方式公开谈论我们的信仰。
 
 今晚我们将探讨耶稣基督的身份。你刚刚听到的早期戏剧化描绘了耶稣的行为和举止是如何不断引发关于其身份的辩论的。所有有思想的人都会参与这场辩论。我很久以前还是个大学生，我的孩子们偶尔会问我：“爸爸，在你上大学的时候，他们有电视吗？
@@ -645,3 +650,7 @@ Today's sermon was recorded in 1994. The sermons and talks who hear on the gospe
 我们相信上帝用小事成就大事。如果你已经迈出了一步，或许你已经分享了资源或为某人祈祷，请告诉我们。你可以通过在我们的戈恩分享地图上标记你的位置来鼓励他人。请访问 gospelenlife.com/share 并告知你已参与。
 
 今天的讲道录制于1994年。
+
+---
+
+*翻译整理：小雷 ⚡*

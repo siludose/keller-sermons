@@ -1,6 +1,8 @@
-# Self-Control / Self-Control
+# 节制 / Self-Control
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. The Bible says there's a world of difference between a will-power-driven heart and a supernaturally-changed one. Today, Tim Keller is unpacking one of the fruit of the Spirit, helping us see what it means to move from trying to be good to truly changing from the inside out.
 
@@ -270,6 +272,9 @@ That website again is gospelonlife.com-slash-partner. Today's sermon was recorde
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎收听《生命中的福音》。圣经说，靠意志力驱动的心和被神改变的心之间有着天壤之别。今天，提摩太·基勒将为我们解开圣灵果子之一的含义，帮助我们从试图做好人转为从内而外真正改变。今晚的经文可以在你们的敬拜手册第8页找到，出自哥林多前书9章和10章。
 
 我做这一切都是为了福音的缘故，好与众人分享它的恩典。你们岂不知，在赛跑的人中，只有一人可以得冠冕吗？你们要如此奔跑，好得冠冕。凡参加竞赛的运动员都严格训练，他们为的是得到一个不能长久的冠冕；但我们是为得到一个能长存的冠冕而努力。
@@ -441,3 +446,7 @@ That website again is gospelonlife.com-slash-partner. Today's sermon was recorde
 如果您希望看到更多人被基于福音的教导和资源所鼓励，我们诚邀您考虑成为“生命的福音”月度合作伙伴。您的伙伴关系使我们能够向世界各地的人们传递基督之爱的生命力量。要了解更多详情，请访问 gospelonlife.com/partner。再次提醒，该网站地址是 gospelonlife.com/partner。
 
 今天的讲道录制于2010年。《生命中的福音》播客上的讲道和谈话录音是在1989年至2017年间由基勒博士录制的。
+
+---
+
+*翻译整理：小雷 ⚡*

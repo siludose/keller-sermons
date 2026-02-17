@@ -1,6 +1,8 @@
-# Lust The Case of Joseph / Lust The Case of Joseph
+# 情欲：约瑟的案例 / Lust The Case of Joseph
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. You don't have to look far to see that something's deeply wrong with our world and with us. But is there an answer that gets to the root of why?
 
@@ -334,6 +336,9 @@ Today's sermon was recorded in 1995. The sermons and talks you hear on the Gospe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《生命中的福音》。你不需要走得太远，就能看到这个世界和我们自身出了什么问题。但有没有一种答案能触及根本，解释为什么会有这些问题？今天的信息中，提摩太·凯勒通过圣经中的故事探讨了人类的处境，揭示了圣经对罪的看法以及它为何是唯一能够面对关于我们自己的真相的答案。
 
 让我来读一下今天的教导，所依据的经文在你的讲道单上。这是创世记39章4至21节的内容。约瑟蒙主人波提乏的恩宠，波提乏是法老王宫里的高位官员。约瑟蒙主人的恩宠，成了他的仆人，波提乏把一切所有的事都交托在他手中。
@@ -545,3 +550,7 @@ Today's sermon was recorded in 1995. The sermons and talks you hear on the Gospe
 求耶稣接纳我们。阿们。感谢您收听《福音不喜欢播客》。希望今天的教诲能激励您更深入地研读神的话语。
 
 您可以帮助他人发现这个播客，请给予评分与评论，并访问 gospelunlife.com 以获取更多由提摩西·凯勒牧师提供的精彩福音中心内容。今天这段讲道录制于1995年。
+
+---
+
+*翻译整理：小雷 ⚡*

@@ -1,6 +1,8 @@
-# Work and Rest / Work and Rest
+# 工作与安息 / Work and Rest
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel and Life. Are you struggling to find meaning and purpose in your work? We spend much of our lives at our jobs, but our work can often be the area where we feel the most frustration and futility in our lives.
 
@@ -400,6 +402,9 @@ The sermons and talks you hear on the Gospel and Life podcast were recorded betw
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音与生活》。你是否在工作中难以找到意义和目的？我们大部分时间都在工作，但工作往往是生活中让我们感到最沮丧和无望的领域。今天在播客中，提摩太·基勒（Tim Keller）帮助我们理解福音如何使我们在职业中拥有希望和喜乐。
 
 今天的经文来自路加福音第六章1至11节。有一天安息日，耶稣经过麦田，门徒们开始摘了一些麦穗，搓着吃里面的麦粒。一些法利赛人问：“你们为什么在安息日做不合法的事？”耶稣回答他们说：“难道你们没有读过大卫和他同伴饥饿时所做的事情吗？
@@ -673,3 +678,7 @@ The sermons and talks you hear on the Gospel and Life podcast were recorded betw
 如果您希望更多人通过以福音为中心的教学和资源得到鼓励，请考虑成为《福音与生活》的月度合作伙伴。您的支持将使我们能够向世界各地的人们传递基督之爱的生命力量。要了解更多详情，请访问gospelandlife.com/partner。该网站地址再次是gospelandlife.com/partner。
 
 今天的讲道录制于2003年。您在《福音与生命播客》中听到的讲道和谈话，是在1989年至2017年之间由博士录制的： > “这些话语充满了力量，因为它们源自一个充满圣灵的人。
+
+---
+
+*翻译整理：小雷 ⚡*

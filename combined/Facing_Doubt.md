@@ -1,6 +1,8 @@
-# Facing Doubt / Facing Doubt
+# 面对怀疑 / Facing Doubt
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel and Life! How comfortable are you when it comes to being open about your faith? This month on the podcast, Tim Keller looks at what the Bible says about having a public faith.
 
@@ -322,6 +324,9 @@ We believe God uses small acts to do great things and we're inviting you to do s
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《福音人生》。你有疑虑吗？关于信仰，关于上帝，关于基督教？如果你说"是"，那么你并不孤单。
 
 许多聪慧的人、诚实的人甚至许多基督徒都有疑虑。今天，蒂姆·凯勒探讨圣经对信心和怀疑的看法，以及我们如何面对我们可能有的疑虑。首先，我想说疑虑不是罪。有很多关于信心的讲道似乎说疑虑是罪。
@@ -387,3 +392,7 @@ We believe God uses small acts to do great things and we're inviting you to do s
 思考。而当你这样做时，当你真的探索你的信仰时，你可能会发现一些东西。你可能会发现答案。你可能会发现理由。
 
 你可能会发现信心。
+
+---
+
+*翻译整理：小雷 ⚡*

@@ -1,6 +1,8 @@
-# Secret Treason / Secret Treason
+# 暗中的叛逆 / Secret Treason
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. During January, we're inviting our listeners to consider becoming a Gospel in Life monthly partner. Monthly partners are an important part in helping us to plan for how we can be the most effective in reaching people all over the world with the gospel.
 
@@ -264,6 +266,9 @@ You can also stay connected with us on Facebook, Instagram, YouTube, and X. Toda
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到福音生活。在一月份，我们邀请听众考虑成为福音生活的月捐伙伴。月捐伙伴在帮助我们规划如何最有效地将福音传递给全世界人群中起着重要作用。如果您愿意成为月捐伙伴，请访问gospelinlife.com/partner.这是gospelinlife.com/partner. 当你听到十诫时，你会想到什么？
 
 对很多人来说，它们可能带来罪疚和羞耻的感觉，或者看起来像是一份根本无法遵循的规则列表。在今天的讲道中，提姆·凯勒牧师向我们展示，神赐下十诫并不是为用无法实现的道德标准来压垮我们，而是为了指引我们向耶稣基督，祂是唯一完美地成全神律法的人。从天上正显明神的忿怒，临到一切不敬虔和不义的人，就是那些用不义压制真理的人。因为自从创造世界以来，神那看不见的特性、永恒的能力和神性，都是明明可知的，虽是眼不能见，但借着所造之物，就可以晓得，叫人无可推诿。
@@ -391,3 +396,7 @@ You can also stay connected with us on Facebook, Instagram, YouTube, and X. Toda
 我们祈愿这能鼓励你，并帮助你将福音应用到你的生活中，并与他人分享。欲获取更多有关Tim Keller的资源，请访问gospelandlife.com.在那里你可以订阅《生命中的福音》季刊。当你这样做时，你将收到免费文章、讲道、灵修和其他福音为中心的精彩资源。同样，在gospelandlife.com上也可以找到。
 
 你也可以通过Facebook、Instagram、YouTube和X与我们保持联系。今天的讲道录制于1989年。你在福音生活播客中听到的讲道和演讲录制于1989年至2017年间，当时凯勒博士是救赎会长老会的高级牧师。
+
+---
+
+*翻译整理：小雷 ⚡*

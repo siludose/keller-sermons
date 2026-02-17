@@ -1,6 +1,8 @@
-# The Search for Achievement / The Search for Achievement
+# 追寻成就 / The Search for Achievement
 
-## Chinese Translation / 中文翻译 / English Transcript
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+---
 
 Welcome to Gospel in Life. Have you ever found yourself asking, what if nothing I do really last? Is this all there is?
 
@@ -442,6 +444,9 @@ Today's sermon was recorded in 1998. The sermons and talks you hear on the Gospe
 
 ---
 
+**讲员**: 提摩太·凯勒 (Tim Keller)
+
+
 欢迎来到《生命中的福音》。你有没有问过自己，如果我所做的一切都不长久呢？这难道就是一切吗？今天，蒂姆·凯勒将从《传道书》中探讨如何面对我们的疑惑、恐惧和不确定性，并引导我们找到在基督里的永恒希望和意义。
 
 我们将参考《传道书》2章70节至26节的内容，以及稍后在同一本书中的另一段相关经文，《传道书》4章4节到8节。这真是一个很好的开始，不是吗？我厌恶生命，因为我在日光之下的工作让我痛苦不堪。这一切都是徒劳的，如同追逐风一般。
@@ -717,3 +722,7 @@ Today's sermon was recorded in 1998. The sermons and talks you hear on the Gospe
 如果您希望看到更多人通过这个事工的福音中心教导和资源受到激励，我们诚邀您考虑成为《福音与生活》的月度合作伙伴。您的伙伴关系使我们能够向世界各地的人们传递基督之爱的生命之力。要了解更多详情，请访问 gospelandlife.com/partner。该网站地址再次是 gospelandlife.com/partner。
 
 今天的讲道录制于1998年。您在《福音与生活播客》上听到的讲道和演讲，录制时间是从1989年至2017年，在凯勒博士期间。``` 请注意，我保留了原文中的网址链接，并根据中文习惯进行了适当的调整以保持自然流畅。
+
+---
+
+*翻译整理：小雷 ⚡*
