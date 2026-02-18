@@ -4,6 +4,8 @@
 
 ---
 
+## 经文诵读与引言 / Scripture Reading and Introduction
+
 Welcome to Gospel in Life. This month on the podcast, we are featuring a series on the Sermon on the Mount, a collection of teachings where Jesus outlines what it really means to live the Christian life. In the series, Tim Keller explores a striking idea that Christianity is not just different from the world, it's also radically different from religion.
 
 He went down with them and stood on a level place. A large crowd of his disciples were there and a great number of people from all over Judea from Jerusalem and from the coast of Tyre and Sidon who had come to hear him and be healed of their diseases. Those troubled by evil spirits were cured and all the people, the people all tried to touch him because power was coming from him and healing them all.
@@ -13,6 +15,26 @@ Blessed are you who are poor for yours is the kingdom of God. Blessed are you wh
 Blessed are you when men hate you and when they exclude you and insult you and reject your name as evil because of the Son of Man. Rejoice in that day and leap for joy because great is your reward in heaven. For that is how their fathers treated the prophets.
 
 But woe to you who are rich for you who have already received your comfort. And woe to you who are well fed for you will go hungry and woe to you who laugh now for you will mourn in weep and woe to you when all men speak well of you. For that is how their fathers treated the false prophets as his God's word.
+
+---
+
+欢迎收听《生命中的福音》播客。本月的系列节目我们将聚焦于“登山宝训”，这是耶稣阐述基督徒生活真正含义的一系列教导。在这个系列中，提摩太·凯勒探讨了一个引人深思的观点：基督教不仅与世界不同，而且与宗教也有根本的不同。他同他们下去，在一个平地上站定。
+
+有许多门徒跟随他来；还有许多人从犹太全地、耶路撒冷、提洛和西顿的海边都来了，为的是要听他讲道，也被他治好了病。那些被污鬼缠磨的人都被医治了。众人都想摸他，因为有能力从他身上发出来，医好了他们。贫穷的人有福了！
+
+因为你们的安慰在天主国里。饥饿的人有福了！因为你们要得饱足。哀哭的人有福了！
+
+因为你们必喜笑。人若因我恨你，撇下你，弃绝你；又因我的名剪除你，辱骂你，逼迫你；你们就有福了！当欢喜快乐，因为在你们天上的赏赐是大的。他们的祖宗就是这样对待先知的。
+
+但富足的人有祸了！因为你们已经饱足了。肥胖的人有祸了！必受饥渴。
+
+喜笑的人有祸了！因为必哀哭。人若因我辱骂你们，逼迫你们，捏造关于你们的恶事，毁谤你们；你们就有福了！那时欢喜快乐吧！
+
+因为在你们天上的赏赐是大的。他们的祖宗就是这样对待假先知的。
+
+---
+
+## 登山宝训与山上的背景 / The Sermon on the Mount and Its Mountain Setting
 
 Now as Tim just said it's spring and it's traditional actually for centuries in the church to at the at spring time to turn our thoughts to what it means to live the Christian life. You see you get to Easter which is right around the corner and when you get to Easter and you celebrate the resurrection it's only natural to start to ask this question. How can we live a newness of life?
 
@@ -40,6 +62,30 @@ Why? Because he is bringing a revolution. He is a subversive.
 
 He actually says in the very first verse of his sermons, the verse 20, he says, I'm coming to bring a new administration. I'm coming to bring a kingdom. A new kingdom to replace the old kingdom.
 
+---
+
+现在正如提摩太所说，春天到了，实际上在过去的几个世纪里，教会在这个时候都会思考如何过基督徒的生活。你看复活节即将到来，当你庆祝耶稣复活时，很自然地会开始问这个问题：我们怎样才能活出新的生命？
+
+我们怎样活出复活的生命？什么是基督徒生活的意义？现在《圣经》中有三四个地方可以让你获得关于如何在世界上作为基督徒生活的大致概念。### 并且其中的一个地方就是登山宝训。
+
+我们将会从这里一直讲到初夏，仅仅因为这个原因。现在我们有登山宝训。耶稣至少两次传讲了登山宝训。这番论述不止一次地被提及。
+
+我们在路加六章中可以看到一个较短版本，或者说是较短的记载。换句话说，在马太五至七章中，他并没有说那么多。在描述耶稣传讲登山宝训时，这个版本更长。有趣的是，这两段记载都与山有关。
+
+当然，在马太福音五章一节中提到：“他就上了山。”这里我们可以看到，在第十八节中怎么说的？它说：“他下来了”，但他在哪里？他在山上。
+
+他曾带着门徒在那里教导他们。为什么和山有关呢？据我们所知，耶稣在加利利海北面、上方的山上传讲了这番论述。加利利海北边的那些山，就像历代以来的山脉一样，具有同样的功能。
+
+如果你是革命者，如果你想建立一个新的王国或新的统治，你就是一个被追捕的人。通常情况下，如果是个革命者，你会躲在山上。这就是为什么革命者会藏在鲸鱼中。在加利利海北边的那些山里，他们就会躲起来。
+
+那些试图带来威尔士王国、打破英格兰统治的人等，都会在这些地方隐藏。在每一个地方，你都能看到革命者躲在山上。所以耶稣基督去到山上。为什么？
+
+因为他正在带来一场革命。他是一个颠覆者。他实际上在他的第一次讲道中就说了这一点，在五章二十节：“我来是要把律法和先知废掉。”他说：“我要带来一个新的统治，一个新王国，取代旧的王国。
+
+---
+
+## 国度的三要素：模式、力量与成果 / Every Kingdom Has a Pattern, Power, and Product
+
 However, when you actually begin to understand what he says, this kingdom is. You begin to realize that every other revolutionary who ever lived was really only just trying to make small fine tuning to the old kingdom. Just trying to rework, re-shuffle the old kingdom.
 
 Now, Jesus Christ brings is a revolutionary that's the most radical because the values and the pattern and the power and the product of his kingdom is utterly different. Now, you see what's the kingdom I just told you? A kingdom always has three things.
@@ -65,6 +111,30 @@ The day is at hand, which means the light is coming, the night is far spent, the
 The day is coming, the night is leaving, but they're both there. And Paul says, what you have to make sure is you live is in the light. You better dress, you better put on your makeup as if the light's coming because it's coming.
 
 Don't be fooled by the darkness, and this means that even though you may be a citizen of the kingdom of Jesus Christ, you can still live under the influence of the old kingdom. And really when it comes, so therefore when it comes down to an understanding, not only the fact that there are two kingdoms, but the patterns of the two kingdoms is absolutely critical for living in this world if you want to live as a Christian. Now what are those two kingdoms?
+
+---
+
+" 然而，当你真正开始理解他所说的这个王国是什么时，你会发现，每一个过去的革命者其实只是在对旧的王国进行微调。他们只是试图重新调整、重新排列旧的王国。现在，耶稣基督带来的是一位最激进的革命者，因为他的王国的价值观、模式、力量和成果完全不同。那么，你刚刚听到的这个王国是什么？
+
+一个王国总是有三件事。它有一个模式。换句话说，任何国王或新政府都会有一个价值观的模式。如果教练接手球队，他马上会说：“你们知道吗，我要强调体能训练。
+
+”我知道上一个教练不重视体能训练，但我重视。任何新的王国、新的管理团队都会带来一套新的价值观，并且会有相应的模式。其次，一个王国拥有实施这些价值观的力量。第三，总是有一个成果。
+
+当这个模式被实施时，会产生影响。我们将会看到的是：如果教练获得权力并实施了他的计划，球队会赢吗？球员们能达到他们的潜力吗？士气会上升吗？
+
+会发生什么？所以，每个王国都会产生影响，并且对人们的生活有影响力。因此，总会有一个新的模式被引入并产生成果。在第20至23节中，它向我们展示了他王国的模式、力量和成果。
+
+而在第24至26节中，他则展示了取代他的那个王国，这是一个完全不同的模式、完全不同的力量和完全不同的结果。接下来我们要做的就是对这段登山宝训中的其他内容做一个介绍，我们将要看看这两个王国。实际上只有两个王国。你必须记住的一件事是：你是其中任何一个的公民。
+
+保罗在《歌罗西书》3章1节中说：“他已经救我们脱离黑暗的权势，把我们迁到他爱子的国里。” 所以你是公民中的一个，要么是这个王国的公民，要么是那个王国的公民。但你还需要记住一点：即使你是基督国度的公民，在罗马书中保罗有一段非常有趣的话说：“黑夜已深，白昼将近；我们就当脱去暗昧的行为，带上光明的兵器。”保罗在这里所说的非常重要，我们必须理解这一点——在世界的历史进程中，我们正处于黎明。
+
+“白昼将近”意味着光明即将到来，“黑夜已深”，这两者同时发生。这不是白天，也不是黑夜。如果你经历过黎明，你会发现两者都存在。白昼正在到来，黑夜正在离去，但它们都在那里。
+
+保罗说，你必须确保生活在光明中。你要打扮得像光明即将来临一样，因为光明真的会到来。不要被黑暗愚弄，**这意味着即使你是耶稣基督国度的公民，你仍然可能在旧王国的影响下生活。**因此，当真正理解这一点时，不仅要知道有两个王国，而且两个王国模式对于在这个世界上作为基督徒生活至关重要。
+
+---
+
+## 正位王国：世俗的价值观 / The Right-Side-Up Kingdom: Worldly Values
 
 We're going to look briefly at the first one, the old kingdom, the kingdom of Christ is replacing, and we're going to look a little more extensively at the new one. And I'm going to call the old one, the right side up kingdom, and the new one, the upside down kingdom. Okay, here's why.
 
@@ -116,7 +186,9 @@ See, the right side up kingdom, I call it right side up because when you think a
 
 Who would value sacrifice? Who would value grief? Who would value exclusion and rejection?
 
-Forget it. But what's the product? Now, Jesus says, when you live according to these values, driven by the power of the now, because it results.
+Forget it. ### The Temporary Results of Living for the Now
+
+But what's the product? Now, Jesus says, when you live according to these values, driven by the power of the now, because it results.
 
 He says, it's temporary. You will only laugh now, but later you'll weep. It's temporary.
 
@@ -164,6 +236,46 @@ The whole right side of kingdom that seems absolutely to be the only way to go, 
 
 We're not talking about, how do we know if Jesus lived and died? I'm not going to give you the evidence, I'm not going to take you to the text. But if he did, if he lived the life, anything like what the Bible is saying, your days are numbered, Bill Shazzar, unless you were living a life which is upside down from the way the world thinks things should go.
 
+---
+
+那么，这两个王国是什么呢？我们先简要看看第一个——旧王国，即基督将取代的那个王国，然后我们会更详细地探讨新王国。我将把旧王国称为“正位王国”，而新王国称为“倒置王国”。好吧，原因如下。
+
+首先，正位王国。现在，我要告诉你为什么我会称它为正位，但你可以看到每个王国都有某些价值观放在上面，有些放在下面。总是有一些事情你认为是好的优先级，另一些则不是那么重要。这些是我们要避免的，是我们要追求的，是我们要远离的。
+
+而基督的国度正在取代这一切，这在23至26节中有所描述。现在，让我们来看看。最重要的是什么？价值观是什么？
+
+权力、舒适、成功和认可。首先，权力。虽然第一句说的是富人，但当然，富有与贫穷本质上都是关于权力的问题，正如我们所知，权力。其次，丰衣足食的幽默感。
+
+这涉及到物质上的舒适，穿着得体的衣服，享受顶级餐厅，拥有美丽的家园。所以你有舒适。第三，你们欢笑的人。现在你知道那个“欢笑”的词是什么意思了。
+
+这是这个国度的价值观之一。“欢笑”这个词带有一种负面含义，希腊语专家会告诉你，它实际上是指一种更基本的得意洋洋。就像在选举中获胜后的派对一样。我赢了。
+
+他们输了。所以这不仅仅是关于乐趣的问题。不仅仅是在谈论普遍的幸福。而是在谈论成功，在你得到晋升后举行的派对，在击败其他候选人之后的庆祝活动等等。
+
+最后，我们的男人称赞你。认可、赞誉、受欢迎、名人。这些都是这个国度的价值观。基督正在取代这一切。
+
+当然，你可以看到相反的东西。这个国度所贬低、要避免和远离的事物在20至23节中有所描述。那么这些是什么？基本上是软弱。
+
+牺牲、不舒适、悲伤，或者说，软弱、牺牲、悲伤、排斥。你被排斥了，你在哭泣。而这个特定的国度所说的权力、舒适、成功和认可的东西。我们如何对待软弱、悲伤、牺牲和排斥呢？
+
+我们会尽一切可能避免这些事情。现在，为什么我们将这称为“颠倒过来”的国度？不是从上帝的角度来看，而是从我们的角度来看，这是“颠倒过来”的，因为它似乎完全自然地将这些东西放在上面。完全自然。
+
+并且原因在于这个国度的力量是现在的力量。仔细看看第24至26节，你会发现它提到财富、权力、成功和舒适。这些都是现在的事物。你现在正在笑。
+
+如果你主要追求成功，如果这就是你的目标；如果你主要追求权力，如果这就是你所追求的；如果你主要追求幸福，以避免痛苦，如果你主要追求认可和声望，这些都会有所收获。现在它们会给你带来结果。当然，如果现在是真实的，如果现在确实是唯一的现实，对我们大多数人来说，过去已经逝去，未来又未知。如果现在就是一切，如果这个世界就是一切，那绝对如此。
+
+这套价值观似乎是完全自然的。从生物学上讲，从心理学上讲，都是如此。你知道进化论吗？你知道弱肉强食、被排斥者生存的说法吗？
+
+忘了吧。从生物学的角度来看，这完全是不自然的。说权力等等是自然的，这是心理上的自然。我发现有一位英国的精神病学家，非常有影响力的，他说过这样一段话：在我看来，基督教中弥漫着一种自虐精神。
+
+在基督的登山宝训中能找到更强烈的自虐表现——祝福贫穷的人、谦卑的人、被逼迫的人，对他们行善，恨他们却不报复他们的罪恶。这一切都培养了自虐精神。看，正位的国度，我称之为“正位”，因为当你思考时，这似乎从生物学和心理学的角度来看是完全自然的。谁会珍视软弱？
+
+谁会珍视牺牲？谁会珍视悲伤？谁会珍视排斥与被拒绝？忘了吧。
+
+---
+
+## 活在当下的短暂结果 / The Upside-Down Kingdom: A Reversal of Values
+
 Now let's take a look at the upside down kingdom. That was the right side up kingdom. What is the upside down kingdom?
 
 Well, you know, I've already said so, but let me give you another quote by one of those commentators that helped me so much for this week. A guy named Michael Wilcock wrote a commentary on Luke and he says this about this passage. It perfectly, he says it perfectly.
@@ -187,6 +299,62 @@ In the introduction, Tim Keller lays out the case for catechesis, the rich and c
 Young, as well as historical figures such as Augustine, John Calvin and Martin Luther. This month, in addition to the new city catechism devotional, we are including a great companion resource, the new city catechism for kids, as our thank you for your gift to help Gospel and Life share the hope of Christ's love with people all over the world. So request your copies today at gospelandlife.com slash give.
 
 That's gospelandlife.com slash give. Now here's Tim Keller with the remainder of today's teaching. Now let me break this down.
+
+---
+
+但结果呢？现在耶稣说，当你们按照这些价值观生活，并受到现在力量的驱动时，因为它们会产生结果。他说，这将是很短暂的。你现在只会笑，但后来你会哭。
+
+这是很短暂的。你现在会充满，但后来你会空虚。而他说的其实是很常识的道理。因为要知道，换句话说，如果你说，现在最重要。
+
+谁知道永恒呢？谁知道其他的事情呢？现在的时光。如果你把生活建立在现在上，你就会得到现在的结果，但是事实是，这些事情最终都会崩塌。
+
+如果你把生活建立在外貌、成就和权力上，你的美貌会消逝，你的记录会被超越。而且如果现在不是一切的话，如果实际上还有一个永恒的世界，那么当然一个把生活建立在权势、舒适、成功和认可上的人。如果这样是你的底线，是你最终的价值观，而这个世界并不是全部的话，那么当然他说你现在的饱腹感会变成宇宙的空虚，你的笑声会变成宇宙的哀泣。有人问，这是一个很好的问题：我们怎么知道耶稣是对的？
+
+你看，在你真正踏入世界的时候，正直的世界似乎是最正确的。任何其他的方法看起来就像是自杀。为什么要看重软弱呢？谁会这样做呢？
+
+为什么要看重牺牲呢？为什么要在乎眼泪呢？当你走出去之后，这一切就变得毫无意义。所以，耶稣所说的完全违背了我们所有的信念。
+
+那么，我们应该相信他吗？这里有一个答案。我从不忘记，出于某种原因我在读一本关于这一章的注释书，一位评论家指出，耶稣从山上下来，行医施食。你看，力量正在散发出去，奇迹正在发生。
+
+这位评论家说，墙上写着字，见但以理书5章。有时候注释书太过精炼了。我说，墙上写着字。耶稣从山上下来。
+
+但以理，我们在说什么？我们说的是：我们现在在谈论什么？——《马太福音》16:24-26 在但以理书第五章，如果你回到那里去看，你会发现最后一个巴比伦王是比尔·沙撒。波斯的居鲁士正逼近这座城市，他知道他不可能赢。
+
+他知道他的帝国即将覆灭。于是他举办了一场盛大的宴会，并且喝得酩酊大醉。他还叫来了自己的姬妾。当我读到但以理书第五章时，我意识到他从未想过要这么做——你不会把姬妾和妻子一起带进来，因为她们总是会提到你的姬妾。
+
+于是他们开始狂欢。突然间，墙上的字迹显现出来。有人的手在墙上写字，上面写着：“你的日子屈指可数。” 当耶稣基督出现时，他开始医治病人、复活死者、喂饱饥饿的人，并且在十字架上受死。
+
+这就像旧王国和旧方式的“ handwriting on the wall”。如果你只为自己活着，把所有的钱都花在自己身上，不按耶稣基督的方式生活，而他确实来了，确实做了那些奇迹，这就意味着你就像比尔·沙撒一样举办了一场盛大的宴会。你的王国即将崩塌。墙上的字迹显现出来。
+
+当我开始意识到评论家所说的时，我感到一阵寒意。他说，你必须问自己：真的有耶稣基督吗？他是否过着那样的生活？如果他确实有过这样的生活，这就意味着那些只为自己的王国将要关闭——崛起于顶端，不惜一切代价追求成功，并偶尔向穷人施舍一些东西，有时去教堂时心情不愉快，总是和同等级的人在一起。
+
+> 墙上的字迹显现出来。整个右边的王国内涵，似乎是唯一可行的道路，因为耶稣基督以他所过的生活践行了这条道路——触摸麻风病人、为穷人舍己、在十字架上受死、作为贫穷的人来到世间、骑着驴驹进入城中、在借来的房间内共进最后一餐、被埋葬在空坟里，并且放弃了一切。他带着权能而来，这是任何不按照他的生活方式生活的人所无法忽视的警告。所以你必须说，你知道，你说，我不知道耶稣是否真的活过，我不知道他是否做过这些奇迹，我不知道他是否做过这些事情，当然，然后你需要去查证一下。
+
+但这不是今天的讲道主题，我们今天谈论的并不是我们如何知道耶稣是否真实存在和死去的问题。我们不讨论如何验证耶稣的存在与死亡，我不会给你证据，也不会带你去看经文。但如果他确实如此生活过，按照圣经所说的那样生活过，那么你的日子就屈指可数了，比尔·沙扎尔，除非你的人生方向完全颠倒了，与世人认为的世界观相反。### 颠倒的国度：价值观的逆转
+
+现在让我们看看这个颠倒的王国。
+
+那是一个正向的王国。什么是颠倒的王国？你知道，我已经说过这些，但让我再给你引用一位对我帮助很大的评论家的话。迈克尔·威尔科克写了一本关于路加福音的注释书，并对这段经文进行了这样的描述：他说得完美无缺。
+
+事实上，当我读到这段话时，我应该就此结束，但我不会。在神子民的生命中，首先会看到一种价值观的惊人逆转。神子民将珍视世人认为可悲的事物，而怀疑世人认为有价值的东西。换句话说，成为基督徒的标准就是价值观的颠倒。
+
+世界认为可悲的事情，我们却视为珍贵。迈克尔·威尔科克说：我们珍视，等等，我们珍视软弱、牺牲、悲伤和排斥。我们是精神病学家所说的那些屠杀吗？答案并不是一回事。
+
+奖赏不是追求的结果。事实上，如果你去追求它，我马上就能告诉你，你只是被旧世界的价值观所控制。但我们要说的是，奖赏意味着当它来临时，我们会看到它的价值。当它来临时，我们会理解它在我们生活中的作用。
+
+当它来临时，我们不会说：“天啊，我的生命完了。” 如果这些事情发生在你身上，如果你的软弱来临，当你面对这一切时，你说：“天啊，我的生命完了。”那你还是旧世界的影响力。旧王国已经被取代了，那手迹已经写在上面的国度已经到来。
+
+当奖赏来临时，我们看到它的价值，并珍惜那些经历它的人们，我们会被他们吸引，进入他们的生活去影响他们的生命。这个夏天你是在寻找成长信仰的方法吗？还是希望帮助新信徒或孩子们理解基督教的核心？对于许多人来说，夏季可以提供更多的时间来深化我们的信仰和理解跟随基督的意义。
+
+今年夏天开始使用的一个很好的资源是“城市 catechism”灵修手册，《上帝的心智与心灵》。这本灵修手册将基督教教会的历史 catechisms 带入生活，为一年中的每个星期提供了需要思考的问题。在导论中，蒂姆·凯勒阐述了 catechesis 的重要性——这一丰富而共同体的学习和记忆问答的实践，这些问答框定了基督教信仰的基础信念。每周包括一段圣经经文、一个祷告和一篇简短的沉思，这将挑战并激励你。
+
+附带的评论是由约翰·派博、蒂姆·凯勒和凯文·D.等当代牧师撰写的。年轻的信徒，以及像奥古斯丁、约翰·加尔文和马丁·路德这样的历史人物。本月除了新城市小教理问答灵修材料外，我们还将提供一个新的配套资源——适合儿童的新城市小教理问答，作为您对福音与生命的礼物表示感谢的方式，帮助我们将基督的爱的信息传播到世界各地的人们当中。所以请尽快在 gospelandlife.com/slash/give 下单您的副本。
+
+那就是 gospelandlife.com/slash/give。现在让我们听蒂姆·凯勒继续今天的教导。现在让我来为大家分解一下这个信息。
+
+---
+
+## 模式：从世俗控制中得释放 / The Pattern: Freedom from Worldly Control
 
 Let's look at the pattern, the power and the product of the upside down kingdom. Number one, the pattern. The pattern of the upside down kingdom is a reversal of values with regard to the world.
 
@@ -268,6 +436,66 @@ What's great about this is it really means that you no longer have to have these
 
 So that's the pattern. The pattern is I have a complete reversal because I'm free from the world's value. But secondly, okay, where do you get the power for this?
 
+---
+
+我们来看看颠倒王国的模式、力量和产品。
+
+首先，模式。颠倒王国的模式是对世界价值观的一种反转。换句话说，基督徒不再被世人认为至关重要的事物所控制。我们不受权力或成功的驱动，也不受舒适或认可的影响。
+
+你不受它们的驱使。让我再强调一下这一点。如果你无法承受这些事物，如果一遇到就逃避，如果你不知道该如何处理金钱，如果你对任何形式的认可毫无头绪，如果你完全无法忍受与有权力的人在一起，如果你总是避开它们，那么你仍然被它们所控制。你害怕它们。
+
+这可能意味着你内心深处仍被它们震慑，或者你还非常渴望得到它们。但一个生活在颠倒王国中的基督徒，不会受这些事物的驱使。你不需要它们，也就意味着你不想拥有它们。它们不是控制你的东西，**这意味着你可以接受它们或离开它们。**
+
+这就是生活在颠倒王国中的人的第一个标志。这就是你的生活方式的模式。例如，这里是一个非信徒： 这里是一个信徒：站在他们旁边。或许我不该这么说。
+
+这里是一个旧王国的成员，这里是一个新王国的成员。因为让我们暂时不讨论基督徒和非基督徒的问题。这里有一个被“正确王国”控制的人，还有一个被“倒转王国”控制的人。假设他们都在同一个工作环境中。
+
+如果他们说真话，就会失去工作。当你看到一个受旧王国影响的人时，他们会不得不撒谎。他们是奴隶，必须撒谎。为什么？
+
+因为他们离不开那所房子和大理石。因为他们离不开权力和舒适。他们离不开成功。他们做不到这一点。
+
+他们做不到。但是基督徒会说：“我必须做任何需要做的事情。” 因为这些事情已经不再困扰我了。那么，这从何而来呢？
+
+答案是，在这段经文中有一些非常奇妙的悖论性陈述，揭示了这里的秘密动态。首先，注意整段话中耶稣反复说的一句话：你们哭泣的有福了。你们饥饿的有福了。好的，你们哭泣的有福了。
+
+看看这个悖论意味着什么。首先，你在哭泣。现在你正在哭泣。生活中发生了不好的事情。
+
+但你是有福的。你知道，“有福”这个词的意思是深深满足。耶稣说，基督徒是一个能够哭泣但仍感到有福的人。生活在旧王国下的人，如果失去工作、失去爱、失去名誉时，他们就会感到悲痛。
+
+而在这里，你看到的是喜乐和哭泣可以共存。在新王国中，它们是可以并存的。因为有一种幸福是与境遇无关的。另一个更好地展示悖论的地方是第23节。
+
+当他说：“你们要欢喜快乐，在那一天里，因为在天上你们的赏赐是大的。” 现在，卡尔·马克思曾经看过这样的经文，曾经说过：“这就是我讨厌基督教的东西。”“这就是我讨厌基督教的原因。它是人民的精神鸦片。
+
+” 你看，“在天上你们的赏赐是大的”。所以，我应该信任生活并接受现状，不去反抗不公，因为将来我会得到天堂里的奖赏。但这里没有未来。没有未来。
+
+既然不是这样的事，卡尔·马克思。很遗憾你不能在这里听这段话。它说的是要欢喜快乐地迎接那一天。哪一天？
+
+不是审判的日子，是你被排除在外的日子。第23节指的是第22节。在你被排除在外的那一天。那么，你怎么能在那一天欢喜快乐呢？
+
+因为你的赏赐在天上是极大的，并且已经存在了。这就是正在发生的事情。《哥林多后书》第三章，《使徒行传》第七章。我从未忘记过《使徒行传》第七章。
+
+这是西门。他即将被石头砸死，即将被执行死刑。我从未忘记过这段话。他是如何以勇气和爱心来面对的？
+
+他如何保持不恐惧，又如何避免对执行这种巨大不义的人产生愤怒呢？他抬头望天，突然说：“我看见神的荣耀，也看见耶稣基督站在父的右边。” 换句话说，他说：“尽管地上这个法庭对我进行着不公正的审判，但在上帝面前我是被昭雪的。”一个基督徒根据《哥林多后书》第三章第一节所说就是这样的人。
+
+他心里想着天上，而不是地上；他的生命隐藏在神与基督里。一个基督徒会说：我失去了世人的认可，但我在神面前是著名的。你看，这就是哭泣，但却蒙福了；我被排除在外，但在上帝那里我是受欢迎的。看？
+
+这就是排斥，却因欢喜而跳跃。因为有了这样的榜样，因为你知道这一点，所以你就不会受世界价值观的控制。这些事情不再控制你了，你过着自由的生活。这才是逆转。
+
+现在，在我们继续之前，这里有一些建议。你知道**这意味着什么吗？卡尔·马克思完全错了。**如果这个世界就是一切，为了不公正而工作会失去我的职位、声誉或生命，那么我不会去做这样的事。
+
+但如果我有蒙福的未来，因为我可以在天上的地位欢喜快乐，现在我知道了我在天上的地位。这就意味着，当然，我可以反对不公义的行为，因为即使失去了名声又如何？即使失去了生命又如何呢？如果我在社区里看到不公正，我站出来反对，那又如何？
+
+如果我在公司里发现不公，我要举报，即使因此丢掉工作呢？你们说，我想知道的是谁过着这样的生活。如果你有资源过上这样有原则的生活，你同样也有资源过上这样勇敢的生活。当然可以。
+
+这并不是那些人的开始。这是唤醒人们的精神兴奋剂。它会把你从梦中叫醒。要知道，不只当你能够这样做时你会活得有原则，还要记住这一点。
+
+这一点很棒的是，**这意味着你不再需要拥有这些或失去这些。**我已经提到过了。如果你失去了某样东西，你还想过一种痛苦的生活吗？这就是模式：我完全逆转了因为我不受世界价值观的束缚。
+
+---
+
+## 力量：基督的替代而非榜样 / The Power: Christ's Substitution, Not Mere Example
+
 And somebody says, yeah, where do you get the power for it? I don't completely understand. Well, look, it says where you get the power.
 
 It right there in verse 19. Him. Jesus Christ's life is an example of the very way in which we're supposed to live.
@@ -342,238 +570,7 @@ And therefore Christians are willing to go out and sacrifice themselves and when
 
 You need to make sure anybody who gives your life like that. Of course people are going to kind of explore you occasionally, but a Christian will have such strength in Christ that by the world standards, a Christian is going to look reckless and is not afraid of weeping and is not afraid of emptiness and sacrifice. Because I know the Kingdom of God makes progress in my life and the lives of other people when it happens.
 
-Now lastly, one last thing and it's pretty important. The pattern of the upside down Kingdom is what? It's a total reversal of your attitude toward the things that the world thinks are so important, power and comfort and success and recognition.
-
-Secondly, the power is to know the Christ reversed places with you. Then lastly and very important. Why?
-
-Why does Jesus Christ say here at the very end? I mean right here at the very beginning, blessed are the poor. Whereas in Matthew chapter 5, he says, blessed are the poor and spirit.
-
-People have continually gone back and forth and said, I really don't know which it is. Is Jesus Christ saying that my gospel is really for just the poor in spirit? You don't have to be really literally poor.
-
-You just have to be poor in spirit. Or is the gospel really for the literally poor? And the answer is there's a deliberate duality.
-
-There's a deliberate ambiguity. The gospel will take middle class people. The gospel will take Christians and turn them toward their hearts toward the poor.
-
-Whereas the gospel will take the poor and turn their hearts toward the rest of Christians. You see, the poor know salvation has got to be by grace. You never find the poor having a kind of very, very nice ethical religion.
-
-The poor tend to say, I believe in the blood of Jesus. I believe in salvation by grace. Why?
-
-Because you see, they don't have the illusion that we're really in control of our lives. If the reason why you're on top of things is because you work so hard, the poor know that everything's a matter of grace. And therefore the poor, the poor are more open to the gospel, but the gospel will take a middle class person and say, you are saved by grace alone and turn your heart toward the poor.
-
-And so one of the things you see in the, in the surround amount is if you really understand the gospel, who you associate with will be the test. Do you only hang out with people who are of your caliber? Do you only hang out with people who seem to be, you know, have achieved what you've achieved?
-
-Or do you recognize that you are what you are by the grace of God alone? Who your friends are? Who you hang out with?
-
-Very, very much a matter of the lifestyle of a Christian. So here's where we are. The hand-writing is on the wall for the old kingdom.
-
-You have to ask yourself some very, very simple questions. Am I living a life in which I'm controlled by what the world says? Or am I living a life like Christ?
-
-I can only live a life like Christ if I say that he's come into my place and take in his place for me. So I can stand in his place. I don't want you to be like Bell Shazzar, and much rather you'd be like Nebuchadnezzar, because Nebuchadnezzar was the king before Bell Shazzar in the book of Daniel.
-
-And God showed up in a dream and said, I'm going to cut you down. You're like a big tree, but I'm going to cut you down, but you're going to grow back once you realize that all success is an unmerited grace. And Nebuchadnezzar was smitten down.
-
-You remember some of it? If you remember the story, he was a terrible blow. He fell into mental illness.
-
-But when he woke up, unlike Bell Shazzar, he realized that he'd been living his life according to the old way of the kingdom. And he got up and he said, everything is a gift of grace. And he changed the way in which he did everything.
-
-Don't be like Bell Shazzar. Be like Nebuchadnezzar. Live in the upside down kingdom, not in the right side of kingdom.
-
-Let's pray. Father, we ask that you give us an ability to apply this. In some of our cases, it means being much more generous than we've been.
-
-In some of our cases, it means rethinking who we spend time with. It's a sweeping and comprehensive theme. We pray, Lord, as the weeks go on, we can break this down and see what this actually means for us in every single area of our lives.
-
-But we pray that you would help us today to be humbled, not like Bell Shazzar who just simply continued to party harder, but like Nebuchadnezzar who raised his eyes to heaven. We ask that you would make us people who live according to the upside down kingdom. Show us what that means by your spirit in Jesus' name we pray.
-
-Amen. Thanks for joining us here on the Gospel and Life Podcast. We hope that today's teaching encouraged you to go deeper into God's Word.
-
-If you can help others discover this podcast by rating and reviewing it, and to find more great Gospel-centered content by Tim Keller, visit gospelandlife.com Today's sermon was recorded in 1999. The sermons and talks you hear on the Gospel and Life Podcast were recorded between 1989 and 2017 while Dr. Keller was senior pastor at Redeemer Presbyterian Church.
-
 ---
-
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎收听《生命中的福音》播客。本月的系列节目我们将聚焦于“登山宝训”，这是耶稣阐述基督徒生活真正含义的一系列教导。在这个系列中，提摩太·凯勒探讨了一个引人深思的观点：基督教不仅与世界不同，而且与宗教也有根本的不同。他同他们下去，在一个平地上站定。
-
-有许多门徒跟随他来；还有许多人从犹太全地、耶路撒冷、提洛和西顿的海边都来了，为的是要听他讲道，也被他治好了病。那些被污鬼缠磨的人都被医治了。众人都想摸他，因为有能力从他身上发出来，医好了他们。贫穷的人有福了！
-
-因为你们的安慰在天主国里。饥饿的人有福了！因为你们要得饱足。哀哭的人有福了！
-
-因为你们必喜笑。人若因我恨你，撇下你，弃绝你；又因我的名剪除你，辱骂你，逼迫你；你们就有福了！当欢喜快乐，因为在你们天上的赏赐是大的。他们的祖宗就是这样对待先知的。
-
-但富足的人有祸了！因为你们已经饱足了。肥胖的人有祸了！必受饥渴。
-
-喜笑的人有祸了！因为必哀哭。人若因我辱骂你们，逼迫你们，捏造关于你们的恶事，毁谤你们；你们就有福了！那时欢喜快乐吧！
-
-因为在你们天上的赏赐是大的。他们的祖宗就是这样对待假先知的。现在正如提摩太所说，春天到了，实际上在过去的几个世纪里，教会在这个时候都会思考如何过基督徒的生活。你看复活节即将到来，当你庆祝耶稣复活时，很自然地会开始问这个问题：我们怎样才能活出新的生命？
-
-我们怎样活出复活的生命？什么是基督徒生活的意义？现在《圣经》中有三四个地方可以让你获得关于如何在世界上作为基督徒生活的大致概念。### 并且其中的一个地方就是登山宝训。
-
-我们将会从这里一直讲到初夏，仅仅因为这个原因。现在我们有登山宝训。耶稣至少两次传讲了登山宝训。这番论述不止一次地被提及。
-
-我们在路加六章中可以看到一个较短版本，或者说是较短的记载。换句话说，在马太五至七章中，他并没有说那么多。在描述耶稣传讲登山宝训时，这个版本更长。有趣的是，这两段记载都与山有关。
-
-当然，在马太福音五章一节中提到：“他就上了山。”这里我们可以看到，在第十八节中怎么说的？它说：“他下来了”，但他在哪里？他在山上。
-
-他曾带着门徒在那里教导他们。为什么和山有关呢？据我们所知，耶稣在加利利海北面、上方的山上传讲了这番论述。加利利海北边的那些山，就像历代以来的山脉一样，具有同样的功能。
-
-如果你是革命者，如果你想建立一个新的王国或新的统治，你就是一个被追捕的人。通常情况下，如果是个革命者，你会躲在山上。这就是为什么革命者会藏在鲸鱼中。在加利利海北边的那些山里，他们就会躲起来。
-
-那些试图带来威尔士王国、打破英格兰统治的人等，都会在这些地方隐藏。在每一个地方，你都能看到革命者躲在山上。所以耶稣基督去到山上。为什么？
-
-因为他正在带来一场革命。他是一个颠覆者。他实际上在他的第一次讲道中就说了这一点，在五章二十节：“我来是要把律法和先知废掉。”他说：“我要带来一个新的统治，一个新王国，取代旧的王国。
-
-” 然而，当你真正开始理解他所说的这个王国是什么时，你会发现，每一个过去的革命者其实只是在对旧的王国进行微调。他们只是试图重新调整、重新排列旧的王国。现在，耶稣基督带来的是一位最激进的革命者，因为他的王国的价值观、模式、力量和成果完全不同。那么，你刚刚听到的这个王国是什么？
-
-一个王国总是有三件事。它有一个模式。换句话说，任何国王或新政府都会有一个价值观的模式。如果教练接手球队，他马上会说：“你们知道吗，我要强调体能训练。
-
-”我知道上一个教练不重视体能训练，但我重视。任何新的王国、新的管理团队都会带来一套新的价值观，并且会有相应的模式。其次，一个王国拥有实施这些价值观的力量。第三，总是有一个成果。
-
-当这个模式被实施时，会产生影响。我们将会看到的是：如果教练获得权力并实施了他的计划，球队会赢吗？球员们能达到他们的潜力吗？士气会上升吗？
-
-会发生什么？所以，每个王国都会产生影响，并且对人们的生活有影响力。因此，总会有一个新的模式被引入并产生成果。在第20至23节中，它向我们展示了他王国的模式、力量和成果。
-
-而在第24至26节中，他则展示了取代他的那个王国，这是一个完全不同的模式、完全不同的力量和完全不同的结果。接下来我们要做的就是对这段登山宝训中的其他内容做一个介绍，我们将要看看这两个王国。实际上只有两个王国。你必须记住的一件事是：你是其中任何一个的公民。
-
-保罗在《歌罗西书》3章1节中说：“他已经救我们脱离黑暗的权势，把我们迁到他爱子的国里。” 所以你是公民中的一个，要么是这个王国的公民，要么是那个王国的公民。但你还需要记住一点：即使你是基督国度的公民，在罗马书中保罗有一段非常有趣的话说：“黑夜已深，白昼将近；我们就当脱去暗昧的行为，带上光明的兵器。”保罗在这里所说的非常重要，我们必须理解这一点——在世界的历史进程中，我们正处于黎明。
-
-“白昼将近”意味着光明即将到来，“黑夜已深”，这两者同时发生。这不是白天，也不是黑夜。如果你经历过黎明，你会发现两者都存在。白昼正在到来，黑夜正在离去，但它们都在那里。
-
-保罗说，你必须确保生活在光明中。你要打扮得像光明即将来临一样，因为光明真的会到来。不要被黑暗愚弄，**这意味着即使你是耶稣基督国度的公民，你仍然可能在旧王国的影响下生活。**因此，当真正理解这一点时，不仅要知道有两个王国，而且两个王国模式对于在这个世界上作为基督徒生活至关重要。
-
-那么，这两个王国是什么呢？我们先简要看看第一个——旧王国，即基督将取代的那个王国，然后我们会更详细地探讨新王国。我将把旧王国称为“正位王国”，而新王国称为“倒置王国”。好吧，原因如下。
-
-首先，正位王国。现在，我要告诉你为什么我会称它为正位，但你可以看到每个王国都有某些价值观放在上面，有些放在下面。总是有一些事情你认为是好的优先级，另一些则不是那么重要。这些是我们要避免的，是我们要追求的，是我们要远离的。
-
-而基督的国度正在取代这一切，这在23至26节中有所描述。现在，让我们来看看。最重要的是什么？价值观是什么？
-
-权力、舒适、成功和认可。首先，权力。虽然第一句说的是富人，但当然，富有与贫穷本质上都是关于权力的问题，正如我们所知，权力。其次，丰衣足食的幽默感。
-
-这涉及到物质上的舒适，穿着得体的衣服，享受顶级餐厅，拥有美丽的家园。所以你有舒适。第三，你们欢笑的人。现在你知道那个“欢笑”的词是什么意思了。
-
-这是这个国度的价值观之一。“欢笑”这个词带有一种负面含义，希腊语专家会告诉你，它实际上是指一种更基本的得意洋洋。就像在选举中获胜后的派对一样。我赢了。
-
-他们输了。所以这不仅仅是关于乐趣的问题。不仅仅是在谈论普遍的幸福。而是在谈论成功，在你得到晋升后举行的派对，在击败其他候选人之后的庆祝活动等等。
-
-最后，我们的男人称赞你。认可、赞誉、受欢迎、名人。这些都是这个国度的价值观。基督正在取代这一切。
-
-当然，你可以看到相反的东西。这个国度所贬低、要避免和远离的事物在20至23节中有所描述。那么这些是什么？基本上是软弱。
-
-牺牲、不舒适、悲伤，或者说，软弱、牺牲、悲伤、排斥。你被排斥了，你在哭泣。而这个特定的国度所说的权力、舒适、成功和认可的东西。我们如何对待软弱、悲伤、牺牲和排斥呢？
-
-我们会尽一切可能避免这些事情。现在，为什么我们将这称为“颠倒过来”的国度？不是从上帝的角度来看，而是从我们的角度来看，这是“颠倒过来”的，因为它似乎完全自然地将这些东西放在上面。完全自然。
-
-并且原因在于这个国度的力量是现在的力量。仔细看看第24至26节，你会发现它提到财富、权力、成功和舒适。这些都是现在的事物。你现在正在笑。
-
-如果你主要追求成功，如果这就是你的目标；如果你主要追求权力，如果这就是你所追求的；如果你主要追求幸福，以避免痛苦，如果你主要追求认可和声望，这些都会有所收获。现在它们会给你带来结果。当然，如果现在是真实的，如果现在确实是唯一的现实，对我们大多数人来说，过去已经逝去，未来又未知。如果现在就是一切，如果这个世界就是一切，那绝对如此。
-
-这套价值观似乎是完全自然的。从生物学上讲，从心理学上讲，都是如此。你知道进化论吗？你知道弱肉强食、被排斥者生存的说法吗？
-
-忘了吧。从生物学的角度来看，这完全是不自然的。说权力等等是自然的，这是心理上的自然。我发现有一位英国的精神病学家，非常有影响力的，他说过这样一段话：在我看来，基督教中弥漫着一种自虐精神。
-
-在基督的登山宝训中能找到更强烈的自虐表现——祝福贫穷的人、谦卑的人、被逼迫的人，对他们行善，恨他们却不报复他们的罪恶。这一切都培养了自虐精神。看，正位的国度，我称之为“正位”，因为当你思考时，这似乎从生物学和心理学的角度来看是完全自然的。谁会珍视软弱？
-
-谁会珍视牺牲？谁会珍视悲伤？谁会珍视排斥与被拒绝？忘了吧。
-
-但结果呢？现在耶稣说，当你们按照这些价值观生活，并受到现在力量的驱动时，因为它们会产生结果。他说，这将是很短暂的。你现在只会笑，但后来你会哭。
-
-这是很短暂的。你现在会充满，但后来你会空虚。而他说的其实是很常识的道理。因为要知道，换句话说，如果你说，现在最重要。
-
-谁知道永恒呢？谁知道其他的事情呢？现在的时光。如果你把生活建立在现在上，你就会得到现在的结果，但是事实是，这些事情最终都会崩塌。
-
-如果你把生活建立在外貌、成就和权力上，你的美貌会消逝，你的记录会被超越。而且如果现在不是一切的话，如果实际上还有一个永恒的世界，那么当然一个把生活建立在权势、舒适、成功和认可上的人。如果这样是你的底线，是你最终的价值观，而这个世界并不是全部的话，那么当然他说你现在的饱腹感会变成宇宙的空虚，你的笑声会变成宇宙的哀泣。有人问，这是一个很好的问题：我们怎么知道耶稣是对的？
-
-你看，在你真正踏入世界的时候，正直的世界似乎是最正确的。任何其他的方法看起来就像是自杀。为什么要看重软弱呢？谁会这样做呢？
-
-为什么要看重牺牲呢？为什么要在乎眼泪呢？当你走出去之后，这一切就变得毫无意义。所以，耶稣所说的完全违背了我们所有的信念。
-
-那么，我们应该相信他吗？这里有一个答案。我从不忘记，出于某种原因我在读一本关于这一章的注释书，一位评论家指出，耶稣从山上下来，行医施食。你看，力量正在散发出去，奇迹正在发生。
-
-这位评论家说，墙上写着字，见但以理书5章。有时候注释书太过精炼了。我说，墙上写着字。耶稣从山上下来。
-
-但以理，我们在说什么？我们说的是：我们现在在谈论什么？——《马太福音》16:24-26 在但以理书第五章，如果你回到那里去看，你会发现最后一个巴比伦王是比尔·沙撒。波斯的居鲁士正逼近这座城市，他知道他不可能赢。
-
-他知道他的帝国即将覆灭。于是他举办了一场盛大的宴会，并且喝得酩酊大醉。他还叫来了自己的姬妾。当我读到但以理书第五章时，我意识到他从未想过要这么做——你不会把姬妾和妻子一起带进来，因为她们总是会提到你的姬妾。
-
-于是他们开始狂欢。突然间，墙上的字迹显现出来。有人的手在墙上写字，上面写着：“你的日子屈指可数。” 当耶稣基督出现时，他开始医治病人、复活死者、喂饱饥饿的人，并且在十字架上受死。
-
-这就像旧王国和旧方式的“ handwriting on the wall”。如果你只为自己活着，把所有的钱都花在自己身上，不按耶稣基督的方式生活，而他确实来了，确实做了那些奇迹，这就意味着你就像比尔·沙撒一样举办了一场盛大的宴会。你的王国即将崩塌。墙上的字迹显现出来。
-
-当我开始意识到评论家所说的时，我感到一阵寒意。他说，你必须问自己：真的有耶稣基督吗？他是否过着那样的生活？如果他确实有过这样的生活，这就意味着那些只为自己的王国将要关闭——崛起于顶端，不惜一切代价追求成功，并偶尔向穷人施舍一些东西，有时去教堂时心情不愉快，总是和同等级的人在一起。
-
-> 墙上的字迹显现出来。整个右边的王国内涵，似乎是唯一可行的道路，因为耶稣基督以他所过的生活践行了这条道路——触摸麻风病人、为穷人舍己、在十字架上受死、作为贫穷的人来到世间、骑着驴驹进入城中、在借来的房间内共进最后一餐、被埋葬在空坟里，并且放弃了一切。他带着权能而来，这是任何不按照他的生活方式生活的人所无法忽视的警告。所以你必须说，你知道，你说，我不知道耶稣是否真的活过，我不知道他是否做过这些奇迹，我不知道他是否做过这些事情，当然，然后你需要去查证一下。
-
-但这不是今天的讲道主题，我们今天谈论的并不是我们如何知道耶稣是否真实存在和死去的问题。我们不讨论如何验证耶稣的存在与死亡，我不会给你证据，也不会带你去看经文。但如果他确实如此生活过，按照圣经所说的那样生活过，那么你的日子就屈指可数了，比尔·沙扎尔，除非你的人生方向完全颠倒了，与世人认为的世界观相反。现在让我们看看这个颠倒的王国。
-
-那是一个正向的王国。什么是颠倒的王国？你知道，我已经说过这些，但让我再给你引用一位对我帮助很大的评论家的话。迈克尔·威尔科克写了一本关于路加福音的注释书，并对这段经文进行了这样的描述：他说得完美无缺。
-
-事实上，当我读到这段话时，我应该就此结束，但我不会。在神子民的生命中，首先会看到一种价值观的惊人逆转。神子民将珍视世人认为可悲的事物，而怀疑世人认为有价值的东西。换句话说，成为基督徒的标准就是价值观的颠倒。
-
-世界认为可悲的事情，我们却视为珍贵。迈克尔·威尔科克说：我们珍视，等等，我们珍视软弱、牺牲、悲伤和排斥。我们是精神病学家所说的那些屠杀吗？答案并不是一回事。
-
-奖赏不是追求的结果。事实上，如果你去追求它，我马上就能告诉你，你只是被旧世界的价值观所控制。但我们要说的是，奖赏意味着当它来临时，我们会看到它的价值。当它来临时，我们会理解它在我们生活中的作用。
-
-当它来临时，我们不会说：“天啊，我的生命完了。” 如果这些事情发生在你身上，如果你的软弱来临，当你面对这一切时，你说：“天啊，我的生命完了。”那你还是旧世界的影响力。旧王国已经被取代了，那手迹已经写在上面的国度已经到来。
-
-当奖赏来临时，我们看到它的价值，并珍惜那些经历它的人们，我们会被他们吸引，进入他们的生活去影响他们的生命。这个夏天你是在寻找成长信仰的方法吗？还是希望帮助新信徒或孩子们理解基督教的核心？对于许多人来说，夏季可以提供更多的时间来深化我们的信仰和理解跟随基督的意义。
-
-今年夏天开始使用的一个很好的资源是“城市 catechism”灵修手册，《上帝的心智与心灵》。这本灵修手册将基督教教会的历史 catechisms 带入生活，为一年中的每个星期提供了需要思考的问题。在导论中，蒂姆·凯勒阐述了 catechesis 的重要性——这一丰富而共同体的学习和记忆问答的实践，这些问答框定了基督教信仰的基础信念。每周包括一段圣经经文、一个祷告和一篇简短的沉思，这将挑战并激励你。
-
-附带的评论是由约翰·派博、蒂姆·凯勒和凯文·D.等当代牧师撰写的。年轻的信徒，以及像奥古斯丁、约翰·加尔文和马丁·路德这样的历史人物。本月除了新城市小教理问答灵修材料外，我们还将提供一个新的配套资源——适合儿童的新城市小教理问答，作为您对福音与生命的礼物表示感谢的方式，帮助我们将基督的爱的信息传播到世界各地的人们当中。所以请尽快在 gospelandlife.com/slash/give 下单您的副本。
-
-那就是 gospelandlife.com/slash/give。现在让我们听蒂姆·凯勒继续今天的教导。现在让我来为大家分解一下这个信息。我们来看看颠倒王国的模式、力量和产品。
-
-首先，模式。颠倒王国的模式是对世界价值观的一种反转。换句话说，基督徒不再被世人认为至关重要的事物所控制。我们不受权力或成功的驱动，也不受舒适或认可的影响。
-
-你不受它们的驱使。让我再强调一下这一点。如果你无法承受这些事物，如果一遇到就逃避，如果你不知道该如何处理金钱，如果你对任何形式的认可毫无头绪，如果你完全无法忍受与有权力的人在一起，如果你总是避开它们，那么你仍然被它们所控制。你害怕它们。
-
-这可能意味着你内心深处仍被它们震慑，或者你还非常渴望得到它们。但一个生活在颠倒王国中的基督徒，不会受这些事物的驱使。你不需要它们，也就意味着你不想拥有它们。它们不是控制你的东西，**这意味着你可以接受它们或离开它们。**
-
-这就是生活在颠倒王国中的人的第一个标志。这就是你的生活方式的模式。例如，这里是一个非信徒： 这里是一个信徒：站在他们旁边。或许我不该这么说。
-
-这里是一个旧王国的成员，这里是一个新王国的成员。因为让我们暂时不讨论基督徒和非基督徒的问题。这里有一个被“正确王国”控制的人，还有一个被“倒转王国”控制的人。假设他们都在同一个工作环境中。
-
-如果他们说真话，就会失去工作。当你看到一个受旧王国影响的人时，他们会不得不撒谎。他们是奴隶，必须撒谎。为什么？
-
-因为他们离不开那所房子和大理石。因为他们离不开权力和舒适。他们离不开成功。他们做不到这一点。
-
-他们做不到。但是基督徒会说：“我必须做任何需要做的事情。” 因为这些事情已经不再困扰我了。那么，这从何而来呢？
-
-答案是，在这段经文中有一些非常奇妙的悖论性陈述，揭示了这里的秘密动态。首先，注意整段话中耶稣反复说的一句话：你们哭泣的有福了。你们饥饿的有福了。好的，你们哭泣的有福了。
-
-看看这个悖论意味着什么。首先，你在哭泣。现在你正在哭泣。生活中发生了不好的事情。
-
-但你是有福的。你知道，“有福”这个词的意思是深深满足。耶稣说，基督徒是一个能够哭泣但仍感到有福的人。生活在旧王国下的人，如果失去工作、失去爱、失去名誉时，他们就会感到悲痛。
-
-而在这里，你看到的是喜乐和哭泣可以共存。在新王国中，它们是可以并存的。因为有一种幸福是与境遇无关的。另一个更好地展示悖论的地方是第23节。
-
-当他说：“你们要欢喜快乐，在那一天里，因为在天上你们的赏赐是大的。” 现在，卡尔·马克思曾经看过这样的经文，曾经说过：“这就是我讨厌基督教的东西。”“这就是我讨厌基督教的原因。它是人民的精神鸦片。
-
-” 你看，“在天上你们的赏赐是大的”。所以，我应该信任生活并接受现状，不去反抗不公，因为将来我会得到天堂里的奖赏。但这里没有未来。没有未来。
-
-既然不是这样的事，卡尔·马克思。很遗憾你不能在这里听这段话。它说的是要欢喜快乐地迎接那一天。哪一天？
-
-不是审判的日子，是你被排除在外的日子。第23节指的是第22节。在你被排除在外的那一天。那么，你怎么能在那一天欢喜快乐呢？
-
-因为你的赏赐在天上是极大的，并且已经存在了。这就是正在发生的事情。《哥林多后书》第三章，《使徒行传》第七章。我从未忘记过《使徒行传》第七章。
-
-这是西门。他即将被石头砸死，即将被执行死刑。我从未忘记过这段话。他是如何以勇气和爱心来面对的？
-
-他如何保持不恐惧，又如何避免对执行这种巨大不义的人产生愤怒呢？他抬头望天，突然说：“我看见神的荣耀，也看见耶稣基督站在父的右边。” 换句话说，他说：“尽管地上这个法庭对我进行着不公正的审判，但在上帝面前我是被昭雪的。”一个基督徒根据《哥林多后书》第三章第一节所说就是这样的人。
-
-他心里想着天上，而不是地上；他的生命隐藏在神与基督里。一个基督徒会说：我失去了世人的认可，但我在神面前是著名的。你看，这就是哭泣，但却蒙福了；我被排除在外，但在上帝那里我是受欢迎的。看？
-
-这就是排斥，却因欢喜而跳跃。因为有了这样的榜样，因为你知道这一点，所以你就不会受世界价值观的控制。这些事情不再控制你了，你过着自由的生活。这才是逆转。
-
-现在，在我们继续之前，这里有一些建议。你知道**这意味着什么吗？卡尔·马克思完全错了。**如果这个世界就是一切，为了不公正而工作会失去我的职位、声誉或生命，那么我不会去做这样的事。
-
-但如果我有蒙福的未来，因为我可以在天上的地位欢喜快乐，现在我知道了我在天上的地位。这就意味着，当然，我可以反对不公义的行为，因为即使失去了名声又如何？即使失去了生命又如何呢？如果我在社区里看到不公正，我站出来反对，那又如何？
-
-如果我在公司里发现不公，我要举报，即使因此丢掉工作呢？你们说，我想知道的是谁过着这样的生活。如果你有资源过上这样有原则的生活，你同样也有资源过上这样勇敢的生活。当然可以。
-
-这并不是那些人的开始。这是唤醒人们的精神兴奋剂。它会把你从梦中叫醒。要知道，不只当你能够这样做时你会活得有原则，还要记住这一点。
-
-这一点很棒的是，**这意味着你不再需要拥有这些或失去这些。**我已经提到过了。如果你失去了某样东西，你还想过一种痛苦的生活吗？这就是模式：我完全逆转了因为我不受世界价值观的束缚。
 
 但第二点是，你怎么获得这种力量呢？有人问，你怎么获得这种力量？我不是很明白。看吧，答案就在第19节里。
 
@@ -625,7 +622,59 @@ If you can help others discover this podcast by rating and reviewing it, and to 
 
 你应该为将来留点积蓄。” 当然，人们偶尔会对你有所质疑，但一个基督徒在基督里的力量如此强大，以至于按照世俗的标准，他会显得鲁莽，并且不害怕哭泣、空虚和牺牲。因为我知道神的国在我生命中以及其他人生命的进步中是通过这些发生的。最后，还有一点非常重要。
 
-这个“倒过来”的神的国的模式是什么？是对世界认为重要的事物——权力、舒适、成功和认可——态度上的彻底反转。其次，这种力量在于知道基督在你身上所做的事情是颠倒了位置的。最后且非常重要的是为什么呢？
+---
+
+## 成果：福音转向贫穷人 / The Product: The Gospel Turns Hearts Toward the Poor
+
+Now lastly, one last thing and it's pretty important. The pattern of the upside down Kingdom is what? It's a total reversal of your attitude toward the things that the world thinks are so important, power and comfort and success and recognition.
+
+Secondly, the power is to know the Christ reversed places with you. Then lastly and very important. Why?
+
+Why does Jesus Christ say here at the very end? I mean right here at the very beginning, blessed are the poor. Whereas in Matthew chapter 5, he says, blessed are the poor and spirit.
+
+People have continually gone back and forth and said, I really don't know which it is. Is Jesus Christ saying that my gospel is really for just the poor in spirit? You don't have to be really literally poor.
+
+You just have to be poor in spirit. Or is the gospel really for the literally poor? And the answer is there's a deliberate duality.
+
+There's a deliberate ambiguity. The gospel will take middle class people. The gospel will take Christians and turn them toward their hearts toward the poor.
+
+Whereas the gospel will take the poor and turn their hearts toward the rest of Christians. You see, the poor know salvation has got to be by grace. You never find the poor having a kind of very, very nice ethical religion.
+
+The poor tend to say, I believe in the blood of Jesus. I believe in salvation by grace. Why?
+
+Because you see, they don't have the illusion that we're really in control of our lives. If the reason why you're on top of things is because you work so hard, the poor know that everything's a matter of grace. And therefore the poor, the poor are more open to the gospel, but the gospel will take a middle class person and say, you are saved by grace alone and turn your heart toward the poor.
+
+And so one of the things you see in the, in the surround amount is if you really understand the gospel, who you associate with will be the test. Do you only hang out with people who are of your caliber? Do you only hang out with people who seem to be, you know, have achieved what you've achieved?
+
+Or do you recognize that you are what you are by the grace of God alone? Who your friends are? Who you hang out with?
+
+Very, very much a matter of the lifestyle of a Christian. So here's where we are. The hand-writing is on the wall for the old kingdom.
+
+You have to ask yourself some very, very simple questions. Am I living a life in which I'm controlled by what the world says? Or am I living a life like Christ?
+
+I can only live a life like Christ if I say that he's come into my place and take in his place for me. So I can stand in his place. I don't want you to be like Bell Shazzar, and much rather you'd be like Nebuchadnezzar, because Nebuchadnezzar was the king before Bell Shazzar in the book of Daniel.
+
+And God showed up in a dream and said, I'm going to cut you down. You're like a big tree, but I'm going to cut you down, but you're going to grow back once you realize that all success is an unmerited grace. And Nebuchadnezzar was smitten down.
+
+You remember some of it? If you remember the story, he was a terrible blow. He fell into mental illness.
+
+But when he woke up, unlike Bell Shazzar, he realized that he'd been living his life according to the old way of the kingdom. And he got up and he said, everything is a gift of grace. And he changed the way in which he did everything.
+
+Don't be like Bell Shazzar. Be like Nebuchadnezzar. Live in the upside down kingdom, not in the right side of kingdom.
+
+Let's pray. Father, we ask that you give us an ability to apply this. In some of our cases, it means being much more generous than we've been.
+
+In some of our cases, it means rethinking who we spend time with. It's a sweeping and comprehensive theme. We pray, Lord, as the weeks go on, we can break this down and see what this actually means for us in every single area of our lives.
+
+But we pray that you would help us today to be humbled, not like Bell Shazzar who just simply continued to party harder, but like Nebuchadnezzar who raised his eyes to heaven. We ask that you would make us people who live according to the upside down kingdom. Show us what that means by your spirit in Jesus' name we pray.
+
+Amen. Thanks for joining us here on the Gospel and Life Podcast. We hope that today's teaching encouraged you to go deeper into God's Word.
+
+If you can help others discover this podcast by rating and reviewing it, and to find more great Gospel-centered content by Tim Keller, visit gospelandlife.com Today's sermon was recorded in 1999. The sermons and talks you hear on the Gospel and Life Podcast were recorded between 1989 and 2017 while Dr. Keller was senior pastor at Redeemer Presbyterian Church.
+
+---
+
+这个"倒过来"的神的国的模式是什么？是对世界认为重要的事物——权力、舒适、成功和认可——态度上的彻底反转。其次，这种力量在于知道基督在你身上所做的事情是颠倒了位置的。最后且非常重要的是为什么呢？
 
 为什么耶稣基督在这里说，就在最开始就说：“贫穷的人有福了。”而马太福音第五章里却说：“贫穷在灵里的有福了。”人们一直争论不休，不知道到底是哪一种。耶稣是说我的福音只针对心灵贫穷的人吗？
 

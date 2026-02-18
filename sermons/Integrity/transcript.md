@@ -16,9 +16,13 @@ These are characteristics, descriptors of a supernaturally changed heart, love, 
 
 There couldn't be a more relevant topic. Because of the economic crisis, the recession, and the revelations that have come out, since then, our trust, Americans trust of their institutions, business, government, church, is that an all-time low, all the studies show that, because there is a sense that there's been a failure of integrity in our society at all levels. And what does the Bible have to say about this, therefore, very relevant and all-important subject?
 
+### Two Problems with Truth
+
 This particular text is going to show us that there are two problems with regard to truth. There's a problem of practicing truthfulness, but then there's also a problem of abusing people with the truth. So there's a problem of practicing truth, and then there's a problem of abusing people with the truth, and then we're going to see what the solution is, how we solve both problems.
 
 Okay? First, first there's the problem of practicing truth. It's a very demanding thing, according to the Bible, and what's great about this passage is there's three very important aspects to being truthful people that are all mentioned.
+
+### Refusing to Deceive: Words as Deeds
 
 What does it mean to be truthful? First, it means to refuse to deceive people, to not deceive people. Notice verse 14 and 15, verse 15 says, instead speak the truth, instead of what?
 
@@ -76,7 +80,11 @@ Or then you have watergate lies. You know what watergate lies are? Watergate lie
 
 It's just too complicated for them. So this is what I'm going to say. This is all deception.
 
-To live a life of truthfulness means to refuse to deceive. Number one, number two. Secondly, to live a life of truthfulness according to the Bible is to make and keep promises.
+To live a life of truthfulness means to refuse to deceive.
+
+### Making and Keeping Promises
+
+Number one, number two. Secondly, to live a life of truthfulness according to the Bible is to make and keep promises.
 
 That actually comes out, though you might not see it immediately, in verse 25. We should, if you're a Christian, you should tell the truth everybody, of course. But in verse 25, it actually says, speak truthfully to your neighbor.
 
@@ -102,7 +110,11 @@ When I make a promise, I bear witness that my future with you is not determined 
 
 Now I know as well as the next person that much of what I am and what I do is a gift or a curse from my past, but when I make a promise to anyone, I rise above all the conditioning that limits me, no German shepherd ever promised to be there with me, no computer ever promised to be loyal for life, only a person can make a promise and when he does, he is most free. You see, when you say, but if I make that promise, if I make that commitment, if I promise to be there, then I won't have my freedom, and what he's saying is the opposite, don't you realize that if you don't make a promise, then you are a slave to circumstances, you're a slave to feelings, you're a slave to fears, you're a slave to impulses, make a promise. And that's your way of saying, this is the way I'm going to be and I don't care about whatever else happens, and that makes you more free.
 
-And to be people of integrity, we should be people who are not afraid of making promises and keeping promises. So refusing to deceive, making keeping promises and the third aspect of what it means to practice the truth and be truthful is integrity of selves, plural, integrity of selves. Look at verse 25, where it says, therefore each of you must put off falsehood.
+And to be people of integrity, we should be people who are not afraid of making promises and keeping promises.
+
+### One Self, Not a Pseudo Self
+
+So refusing to deceive, making keeping promises and the third aspect of what it means to practice the truth and be truthful is integrity of selves, plural, integrity of selves. Look at verse 25, where it says, therefore each of you must put off falsehood.
 
 But you know what it says in the original Greek is, you must put off the pseudo. That's the Greek word, the pseudo. And this is what he is talking about.
 
@@ -130,7 +142,11 @@ Don't give huge perks to management and not to others. Don't put in a big number
 
 I'm back to the illustration. Don't ask a fish to tell you about water because then the fish will say, well, what's water? Because the fish is so in the water, the fish doesn't even see the earth's water.
 
-And maybe we're getting to the place where we can't even say to people in business, in government, in the church, in real life, just life, be people of integrity because they don't even know what that is because they're so used to the kind of behavior that this man said, don't do, don't do, but we just swim in it. It's just everywhere. All through this passage, the reason why we should be truthful comes back to God.
+And maybe we're getting to the place where we can't even say to people in business, in government, in the church, in real life, just life, be people of integrity because they don't even know what that is because they're so used to the kind of behavior that this man said, don't do, don't do, but we just swim in it. It's just everywhere.
+
+### Every Word Is Under Oath Before God
+
+All through this passage, the reason why we should be truthful comes back to God.
 
 Does it not? We should be righteous and truthful and holy because God is truthful and righteous and holy. And the implication of that, if you're a Christian believer, is astonishing.
 
@@ -159,6 +175,8 @@ The Psalms can profoundly shape the way you approach God. Even Jesus relied on t
 If you don't have a regular devotional practice, this book is a wonderful way to start. And if you already spend time in study and prayer, then reading and praying through the Psalms can help you bring your deepest emotions and questions before God and discover a new level of intimacy with Him. We'll send you Tim and Kathy Keller's devotional is our thanks for your gift to help gospel and life share the love of Jesus with more people.
 
 Request your copy today at gospelandlife.com slash give. That's gospelandlife.com slash give. Now here's Dr.
+
+### Abusing People with the Truth
 
 Keller with the rest of today's teaching. So you see the problem and the difficulty of practicing the truth, but that's not the only problem that Paul brings out here. It's not the only problem with regard to the truth.
 
@@ -194,7 +212,11 @@ Are you trying to beat the person up? Are you trying to punish them? Are you try
 
 Are you trying to get applause from other people because you're being so hard on them? Paul says none of those are right. Anyone who uses the truth basically to beat the person up in order to get more power and status for yourself is abusing the truth.
 
-And you're not valiant for the truth, you're valiant for yourself. You're using the truth for your own power and status. And at this point, by the way, you realize that we're coming to a place where we're coming to one of the main objections that the world out there today, especially in our culture, has about the church.
+And you're not valiant for the truth, you're valiant for yourself. You're using the truth for your own power and status.
+
+### Truth Claims as Power Plays
+
+And at this point, by the way, you realize that we're coming to a place where we're coming to one of the main objections that the world out there today, especially in our culture, has about the church.
 
 Foucault, Nietzsche, those kinds of people, have said now for years that when Christians claim to have the truth, they're really basically just using the truth to get on top. So Foucault is a famous place where the French philosopher Foucault says truth is a thing of this world. It is produced by virtue of multiple forms of constraint and it induces regular effects of power.
 
@@ -248,6 +270,8 @@ We clamor for the very qualities we are rendering impossible. We laugh at honor 
 
 And so on the one hand we are living in a society like that but therefore the danger is to react and become people who use unwholesome words. People who use the truth not to build up and not to benefit. You know we attack not the problem but the person when we use the truth.
 
+### Truth Without Love Is Not Truth
+
 So we have the truth party. We have the truth and nobody else. And we have the love party.
 
 Ah this just accept everybody but here's the problem. Truth without love is not really truth. It is a power grab and love without truth is not really love.
@@ -257,6 +281,8 @@ It's cowardice or intellectual laziness. Truth and love have to be together or t
 That's what Paul is saying here. Love without truth isn't truth and truth without love. Truth that love isn't truth and love without truth isn't love.
 
 Unless they're together they're not themselves. So what are we going to do? Here's what we're going to do.
+
+### The Cross Unites Truth and Love
 
 In John chapter 18 I just noticed this this week there's really two trials. Jesus first is dragged before the high priest before they you know before his crucifixion he's dragged before the high priest and they religious leaders and then the same chapters drag before pilot. Now when he's dragged before the high priest you know what he says?
 
@@ -301,6 +327,8 @@ It keeps you from the fear that makes you a person who plays fast and loses the 
 The fear that leads us to duck and dive and play with the truth is taken away. Our hearts are so filled with love that here's what we can do. Verse 29, I know that the translation says you should only do what will benefit those who listen but literally the Greek says you should only say that which will give grace to those who listen.
 
 When you get the grace from the cross of Jesus Christ then you can speak the truth graciously and only then or you could put it one other way. Yeah, as Mr. Incredible once said, I got time.
+
+### Saved by the Integrity of Jesus
 
 We can do one, let me tell you one more thing. In the beginning, don't think about that too much. In the beginning of history, it was a disaster.
 

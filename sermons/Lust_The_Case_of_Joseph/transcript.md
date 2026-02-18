@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel in Life. You don't have to look far to see that something's deeply wrong with our world and with us. But is there an answer that gets to the root of why?
 
 In today's message, Tim Keller explores the human condition through stories in the Bible, uncovering what Scripture says about sin and why it's the only explanation deep enough to face the truth about ourselves. Let me read to you the teaching, Scripture passage, the passage on which the teaching is based this morning. It's found in your bulletins.
@@ -24,7 +26,11 @@ And when he heard me scream for help, he left his cloak beside me and ran out of
 
 And when his master heard the story, his wife told him saying, this is how your slave treated me, he burned with anger. Joseph's master took him and put him in prison, the place where the king's prisoners were confined. But while Joseph was there in the prison, the Lord was with him.
 
-He showed him kindness and granted him favor in the eyes of the prison warden. This is God's Word. Well, we've been going through the seven deadly sins and finally we get to one that's interesting.
+He showed him kindness and granted him favor in the eyes of the prison warden. This is God's Word.
+
+### Sex as a Make-or-Break Force
+
+Well, we've been going through the seven deadly sins and finally we get to one that's interesting.
 
 Joseph's career was going along fairly well. He'd been sold into the servanthood by his brothers, but he had been bought by this high official in the society of Egypt and because he was such an incredibly good manager, he rose soon to be in a sense the COO, the chief operating officer of this huge estate. His career was going very well.
 
@@ -60,7 +66,11 @@ And she contemplated that. And then we see that she had spent so much time conte
 
 But finally we see, when he refused again and again and again, when she realized she could not have him, she turned murderous and tried to kill him. And you say, where is that? Well, what she was accusing him of was a capital offense.
 
-And we'll get to that later. What do we learn about lust? Okay, first of all, a negative and then the positive.
+And we'll get to that later.
+
+### Understanding Lust: What It Is Not
+
+What do we learn about lust? Okay, first of all, a negative and then the positive.
 
 Negatively, lust is not sexual desire per se. Joseph does not say this is a wicked thing because it's sexual. He doesn't say that.
 
@@ -86,6 +96,8 @@ That's the reason why Jesus, do you realize what an affirmation of sexuality it 
 
 So the idea that lust is any kind of sexual passion, that's just not true at all. Well, then what is sexual desire? How does it become lust?
 
+### Lust as Desire Out of Control
+
 And I'm going to say, from the passage we see lust is three things, three ways to understand it. First of all, lust is desiring out of control. I'll be real brief on that.
 
 Look at what the poor lady, once she's in the grip of her sexual passion, even though he's given her a very firm know. And not only that, even though what she's trying to do is very dangerous to her personally, she can't stop. After day in, day out.
@@ -99,6 +111,8 @@ And of course, there's that writer who pointed this out, if you ever found a cou
 There's something wrong. It's not just an appetite. You can't trust an appetite like that.
 
 So first of all, lust is desiring out of control. It's out of control. Secondly though, and more importantly, lust is desiring pleasure without a promise.
+
+### Lust as Pleasure Without a Promise
 
 Lust is desiring pleasure without a promise. It's not just desiring pleasure. We said, that's fine.
 
@@ -192,6 +206,8 @@ That's what marriage is. And if you say I want that physically but I don't want 
 
 And you see, therefore, let's see how Joseph handles it. Therefore, lust is not just desiring pleasure out of control. And lust is not just desiring pleasure without a promise.
 
+### Lust as Pleasure Without a Person
+
 It's actually desiring pleasure without a person. Yes. Lust is the opposite of love.
 
 Love, you want a person. In lust, you just want the pleasure. And the person is a necessary commodity to get there.
@@ -219,6 +235,8 @@ You have no idea who they are. In other words, sin takes lust. A good thing, sex
 And through which you can learn the incredible pleasure of giving pleasure. Instead of learning the pleasure of giving pleasure, instead of using sex as a way to serve somebody else, serving somebody you're committed to, somebody you're trying to give pleasure to instead becomes an end in itself and a person just happens to be a necessary commodity. So we can discard the people.
 
 And we do. As time goes on, as long as we have the thing. Now how does Joseph handle it?
+
+### How Joseph Handled Temptation: Mind and Action
 
 He teaches us something pretty remarkable. As you can see, sin makes sexual desire a very powerful thing. Well, how does he handle it?
 
@@ -255,6 +273,8 @@ The only people who don't believe it is something, this is just a belief that ju
 He remembers, he fills his mind with the penultimate goal, but he also fills his mind with the ultimate goal. He says, how can I do this thing and sin against God? Now, how could this be a sin against God?
 
 Now, it could be a sin against Potiphar, the husband, yeah, it could be a sin against Potiphar's wife. It wouldn't be that hard to say if he had given into her in the midst of her passion that she was giving in, he was sending against her. He certainly could say he was sending against himself in his own body, but how God?
+
+### The Ultimate Purpose of Sex: A Signpost to God
 
 And here's the reason, because I told you there were two goals for sex and this is the ultimate goal. And the ultimate goal of sex is to be an appetizer and a sign of the absolute ecstasy and joy of complete union with God. Sex is a sign and an api-biblical, according to biblical theology, sex is a foretaste and a sign and a signpost pointing toward the unbelievable joy and ecstasy of complete union with God.
 
@@ -296,7 +316,11 @@ You're going to experience temporary isolation. You're going to have people laug
 
 Potterford must have actually trusted, he must have at least doubted, Joseph integrity must have been so incredibly good that when his wife came and accused him, there must have been doubts in Potterford's mind because what he was accused of was a capital offense. We know that. And so Potterford must have had doubts.
 
-His integrity was so great that it saved him even at a moment like that. God was with him and he'll be with you. But what, I know somebody's asking, what if Joseph's not really my model?
+His integrity was so great that it saved him even at a moment like that. God was with him and he'll be with you.
+
+### Grace for the Broken: Neither Do I Condemn You
+
+But what, I know somebody's asking, what if Joseph's not really my model?
 
 What if I'm a lot more like Potterford's wife? What does Jesus say to me? He says the same thing to you that he said to the woman caught an adultery.
 

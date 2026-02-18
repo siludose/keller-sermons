@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### John the Baptist's Self-Understanding
+
 Welcome to Gospel in Life. Today, Tim Keller is looking at a passage from the opening chapter of the Gospel of John. John begins his account of Christ's birth not with shepherds or angels, but with the mystery of the Word becoming flesh, God Himself entering the world as a person in Jesus Christ. Join us as Tim Keller explores the meaning of Jesus' birth. Tonight's scripture reading is from John chapter 1, verses 19 to 28.
 
 Now this was John's testimony when the Jewish leaders in Jerusalem sent priests and Levites to ask him who he was. He did not fail to confess, but confessed freely, I am not the Messiah. They asked him, then who are you?
@@ -29,6 +31,8 @@ So let's start here by looking at, put it this way, John's self-image. Because t
 So this is all about, who is John the Baptist? What is his self-image?
 
 What is his identity? What does he understand his identity to be?
+
+### Jesus' Testimony About John's Greatness
 
 Let's take a look at John's view of himself, John's view of Jesus, the resulting character change, and how we might know it as well. Okay, first of all, John's view of Jesus. John the Baptist was the leading religious figure in the country, but he'd not come up through the channels. He didn't come up through accredited religious institutions or anything like that.
 
@@ -58,6 +62,8 @@ No, it wasn't. He got himself wrong. He did not understand who he was. Because i
 
 And this is what Jesus says. This is in Matthew 17. He says, Elijah has come and they have done to him whatever they wished, even as it was written of him.
 
+### John's Exalted View of Jesus
+
 So that's Jesus saying, John was the Elijah who was to come. He was the one that the Bible wrote about, that the Bible, the prophet spoke about. But even more amazing is in Matthew 11, when Jesus speaks to his listeners about John the Baptist, and this is what he says. He says, what did you go out into the wilderness to see when you went out to see John the Baptist?
 
 Because that's where he preached in the wilderness. What did you go out in the wilderness to see?
@@ -84,6 +90,8 @@ Well, it's like nosebleed high when they begin to ask Jesus about Jesus. He's, u
 
 Now, when he says, I'm all about helping this one who is to come. And John says, Isaiah prophesied about him in Isaiah 40, when he said, prepare the way of the Lord. Now, if you go back to Isaiah 40, you'll see that Isaiah had predicted that someday things would get so bad that God himself would come. To put things right.
 
+### The Sandal-Strap Metaphor and Christ's Transcendence
+
 And that we would build a highway for him through the desert. So basically it's, uh, it's, it's Isaiah predicting that God himself would come. And the word that I, uh, that Isaiah uses there is the word Yahweh will come. And Yahweh is the divine name. The, the name that God gave to Moses and the burning bushes, his personal name.
 
 But John is applying this to Jesus. You see that by quoting Isaiah 40 and applying it to Jesus, John is saying that the one who is to come that I'm talking about is God himself. And then he actually does a little rhetorical flourish that really drives us home near the end. Verse 26. He says, um, among you stands one. You do not know.
@@ -91,6 +99,8 @@ But John is applying this to Jesus. You see that by quoting Isaiah 40 and applyi
 You see this verse 26 and 27. Now that's why that's, that's, that's remarkably, uh, dramatic. John, uh, John says he's out there. He hasn't appeared yet.
 
 But he's out there. He's with us. He might be standing there right now himself. He might actually be in the crowd right now. That's very dramatic.
+
+### Humility and Boldness Combined
 
 But he's John knew that Jesus was about that he wasn't coming in 20 or 30 or 40 years. He was already here. But then he says, he is the one who comes after me. The straps of whose sandals I am not worthy to untie.
 
@@ -138,6 +148,8 @@ No. Elijah?
 
 No. Well then, where does all this boldness come from?
 
+### Beyond Performance-Based Identity
+
 How dare you baptize? Who gives you the right to baptize?
 
 And you know what he says? I baptize. I baptize with water. He doesn't say, he doesn't answer the question. Why then do you baptize?
@@ -169,6 +181,8 @@ We don't know of any identities that aren't basically performance-based. A perfo
 See, here in Western culture, you decide who you want to be. Now, there's many traditional cultures, and lots of you are from those traditional cultures, where your family decides who you should be, right?
 
 So here in the West, the question is, who do you want to be? In other parts of the world, the answer is, my mother and father say, this is who you should be, and this is who we want you to be. And in many parts of the world, your identity is rooted in pleasing your parents, living up to their standards, right?
+
+### How the Incarnation Gives Us a New Identity
 
 Okay? So a lot of you know that, because you've been in both cultures. But here in this culture, it's living up to your own standards.
 
@@ -204,6 +218,8 @@ On the one hand, it means, what does it mean? It means you're humbled into the d
 
 That humbles you, and it never stops humbling you. Never. You never get off the floor, in a sense, for that.
 
+### The Litmus Test of Identity
+
 But on the other hand, you're affirmed to the sky. You've got love that can't be lost. It can't be lost. It doesn't go up and down depending on how you're performing.
 
 And so this mixture of humility and boldness that John the Baptist had, you can have too. One of my favorite quotes is by Isaac Dennison, who says this about people who don't know whether there's a God. Maybe they're here by accident, and she says this. She says, there's people who do not know that God made them, and they have to. They have to accept as success what others warrant to be so, and to take their happiness, even their own selves, at the quotation of the day. Do you hear that?
@@ -225,6 +241,8 @@ See what she's saying? She's saying apart from this new identity you get in Jesu
 In other words, if you're proud of being smart, you're really not proud of being smart. You're proud of being smarter than other people. So when you're around people that you're, that are, you think are dumber than you love just to, to bolster your self-image by thinking, look how stupid they are. You know, you're not proud of having money. You're proud of having more money than other people.
 
 And so you, look, I've got this and these people don't, they can't even afford this. You see, there's the world's identity always is unstable for you. And the world's identities are always lead you to exclude and demonize other people.
+
+### Do You Dare to Be a Voice?
 
 But in Jesus Christ, when your identity is not, is absolutely stable, there's no fragility to it. It's absolutely certain. So you can be bold. You don't care what people think, but at the same time, there's no one you feel superior to. You're humbled enough to not feel superior to anybody and bold enough, not to care what anybody thinks. Don't you want that?
 
@@ -257,6 +275,8 @@ But of course, it all happens when you're still, the camera's on Herod. And then
 I remember the first time I watched this and I was like 19 years old. The first time I watched it, I was thinking, what?
 
 He's dead. Why is he still here and repent?
+
+### Closing Prayer
 
 We'll see. He's a voice. He couldn't, you can't kill the voice. Uh, all he's there is to point the way to Jesus. And when you point the way to Jesus, that can't, that can't be stopped. You're not pointing at yourself.
 

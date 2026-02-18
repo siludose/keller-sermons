@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel in Life. Are you longing to see real change in your life, in your habits, your relationships, your heart? Today, Tim Keller explores how lasting change actually happens in the life of a Christian and why the Gospel offers a radically different process of transformation than anything else.
 
 Tonight's scripture reading is found in Romans chapter 8, verse 28, and then verses 38 and 39. And we know that for those who love God, all things work together for good, for those who are called according to His purpose. Where I am convinced that neither death nor life, neither angels nor demons, neither the present nor the future, nor any powers, neither height nor depth, nor anything else in all creation, will be able to separate us from the love of God that is in Christ Jesus our Lord.
@@ -29,6 +31,8 @@ More than that was raised than is ever at the right hand of God interceding for 
 No. In all things, in all these things, we are more than conquerors through Him who loved us. We are absolutely certain that neither death nor life nor angels nor principalities nor powers nor things present nor anything to come nor height nor depth nor anything in all creation will be able to separate us from the love of God which is in Christ Jesus our Lord.
 
 There's an assurance there and I'd like to look at them to three headings. That we can be assured, why we can be assured and how we can be assured, how we can make this assurance, not just an abstraction, but an operative thing in our lives. That we can be assured, why we can be assured and how we can be assured.
+
+### The Assurance: God Loves You No Matter What
 
 First, briefly, that we can be assured, what is His point? Here's His point, there's a joy to be had. There's a joy to be had that if you have it, we'll enable you to face anything in life without sinking or crumbling.
 
@@ -66,6 +70,8 @@ And this time, God sends chariots of fire and wipes out the invading army and ev
 
 He was just as actively working in the seeming slowness and non-answer to Joseph as he was in the swift, noisy answer to Elisha. And so Paul says, that's always the case. And so no matter how much bad stuff's happening inside you, no matter how much bad stuff's happening outside you, you can be assured God absolutely and fallibly, unchangeably loves you.
 
+### Nothing Can Separate You from God's Love
+
 And then when he gets to the very end, he has a sweeping statement in verse 38 and 39, which is printed out there. And at this point, Paul says, I am absolutely certain. He uses the word that means absolute intent, certainty and persuasion.
 
 And then he just bursts. He pushes. He stretches out to the limits of language to try to say neither death nor life nor angels nor principalities, nor heaven, nor hell nor height nor death, nothing.
@@ -81,6 +87,8 @@ If you could turn back, if you could separate yourself from the love of God, are
 Last, by my look, you were. What Paul is trying to say is every possible situation that might turn you away from God, every possible situation that might turn you away from God, persecution, torture. None of those things will.
 
 Because love is so powerful, they will keep you facing him, keep you loving him, keep you in his arms no matter what. So see, here's your assurance, no matter how much all the powers of evil inside you and all the powers of evil outside you cannot separate you from the love of God, can't dislodge you from it, can't dislodge love of God from you. Once you give yourself to God through Christ, He is yours, you are His, nothing ever, ever can change that, that's the assurance.
+
+### Free Will and the Sovereignty of God
 
 Now we could, it would be great if we could just move on and say, so now how does that work in your life what we can't? Because as I said, in our Western culture, this sort of, this promise immediately raises an issue. Now the reason I say Western culture is pretty important, because we have an objection that really bothers us, all this talk about predestination, right?
 
@@ -107,6 +115,8 @@ And so that's the debate. Do we have free will or not, or are we hardwired by ou
 The argument was a Freudian one, as it were, and that is, do we have free will or are we completely controlled by our unconscious urges or our past or things like that? But the thing you always see in all these debates in the West is it's either or, either or, either we free have free will or everything is determined or put it this way. We believe either we have free will and we're responsible for our choices and our choices matter, and that means the future is open and undetermined either we have free will and the future is open undetermined or something has set and fixed the future and then our choices don't matter.
 
 See, it's either or, but in the Bible, it's never either or, never. From the beginning to the end, in principle and in practice, it's always this, you are free and you are responsible and your choices matter and you're responsible for your choices and no one's forcing you to make those choices and yet, every single thing that happens as a result of those choices is worked out, is working out exactly according to the plan of God. And it's not just that God foresees what you're going to do, but rather what you do fits in with the plan that He wants and the course that He wants history to take.
+
+### The Bible's Both/And Answer
 
 There's so many examples I could give you, I'll just start with, I'll give you two. First of all, principle, listen to these proverbs, this is from Proverbs 16, verse 1. To man belongs the plans of the heart, but from the Lord comes the reply of the tongue.
 
@@ -138,6 +148,8 @@ And you say, oh, so he just knows what we're going to choose. Yeah, but it's mor
 
 You want to do the either or thing. No, it's both in. Both in.
 
+### Paul on the Boat: Free Will in Action
+
 In Acts chapter 27, this is my favorite example in the Bible of this, Paul is on a boat with sailors and soldiers in a terrible storm, terrible storm. And in the midst of the storm when everybody's scared, the sailors and soldiers are really afraid that they're going to die, God sends an angel to Paul and says, the ship will be wrecked, but not one life will be lost. So Paul comes out on the deck and says, God has spoken to me.
 
 And he has said that even though the ship will be wrecked, not one life will be lost. And now, Paul believed that, you know why? In the Old Testament, if you're a prophet and you make a prophecy, and that prophecy doesn't come true, the prophets put to death, you know why?
@@ -165,6 +177,8 @@ Our support allows us to share the story of the Gospel with people in over 200 c
 Thank you for partnering with us to share the love of Christ with a world that needs Him because the Gospel truly changes everything. Now here's Dr. Keller with the remainder of today's message.
 
 So if you believe everything's fixed, despite our choices, you'll be passive. If you believe that our choice has actually determined the future, then you should be paralyzed. But he's neither.
+
+### The Butterfly Effect and God's Providence
 
 It's incredibly practical. And you say, well, why would he be paralyzed? I believe my choice is to determine the future, you know?
 
@@ -238,7 +252,11 @@ If that didn't happen by accident, nothing happens by accident. All things were 
 
 And you know what? Ray Seldom, do we even get a millionth of a millionth of a millionth of a glimpse of how God is working all things together for good to those who love God? But he is.
 
-And therefore you can be assured that no matter what bad stuff is happening inside you and no matter how much bad stuff is happening outside you, he is not abandon you, he loves you. Now, once you see not only that we can be assured and why we can be assured, finally how do we really make this operative in our lives? How?
+And therefore you can be assured that no matter what bad stuff is happening inside you and no matter how much bad stuff is happening outside you, he is not abandon you, he loves you.
+
+### Personalizing God's Love in You
+
+Now, once you see not only that we can be assured and why we can be assured, finally how do we really make this operative in our lives? How?
 
 And the reason we have to talk about this just for a second at least is there's lots of people walking around New York tonight who say, oh, I believe in a God of love. I believe that God loves everyone unconditionally. I believe He loves me no matter what I do, I believe He loves me.
 
@@ -289,6 +307,8 @@ That transforms, that transforms your identity why? Because finally, I don't hav
 And you see, if you know the reason why God loves you or people love you or your spouse loves you or anybody loves you because you have a great career, you will never be able to handle a reversal in that career. Or because you're so talented, you'll never be able to handle competition. Or because you're so anything, you'll never be able to handle failure.
 
 But the divine, sovereign, electing grace of God, he loves you, just because he loves you. That will transform you. That person, have you personalized it?
+
+### Personalizing God's Love in Christ
 
 So you have to personalize it for you, but then secondly, you have to personalize it in Jesus. What do I mean by that? People say, oh, I believe God loves me, nothing can separate me from the love of God.
 

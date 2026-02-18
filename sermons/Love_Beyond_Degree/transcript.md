@@ -54,6 +54,9 @@ He's going to, out of all this bad, he's going to bring something good. He's goi
 
 He's going to make it work out for good, but he's not chuckling at the tomb. Jesus doesn't come up to the tomb going, wait, do you guys see what I'm about to do? He's not chuckling.
 
+### Jesus Weeps with Us
+
+
 He's not saying, oh, I'm going to raise him from the dead. He's weeping with those who weep. We're told he's angry at the tomb.
 
 He's bellows and anger when he comes to the tomb. You know, Jesus, the tomb in John 11 almost forces you. The view of Jesus there almost forces you to think of Dylan Thomas, the great Welsh poets, line, famous line.
@@ -109,6 +112,9 @@ Our bad things will turn out for good. That's one very important thing to grasp,
 Now that's the second thing Christmas shows us. Why? Well, if anything, Christmas shows us the radical graciousness of God's salvation.
 
 The trajectory of human religion is I code God. I have to ascend through moral effort and through transformations of consciousness or whatever. I must ascend toward God.
+
+### Beyond Religious Performance
+
 
 Then he will bless me. If I live the life I ought to live, then he will bless me and save me. But the trajectory of the gospel is from God to us.
 
@@ -168,6 +174,9 @@ Your adoption into the family. Your relationship with him. These things can't be
 
 See, nothing it says at the very end. In all creation, inside you or outside you can separate you from the love of God. That means that the absolute sovereign of the universe, to whom the galaxies are like dust on the scales, loves you with the unconditional intensity of a parent.
 
+### Bad Things Turn to Good
+
+
 That's the second thing. And Christmas shows us this. Your bad things will turn out for good.
 
 Your most truly good things can never be taken away from you. And the best things are yet to come. Now the third thing actually we see is in verse 30.
@@ -223,6 +232,9 @@ Suffering when it gets you more deeply into God, when it drives you more deeply 
 Does it hurt? Ask the Velveteen Rabbit? Oh yes, to the skin horse.
 
 That's why it doesn't happen to those who break easily or who have to be very carefully handled. By the time you are real, most of your hair has been loved off and your eyes drop out, and you get really loose in the joints, and you look awfully shabby. But once you are real, you can't be ugly, except to the people who don't understand.
+
+### The Depth of God's Love
+
 
 And you know that John Newton hymn that goes where God is speaking to us basically, and the John Newton hymn where God says, these inward trials, these inward trials I employ from pride and self to set thee free and break thy schemes of earthly joy that thou mayst find thine all in me. See, first of all, suffering is actually making him more glorious now. Your inward person is being renewed day by day.
 

@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Scripture Reading: Matthew 6 on Money and Possessions
+
 Welcome to Gospel and Life. This month on the podcast, we are featuring a series on the Sermon on the Mount, a collection of teachings where Jesus outlines what it really means to live the Christian life. In the series, Tim Keller explores a striking idea that Christianity is not just different from the world, it's also radically different from religion.
 
 Take a look in your bulletin, we have a passage on which the teachings based, we're going through the Sermon on the Mount, and we come to what Jesus has to say about money and possessions, and he has plenty to say, more than we can cover, but let's read it. Matthew 6, do not store up for yourselves treasures on earth, where moth and rust destroy, where thieves break in and steal, but store up for yourselves treasures in heaven, where moth and rust do not destroy, and where thieves do not break in and steal, for where your treasure is, there your heart will be also. The eye is the lamp of the body.
@@ -18,7 +20,11 @@ I tell you that not even Solomon and all his splendor was dressed like one of th
 
 So do not worry saying, what should we eat, or what should we drink, or what should we wear, for the pagans run after all these things, and your heavenly Father knows that you need them. But seek first is kingdom, and is righteousness, and all these things will be given to you as well. Therefore, do not worry about tomorrow, for tomorrow will worry about itself.
 
-Each day has enough trouble of its own, as God's word. Now the Sermon on the Mount talks about how, if we actually take the gospel, the essential message of Jesus Christ, we actually take the gospel, and we live it out. What will it look like, and that's what the Sermon on the Mount is about.
+Each day has enough trouble of its own, as God's word.
+
+### How Money Exercises Power: The Sin of the Eye
+
+Now the Sermon on the Mount talks about how, if we actually take the gospel, the essential message of Jesus Christ, we actually take the gospel, and we live it out. What will it look like, and that's what the Sermon on the Mount is about.
 
 And now we get to the area of money and possessions, money and possessions. And Jesus tells us three things that we can draw out here. He tells us how money controls us, you know, how it has a power over us, how it exercises power.
 
@@ -55,6 +61,8 @@ It's just going to go down. They're not going to come out to hear about greed. A
 She was right. It was the worst attendant of all of them. And I thought about that.
 
 Why? Why? I'll tell you why.
+
+### Greed Hides Itself: Why No One Confesses It
 
 It's not that they were hostile. It's not that people said, oh, that's a terrible idea. I don't want to talk about greed.
 
@@ -94,6 +102,8 @@ And you choose the job on the basis of that. You know, for five to 10 years, the
 
 Why did you choose the job? Your eye was dark. I'm not saying everybody does this, but so many people do.
 
+### Materialism Blinds You in Work and Lifestyle
+
 Or let me give you another example. In the conduct of your job, not only can materialism blind you as you choose your job, in the conduct of your job. For example, many, many, many, many companies, many, many companies are making money, but we all know this.
 
 They're hurting neighborhoods. They're hurting towns. They're hurting people.
@@ -132,7 +142,11 @@ And you don't ask these questions, do I really need to spend this much money on 
 
 Do I, you know, do I need to be spending this much money on clothes? And you say, because you, because you compare, immediately you think of other people who do much more and therefore you don't ask the question, you don't go there, you don't ask. You don't say, wait a minute, isn't there ways in which I could be giving more of my money to the church, to the poor, to my friends, to the neighbors?
 
-Isn't there ways in which I could be much more radical generous if I made this and that and that change? You don't want to ask, you don't want to think. In 1635, I got named Robert Cain, 1635 now.
+Isn't there ways in which I could be much more radical generous if I made this and that and that change? You don't want to ask, you don't want to think.
+
+### Mutual Accountability: The 1635 Church Example
+
+In 1635, I got named Robert Cain, 1635 now.
 
 I was a member of the first congregational church of Boston. And I think back then there probably only was one congregational church in Boston, I don't know. I would think.
 
@@ -192,6 +206,8 @@ So request your copies today at gospelonlife.com slash give. That's gospelonlife
 
 Now, that's how. Why? I'll be real brief about this.
 
+### Why Money Has Power: Significance and Security
+
 Why is it? That money has this power. Well, the answer is in the little verse, very famous verse, which Jesus says, where your treasure is, there is your heart also.
 
 What he means by that is this. Money serves the way in which you actually, the place where your heart really rests, is revealed by money. So what it means is, money is a way of getting significance for many of us.
@@ -242,7 +258,11 @@ I mean, at the end of your life, a trap door opens up underneath you, and you fa
 
 And that's what Jesus is saying right here. He says, the power of money is, it seems like it can give you significance, but actually when you make money, you're significant, you become an arrogant person that nobody likes. And you think money can give you some security, but the fact is that money can't possibly stop all the things.
 
-It can't stop death, it can't stop tragedy, it can't stop broken relationships, it can't stop anything. So how do we break the power of money in our lives? Well, the answer is this.
+It can't stop death, it can't stop tragedy, it can't stop broken relationships, it can't stop anything.
+
+### Breaking Money's Power: Treasure Jesus Above All
+
+So how do we break the power of money in our lives? Well, the answer is this.
 
 How do we get to the place where we're really radically generous? How do we get to the place where we're not worrying about money? How do we get to the place where we're not, we don't feel, you know, there's a lot of ways in which money controls us.
 
@@ -294,7 +314,11 @@ You know that he treasures you. You know he cares about you like that. That and 
 
 Absolutely free you from money. It'll free you from everything. It won't just free you from money.
 
-And here's what I mean by free you from money. Some of you, here's a test. Here's one of the ways you know that you have spiritual wealth.
+And here's what I mean by free you from money.
+
+### Three Signs Money Has Lost Its Power Over You
+
+Some of you, here's a test. Here's one of the ways you know that you have spiritual wealth.
 
 How do you react to rich people? I'll tell you how most of us do it. Many of you resent rich people.
 
@@ -327,6 +351,8 @@ A lot of people are going to hate the New Jerusalem because they hate New York. 
 How do you respond to them? One of the ways you can see that money has lost its power over you because of the gospel of Jesus, because you know that he lost all of his treasure to make you his treasure. That humbles you, that melts you, that lifts you up.
 
 And one of the ways you'll know is that you no longer, you have no trouble loving rich people. Secondly, you have no trouble loving poor people. But the third, the third sign that money no longer has power over your life is this.
+
+### The Cross as the Standard of Generosity
 
 You get really generous. You know what's interesting? Verse 22, the eyes, the lamp of the body, if your eyes are good, if your eyes are good, that word actually is a double meaning in Greek.
 

@@ -60,6 +60,8 @@ You know, Jesus was the word made flesh. There was a word but it was invisible a
 
 They embody stories. Of course, you really can't tell a story without acting to some degree but you are embodying a story and people need stories and stories are just about the best possible way to change people's worldview, change people's understanding of things and that's what you do. Now let me back up and give you a couple random when I say random.
 
+### The Power of Stories
+
 They're not totally random because they're kind of, they're sort of logical but some ideas about what stories are and why they have the impact they have. First of all, what's the story? You might find this odd.
 
 The best place I've ever read a definition of a story is in the Harvard Business Review. A two or three Hollywood screenwriters wrote an article because the Harvard Business Review was saying it CEOs when they're trying to persuade people stupidly, use graphs and figures and they just give you facts and figures. He says that's not what changes people's minds.
@@ -91,6 +93,8 @@ You know, they can have ambiguous endings, they can have like no endings, which 
 And so maybe the story, maybe the play, maybe the movie doesn't really tell you how it ends, but you know there should be an end. That's what a story is. Now, I already said this.
 
 That's the first thing. That's what a story is. Secondly, I already alluded to this.
+
+### Stories as Worldviews
 
 You cannot attach meaning to anything unless you put it in a storyline. Now my best examples of this, my favorite example, this is 9-11. There's a liberal storyline.
 
@@ -134,7 +138,11 @@ This is the antagonist. This is what's wrong. And here's what you have to do to 
 
 Everybody's got that. And they're called worldviews. No matter who you are, you can't live without one.
 
-But a worldview is actually just a master narrative of what you think is wrong with the world, who's on the right side to get it back, who's on the wrong side, who's against getting it back, and what do we have to do? Now, what this means for Christians is this. The biggest problem, of course, that actors have, unlike writers or maybe other kinds of artists, is generally speaking, unless you, I guess some of you have done this, you're acting out.
+But a worldview is actually just a master narrative of what you think is wrong with the world, who's on the right side to get it back, who's on the wrong side, who's against getting it back, and what do we have to do? Now, what this means for Christians is this.
+
+### The Christian Master Story
+
+The biggest problem, of course, that actors have, unlike writers or maybe other kinds of artists, is generally speaking, unless you, I guess some of you have done this, you're acting out.
 
 You're embodying stories that somebody else has written. And you might say, was Christians, you say, I never act in a story that I feel like is a great Christian story with a Christian message to it. Well, I want you to consider something for a second.
 
@@ -202,7 +210,11 @@ And the story is so comprehensive. It takes in all other stories and resolves th
 
 It's not exaggerated. I absolutely believe it, but on the other hand, I realize it's a lot to take in. So, would you please, where I have been obscure, where you want me to elaborate, where I was actually totally obscure?
 
-Just raise a hand and let's start talking about what I just went through. So yeah, right here. What about the issue of holiness for actors?
+Just raise a hand and let's start talking about what I just went through. So yeah, right here.
+
+### Holiness and Conscience for Actors
+
+What about the issue of holiness for actors?
 
 Because even in some of the best of stories, they're asked to do things like his or woman who's not their spouse. Maybe where something we're feeling or you take clothes off or even have to act out of lust or out of cruelty, have these feelings. And that seems to go against being holy because we don't really have any kind of standard for this in the Bible.
 

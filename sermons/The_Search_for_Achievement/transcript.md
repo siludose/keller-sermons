@@ -76,6 +76,9 @@ We have a passion for it. And therefore, the secular person lives in a violent d
 
 You see, the Ecclesiastes writer saying, I'm done this. I have been trying to construct my own meaning. And it's not liberating.
 
+### The Work-Based Life
+
+
 He says it's meaningless. He says it's burdensome. He says it's crushing.
 
 Now, he's not done. There's one more. If there's no meaning in life that you can have to submit to, there's no God.
@@ -163,6 +166,9 @@ But if you want to see one more way in which work fails to give what it says, wh
 He's moving through life. And he says, I saw something meaningless. There was a man all alone.
 
 He had neither son nor brother. There was no end to his toil, yet his eyes were not content with his wealth. For whom am I toiling?
+
+### The Hunger for Recognition
+
 
 He asked. And why am I depriving myself of enjoyment? This too is meaningless.
 
@@ -253,6 +259,9 @@ He said, okay, sure, what does that mean? Well, I want to know what it means. Wh
 Animals don't seem to be bothered. Why are we so broken over our work? Why are we so messed up?
 
 And the passage tells us two things. Now we're going deeper. The first thing it tells us is there's actually on above the ground reason and there's a below the ground reason, all right?
+
+### The Limits of Achievement
+
 
 There's an above ground and below ground reason. If you haven't experienced the brokenness of the world through your work, if it hasn't started to brutalize your life, then this might not be all that concern. You might not concern you.
 
@@ -349,6 +358,9 @@ The Bible says, though, let me give you, Bible gives you this analysis. You may 
 You know you're not good enough. You've been blaming your parents or you've been blaming your upbringing or you've been blaming the ethnic group you came from or you've been blaming your small town and maybe you were blaming your up your church or your synagogue or your religion. But the Bible says you're not looking deep enough.
 
 We all feel there's something wrong with us. We all feel we're not good enough and we're all working performing. And you see some of us are just getting right into the job and even though you're not religious, you're working for your salvation and there is a rest.
+
+### Rest Within Work
+
 
 What you need is a rest from your work in your work. Do you hear that? That's the tranquility.
 

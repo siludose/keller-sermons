@@ -4,6 +4,8 @@
 
 ---
 
+## 引言与经文宣读 / Introduction and Scripture Reading
+
 Welcome to Gospel in Life. You don't have to look far to see that something's deeply wrong with our world and with us. But is there an answer that gets to the root of why?
 
 In today's message, Tim Keller explores the human condition through stories in the Bible, uncovering what Scripture says about sin and why it's the only explanation deep enough to face the truth about ourselves. The teaching this morning is based on this passage in Jeremiah. I'm going to read chapter 2, and what's printed there, verses 2 to 13 and verse 19.
@@ -20,7 +22,35 @@ Those who deal with the law did not know me, the leaders rebelled against me, th
 
 Be appalled at this, O heavens, and shudder with great horror declares the Lord, my people have committed two sins, they have forsaken me, the springs of living water, and have dug their own sisters, broken sisters that cannot hold water. Your wickedness will punish you, your backsliding will repute you, consider then and realize how evil and bitter it is for you when you forsake the Lord, your God, and have no awe of me, declares the Lord, the Lord Almighty. This is God's Word.
 
+---
+
+欢迎来到《福音与生活》。你不必仔细观察就能看到有些东西深深地出了问题，无论是在我们的世界还是在我们身上。但有没有一个能达到根源的答案？在今天的信息中，提摩太·凯勒通过圣经中的故事探索人类状况，揭示了经文关于罪的含义，以及为什么这是唯一足够深刻能够面对我们真实自我的解释。
+
+今天上午的教学基于耶利米书中的这段经文。我将读第 2 章，以及那里印刷的，第 2 到 13 节和第 19 节。耶利米是神在他们的民族和文化完全崩溃之前派遣给犹大人民的最后一位先知。他们被入侵，被掳到流放中，耶利米书在某种意义上是神通过先知耶利米给人民的一系列讲道。
+
+这是耶利米试图向犹大人民展示他们出了什么问题的所有伟大讲道中的第一个，为什么他们的生活在崩溃，为什么他们的文化在崩溃，为什么他们的心灵在崩溃，为什么他们的家庭在崩溃。让我从这里的顶部开始读，第 2 节，我记得你年轻时的奉献，你如何像新娘一样爱我，跟随我穿过沙漠，穿过一个未播种的土地。以色列对耶和华是圣的，是他收获的初熟果子，凡吞噬她的人都被定为有罪，灾祸降在他们身上，耶和华宣称。听耶和华的话，哦雅各家族，以色列家族的所有宗族。
+
+这是耶和华说的。你的列祖在我身上找到了什么过错，以至于他们离我那么远？他们跟随了毫无价值的偶像，自己也变成了毫无价值的。他们没有问，耶和华在哪里，他从埃及带我们出来，引领我们穿过贫瘠的荒野，穿过沙漠和裂隙之地，一个干旱和黑暗的土地，一个无人旅行、无人居住的土地。
+
+我带你进入一个肥沃的土地，吃它的果实和丰富的产物，但你进入了我的田地，玷污了我的产业。祭司没有问，耶和华在哪里？那些处理律法的人不认识我，领导者反叛我，先知通过贝尔预言，追随毫无价值的偶像。因此，我再次对你提出指控，耶和华宣称，我也将对你的孩子的孩子们提出指控。
+
+越过基提曼海岸，看，发送一只驴鹰并仔细观察，看，是否曾经有过这样的事情，一个民族是否曾改变过它的神，虽然它们根本不是神，但我的人民用毫无价值的偶像交换了他们的荣耀。对此感到震惊，哦天堂，怀着巨大的恐怖颤抖，耶和华宣称，我的人民犯了两个罪，他们抛弃了我，活水的源泉，并挖了他们自己的姐妹，破碎的姐妹，无法盛水。你的邪恶会惩罚你，你的背弃会谴责你，然后想想并意识到当你抛弃耶和华你的神并对我没有敬畏时，对你来说是多么邪恶和痛苦的。耶和华，万军之耶和华宣称。
+
+这是神的话。
+
+---
+
+## 罪的本质就是否认 / Sin Is Denial by Its Very Nature
+
 Starting today, stretching on for about three months, all the way up to Easter, Easter is about three months away, we are going to be doing a series of teachings on the subject of sin, what it is, how it operates, what its effects are, what kinds, what types there are, and we start this week and you will see us again next week with this first sermon by Jeremiah to the people of Israel, because they were saying to themselves, and they were saying they were calling out and saying, what is wrong with us, why are things falling apart, what is wrong, you know, that is interesting that it seems like after every election nowadays, everybody has been thrown out, new people have been brought in, and the papers are saying, why is everybody so unhappy, what is wrong with us, and actually everybody is saying, what is wrong, what is going on, well the people of Israel were asking that question, and God came through and said, let me tell you what is wrong with you, and he gives them a sermon on sin, the nature of sin, the character, the characteristics of sin, and as we look at this, it is interesting, I feel like it is a huge sermon, it is last 37 verses, but it is really summarized in verse 19, sort of the summarization of its in verse 19, there is several summarizations, but I am going to look at that mainly. There is three things that we learn from this passage about the nature of sin, the definition you might say, the characteristics, the character of sin, and here is what they are, first of all we learn from this passage and from the Lord, therefore, that sin is by essence denial, sin is denial, look, look at the language he uses, consider then and realize how evil and bitter it is for you, see that, consider then and realize how evil and bitter it is for you, you know what this language is, this is intervention language, you know you have a friend who calls you up, let's say, the wife of a friend calls you up and she says you know for years he has been covering something up, there is a self, there is destructive behavior in his life, he has been covering it up, he has been hiding it, but it has come out, but he still won't see it, please come over here, tell him what he is doing, so you go on over and you sit down and you hear the story, and how do you start to talk, what do you say, what's your language, you say can't you see, don't you see what you are doing to yourself, it's clear everybody else can say it, you are killing yourself, how can you do this, you don't get it, you have to get it, you have to see, that's how you talk, that's the language of intervention for a deluded loved one, don't you see, this is the language that God uses on us, he assumes by this language, consider then and realize, what's that mean, consider, you are not thinking, realize, you don't get it, you don't see what your problem is, you don't realize what the source of the evil and bitterness of your life is, you don't see it, you don't get it, you have to see it, this is the language of intervention, the language of pleading, in other words, what we learn from this verse, what we learn from this passage, what we learn from the Bible, the root of our problems is the force field of denial that sin always entails, let me put it a couple of different ways, it is not fatal to be a sinner, it's not being a sinner that's fatal according to the Bible, it's the denial that you're a sinner that's fatal, I mean let's look at the at the most obvious, it's just, you know, it's crying out and I've already in a sense alluded to the most obvious parallel here, it's not, it's not fatal to be an alcoholic, is it plenty of alcoholics are leading productive lives, what is fatal, it's a fatal to be an alcoholic and to deny that you are, that's fatal, and we also know that there's something about the evil of alcoholism which is what it is, it's an evil, there's something about the very nature of it that puts out a force field of denial, isn't that right? Well that in a sense, that's just a metaphor, in many ways a very small metaphor, just a dim reflection of what God is talking about here, God is saying if there's evil and bitterness in your life and if there's not evil and bitterness in your life, you're just very young, in other words if you have evil and bitterness and you just wait, you know, wait, right, you know, I saw the Adam's family values last night and, you know, there's little preppy girls looking at Wednesday and saying, why are you dressed as if there's a funeral, why are you dressed as if someone's died and she looks at you as just wait, well, the same idea, God says your life is evil and bitter, you say my life isn't evil and bitter, God says just wait, when you see the evil and the bitterness of your life, God says the root problem of our society and of humanity is that we will not admit that we're sinners, there's nothing fatal about being sinners, God says there's lots you can do about that, what's fatal is to deny that you are, that's why it is evil and bitterness, because you don't consider, because you don't realize, consider that and realize, that's the thing you've got to do, that's the thing you've got to see, if I could, if I could, there's a force field that comes out from sin, you know, the old radio shows based on the shadow that a character that had learned over in the east to cloud the minds of people around him so they couldn't see him and it became a movie that nobody went to see this last summer as well, that's the, but the whole idea is the shadow is someone who clouds people's minds, that's what sin is, sin is the shadow, the real shadow, by its nature sin entails denial and you will not see the extent and the magnitude, oh yes, we, of course, I'm a human being, I air, I'm flawed, that's not to admit you're a sinner, that's not to admit you're a helpless sinner, that there's, as, as Dorothy Sayers says, there's a radical interior dislocation in the heart that we're way off-center, because we center on ourselves, that we're capable of tremendous evil, I wish, if I could do it, I would make everybody read the poets and the philosophers and the great thinkers of the end of the 19th century, both sides of the Atlantic, you know, in Europe and here, what they said, they were getting rid of Christianity, they were getting rid of religion, they were getting rid of what they considered superstition, and they said, oh yes, we are finally bringing in a rational approach to government, a rational approach to poverty, a rational approach to human beings, we've gotten rid of superstition, and we are going to see incredible things happen, we're going to see an end, you ought to read the stuff, you're going to see an end to poverty in the 20th century, we're going to see the end of war in the 20th century, the end of war, they almost all said this, and now where are we?
+
+---
+
+从今天开始，延伸大约三个月，一直到复活节，复活节大约在三个月外，我们将进行一系列关于罪的主题的教学，它是什么，它如何运作，它的影响是什么，什么样，什么类型，我们从这周开始，你会在下周再看到我们，耶利米的这第一个讲道给以色列人民，因为他们在对自己说，他们在说他们在呼喊说，我们出了什么问题，事情为什么在崩溃，什么出了问题，你知道，有趣的是，在每次选举后似乎都是这样，现在每个人都被赶了出来，新人被带进来，报纸在说，为什么每个人都不高兴，我们出了什么问题，实际上每个人都在说，什么出了问题，发生了什么，好吧，以色列人民在问那个问题，神来了并说，让我告诉你你出了什么问题，他给了他们一个关于罪的讲道，罪的本质，品格，罪的特征，当我们看这个的时候，有趣的是，我感觉它像一个巨大的讲道，这是最后的 37 节经文，但它真的在第 19 节被总结了，在某种意义上它的总结在第 19 节，有几个总结，但我主要会看那个。我们从这段经文中学到了关于罪的本质、定义，你可能会说，特征，罪的品格，这就是它们，首先，我们从这段经文和从耶和华那里学到，罪的本质是否认，罪是否认，看，看他使用的语言，然后想想并意识到对你来说是多么邪恶和痛苦，看到那个，然后想想并意识到对你来说是多么邪恶和痛苦，你知道这个语言是什么，这是干预语言，你知道你有一个朋友给你打电话，比如说，一个朋友的妻子给你打电话，她说多年来他一直在掩盖一些东西，有一个自我，有他生活中的破坏性行为，他一直在掩盖它，他一直在隐藏它，但它已经出现，但他仍然不会看到它，请过来这里，告诉他他在做什么，所以你过去了，你坐下并听了这个故事，你怎样开始说话，你说什么，你的语言是什么，你说你看不出吗，你看不出你在对自己做什么，这很清楚，每个人都能说，你在杀死自己，你怎样能这样做，你不明白吗，你必须明白它，你必须看到，这就是你说话的方式，这就是对一个被欺骗的亲爱人的干预语言，你看不出吗，这就是神对我们使用的语言，他通过这个语言假设，想想吧，然后意识到，那是什么意思，想想，你没有在思考，意识到，你不明白它，你不看你的问题，你没有意识到你生活的邪恶和痛苦的根源是什么，你没有看到它，你不明白它，你必须看到它，这是对被欺骗的亲爱人的干预和恳求的语言，换句话说，我们从这节经文学到什么，我们从这段经文学到什么，我们从圣经学到什么，我们问题的根源是罪总是伴随的否认的力场，让我用几种不同的方式说，成为一个罪人不是致命的，根据圣经，成为一个罪人不是致命的，是否认你是罪人这是致命的，我的意思是，让我们看看最明显的，你知道，这很明显，我已经在某种意义上暗示了最明显的平行，成为酒鬼不是致命的，是吗，许多酒鬼过着富有成效的生活，什么是致命的，一个酒鬼被否认这是可怕的，而我们也知道关于酒精滥用的邪恶有什么东西，这是什么，有一个邪恶，关于它的本质有什么东西会产生一个否认的力场，不是吗？好吧，从某种意义上说，这只是一个比喻，在许多方面是一个非常小的比喻，只是一个黯淡的反映，神在这里说的是什么，神在说如果你生活中有邪恶和痛苦，如果你生活中没有邪恶和痛苦，你只是非常年轻，换句话说如果你有邪恶和痛苦，你只是等等，你知道，等等，对吧，你知道，我昨晚看了亚当斯一家的价值观，你知道，有小小的学院派女孩看着星期三，说，你为什么穿得像有葬礼一样，为什么你穿得像有人死了，她看着你只是等等，好吧，同样的想法，神说你的生活是邪恶和痛苦，你说你的生活不是邪恶和痛苦，神说只是等等，当你看到你生活中的邪恶和痛苦时，神说我们社会和人类的根本问题是我们不会承认我们是罪人，成为罪人没有什么致命的，神说有很多你可以做的，什么是致命的是否认你是，那是为什么它是邪恶和痛苦，因为你不想，因为你不实现，想想吧，实现吧，那是你必须做的事情，那是你必须看到的东西，如果我能，如果我能，有一个力场来自罪，你知道，老电台节目基于影子，一个学到的角色在东方云人的思想所以他们看不到他，它变成了一部电影，去年没有人去看，那就是，但整个想法是影子是一个使人的思想模糊的人，那就是罪是什么，罪是影子，**真正的影子，按其性质，罪需要否认，你将看不到程度和规模，哦是**的，我们，当然，我是一个人类，我空气，我有缺陷，这不是承认你是一个罪人，这不是承认你是一个无助的罪人，有，作为，多萝西·塞耶斯说，心里有一个激进的内部脱位，我们远离中心，因为我们以自己为中心，我们能够犯巨大的邪恶，我希望，如果我能做到，我会让每个人读 19 世纪末的诗人、哲学家和伟大思想家，大西洋两岸，你知道，在欧洲和这里，他们说了什么，他们正在摆脱基督教，他们正在摆脱宗教，他们正在摆脱他们认为是迷信的东西，他们说，哦是的，我们最后正在引入一个理性的政府方法，一个对贫困的理性方法，一个对人类的理性方法，我们已经摆脱了迷信，我们将看到不可思议的事情发生，你应该读这些东西，你将看到 20 世纪贫困的终结，我们将看到 20 世纪战争的终结，战争的终结，他们几乎都说这个，现在我们在哪里？
+
+---
+
+## 否认的历史例证 / Historical Examples of Denial
 
 What was their problem, denial? They, look, I mean, here are two great two terrific examples, I mean, there's just zillions of examples, you know, the HG Wells and WHO, and I love to quote them, you know, I hate to see the pain, but you see, years of, you know, they start off with this idea, we're not sinners, and by the end of their lives, after years of disillusionment, and years of brokenness, why? Because of the denial that we are sinners, filing the end there, brought kicking and screaming to the place where the Bible could have pointed to start with, years wasted over it.
 
@@ -45,6 +75,30 @@ It's always the other way around. At the end of their lives they're saying I've 
 What was the problem? What was the problem? It's not the economy stupid.
 
 It's sin. It's sin. We gotta move on.
+
+---
+
+他们的问题是什么，否认？他们，看，我的意思是，这里有两个很好的两个非常好的例子，我的意思是，有数不尽的例子，你知道，H.G. 威尔斯和谁，我喜欢引用他们，你知道，我讨厌看到痛苦，但你看，多年来，你知道，他们从这个想法开始，我们不是罪人，他们生活的尽头，多年的失望和多年的破碎后，为什么？因为我们是罪人的否认，归档末尾，被迫尖叫着来到圣经本来可以指向的地方，多年浪费在它上面。有一个女士，两个人在英国社会福利社会的重建基础的最前面，悉尼和比特丽斯·韦伯，两个伟大的人做了很多好事，但他们在他们自己的生活中摆脱了基督教。
+
+1890 年，比特丽斯·韦伯在她的日记中写了这个词，她说，我已经把一切押在人类本性的基本善良上。35 年后，在她的日记中，她提醒自己她在 1890 年说过什么，她引用了这个，她说，我已经把一切押在人类本性的基本善良上，但随后她说，我现在意识到邪恶的冲动和本能在我们身上是多么永久，市长的社会机制永远不会改变。她已经把整个生活都押在了这样的想法上，即社会机制会摆脱贫困，会摆脱暴力，会摆脱这些东西，因为我们本质上是好的，她生活的尽头。她想到的一件事应该是解决方案。
+
+她开始意识到，我现在看到，我现在知道，邪恶的本能和冲动在我们身上是多么永久。她给了她的整个生活给某种东西。圣经本来可以告诉她一开始，她是否认。更近期，一个叫欧内斯特·贝克的人，赢得了普利策奖，他是一个社会科学家。
+
+他写了两本关于邪恶的书。第一本关于邪恶的书是结构，他称之为邪恶的结构。在那本书中，他说世界上的真正问题，我们拥有贫困的原因，我们拥有战争的原因，我们拥有暴力的原因，是因为特权者通过压抑性社会结构压迫每个人，因此他说其社会科学适用于政府将处理邪恶。就在他去世后，他的最后一本书被出版了，叫做《逃离邪恶》，在序言中，你知道他说什么吗？
+
+他已经完全改变了，他说，我现在在这本书中首次正面看待人类。他说在我之前的作品中，我未能看到人类行为是多么真正邪恶，然后得到这个引述，这是我一直陷入的困境，以及许多其他试图保持活着的启蒙传统的人。这个巨大的问题现在需要一些第三种选择以外的官僚科学或绝望。你知道他在说什么吗？
+
+这是我整个人生中我想象官僚科学，这仅仅意味着社会科学应用更好的学校，立法，更好的监管，更好地对人们工作，你看社会科学适用于官僚机构，那会处理邪恶。现在我看到了第一次多年来面对我整个人生，我现在看到一定有某种第三种方式，因为官僚科学不会工作，我们不能只是绝望，什么是第三种方式？想想吧，意识到当你抛弃耶和华你的神并对我没有敬畏时，对你来说有多么邪恶和痛苦。换句话说，圣经说的是什么出了问题？
+
+什么出了问题？为什么要用你整个人生陷入否认，最后被迫尖叫着来到你永远看不到思想家开始说人类是渣滓的地方，最后他们说人类是令人惊讶的。永远不会发生，永远不会。它总是反过来。
+
+在他们人生的尽头，他们在说我已经以整体为基础，人们怎样会那么邪恶，人们怎样会那么邪恶？他们一直在否认。什么是问题？什么是问题？
+
+这不是经济，傻瓜。这是罪。这是罪。我们得继续前进。
+
+---
+
+## 实际应用：你在否认吗？ / Practical Applications: Are You in Denial?
 
 The first point is this. Sin by its nature entails denial of itself. Sin puts out a force field.
 
@@ -98,200 +152,9 @@ Drawing from a series of teachings given at Redeemer, Dr. Keller shows how the r
 
 This newly released book, What Is Wrong with the World, is our thanks for your gift this month to help gospel in life share the good news of Jesus. Request your copy today at gospelonlife.com slash give. That's gospelonlife.com slash give.
 
-Now here's Dr. Keller with the rest of today's teaching. Sin is denial, but secondly and mainly sin is not just denial in general.
-
-What is sin denial of? We said sin is a denial, but in particular, pardon me, God here tells us what the essence of sin is, what the nub of it is, what the heart of sin is. What is it?
-
-Well he says consider and realize how bitter, evil and bitter it is when you forsake me, but then he tells and he tells why they forsake and have no awe of me. Now this is the essence. This is the essence of sin.
-
-If you ask somebody what you know defines sin for me and they'll say well sins are breaking the rules, sins are breaking God's laws, if you believe in God, sins, that's what sins are. That's right, that's what sins are, but sin is a disposition, it's an attitude, it's a stance, it's a posture of the heart and Paul, and here I keep saying Paul, that's because I'm remembering other times. God in this passage says the heart of why you forsake him, the heart of why you sin, the reason you break the rules, the essence of it all, no awe.
-
-You have no awe of me. Let me show you why this is the whole thing, this is the heart of it all. The new international version that we're reading, this translation, the NIV translation, says you have no awe of me, but the word that's here is the word that's used throughout the Bible, and it's been most translations, it says you have no fear of me.
-
-Now one of the central themes of the Bible is the fear of the Lord, and all through the Bible there's all this talk about the fear of the Lord, and that's what God is saying, is the essence of sin. You do not have the fear of the Lord, well what does fear mean? Now here's the problem, in the Bible the word fear is used in two different ways, and we in our modern common use of the word only use it in one of those two ways.
-
-So first of all the Bible says there's a fear, in first John 4 it says there's a fear that hath torment. Now what does that mean? Well it's pretty simple.
-
-When we use the word fear we mean it in this way. Fear is the anticipation of pain. Fear is the anticipation of pain, but look how fear works.
-
-Fear means you suddenly get fixed on what's going to happen to you, and when you're paralyzed by fear you might say when you're in the grip of fear you are focusing on what is coming and everything is done in reference to it. See if you're afraid, in other words for example I'm not afraid of at least I'm not creeped out by insects, so if I see a spider or I see in New York a roach or something like that wandering around I'll say oh there it is, I don't like it. Somebody else might find, maybe it's irrational, they cannot sit and read a book in a room with a little roach running around.
-
-Why? They can't because they're afraid of it, okay? They're creeped out by it, it appalls them, it obsesses them which means they cannot do anything without reference to it, they can't forget it, it dominates everything they do, they can't get up and just you know have a cup of coffee, they can't read, they can't, they must deal with that roach.
-
-Why? That's what fear does. Fear absorbs you, it obsesses you with an object so that you cannot do anything except with reference to it, but then the Bible talks about a different kind of fear in Proverbs 28, 14, it says happy as the one who fears always, what?
-
-Happy as the one who fears always. We read Jeff used it for our words of encouragement, it says in Psalm 130 verse 4 because you've forgiven my sins, I fear you, what? And here's what's so interesting, there is when it comes to God something the Bible calls fear, it's a positive fear, not a negative fear, but you see why?
-
-You say, well why use the term? It's an inward awe before God, it's an inward condition of delight in the magnitude of who he is. You say, well why call that fear?
-
-You see what they have in common? Positive fear does not have torment. In negative fear you're totally absorbed in yourself.
-
-In positive fear you're blessedly free from thinking about yourself. In negative fear you're parallels, in positive fear you're empowered, but here's what they have in common. The fear of the Lord means he is absolutely central.
-
-You can do nothing without reference to him. No matter what you do, you say, how does this involve God? How does this affect my relationship with God?
-
-How does this relate to God? Because you see the magnitude of who he is and the greatness of who he is, and he is now utterly and absolutely central. There is nothing that you can possibly do or think without reference to his glory, his greatness, his love, his power.
-
-You see that? Now God says that's the essence of sin, that's the essence of everything. In other words God is so wise, God is getting beneath the violations.
-
-You say, well, you say sins are violating the law. When you lie, when you are selfish, when you're cruel, when you do these things, that's sin. Well, God says, but why would you ever do it?
-
-Why would you ever disobey? Why would you ever be cruel? Why would you ever lie?
-
-Why? And the answer is whenever you sin in a particular way, at that point, you are holding something in more awe than you are holding God in, something you find more wonderful than God, something more dynamic than God, something more captivating than God, something more awesome than God. You see?
-
-And that, at that point, is the reason why you sin. Let me apply this as we start to close up here. Let me apply this.
-
-Do you understand? First of all, let me apply it in a couple different ways. There's a number of ways.
-
-First of all, do you see, therefore, that there is no way, no way, that there can be halfway measures when it comes to God. God says, the essence of sin is to not have me smack center in the middle of your life, smack center in the middle of your thoughts. If you are a little religious, if you are a little moral, if you are kind of religious, in other words, you can't have a God at times, you can't have a God as a vitamin supplement.
-
-Years ago, a lady was teaching, I've never forgotten what she said. A lady was teaching at a Christian conference and she said, if the distance from the earth to the sun, that 93 million miles was just the thickness of one sheet of paper. Do you know that the distance from the earth to the nearest star would be a stack of paper 70 feet high?
-
-Do you know that just the diameter of our galaxy would be a stack of paper 310 miles high? Do you realize there's trillions and trillions and trillions of galaxies that we know of? And do you know that if there is a creator God, that creator God holds it all together with the word of his power?
-
-Now, she said, if he's there at all, how can you possibly ask a person like that, a God like that into your life at times to come what he's called as an assistant, as a way of getting you over the hump? Don't you see why sin is denial? Sin is denial in its essence because it's to be out of touch with reality.
-
-If there's a God at all, how can you relate to him in any other way than with, unless you relate to him with complete and utter and unconditional devotion? That's the reason why Paul says in Romans, I finally got one for Paul. Paul says in Romans 12 verse 1, in the Old King James, it's rendered this way, make yourself living sacrifices to God, which is your reasonable service.
-
-Sin is irrational. Either there's a God, but if there is a God, we'll get to this and say, if there is a God, he must be central. He must be someone from whom you can do nothing without reference.
-
-You have to do everything with reference to him, everything. There's never an area of your life where you can say, well, you know, you don't even think about what would God say about that. What does God say about that?
-
-Never. Do you understand that? Oh, your problem, the reason your life is so evil and bitter, there's no awe.
-
-Let me give you another application, intellectually, intellectually. You know, when the Bible says that a lack of centrality of God is not only the cause of all of our personal problems, but it's the cause of all our intellectual problems. In a place like Manhattan, I ought to say something about this.
-
-So many of your students, scholars, thinkers, counselors, God says the fear of the Lord is the beginning of wisdom, is the beginning of wisdom, unless God is obsessively in the center of your intellectual scheme. If here's what's so interesting about this verse, don't you see how evil and bitter it is for you when you forsake me? If you don't have awe before God, it's not just that you're trampling on his glory, you're trampling on your glory.
-
-If you don't understand God, you won't understand yourself. Stephen Gould teaches at Harvard, doesn't believe in God. As a result, he says, what everybody has to say, who doesn't believe in God.
-
-He says, why are we here? We are here because one odd group of fish had a peculiar anatomy that could transform into legs. We may yearn for a higher answer, but there is none.
-
-We cannot read meaning in life into the facts of nature. Now, here's what he's saying. Take out God.
-
-There's no awe of God, then there's no awe before yourself. If God has no glory, you have no glory. You're a meaningless animal.
-
-There's no higher answer to that. And you know what you're left with? You're left with a senseless life.
-
-You know why? Because you're left with an incredible discrepancy between how you feel and how you operate and what you must be. You must be a meaningless animal.
-
-When you're in love with somebody, you sit down and you never say as you're kissing him or kissing her. You never say, this is just neurochemistry. There's no such thing as love.
-
-I'm just an animal. This is the way my brain is working. But that's the case.
-
-Unless there's a God. If you have no awe of God, it is evil and bitter for you. If there's no awe of God in your thinking, there can be no wonder or awe before the idea of love.
-
-Love is nothing. It's just neurochemistry. As soon as you think of the idea of good and bad, do you believe there's some things that are really wrong?
-
-Have you seen things? Have you heard of things? Have you read of things that you say that's really wrong?
-
-Not if there's no God. That's just a social construction. That's nothing but culture.
-
-No. Don't you see? Nothing matters.
-
-There is nothing awesome. There is nothing wonderful unless God is wonderful. The fear of the Lord is the beginning of wisdom.
-
-If you have no awe of me, you will have no awe of anything. You won't have any awe of yourself. The doctrine of sin, they say, is pessimistic.
-
-You're kidding me? If you don't have the doctrine of sin, there's despair, there's nothing else. Don't you consider and realize how evil and bitter it is for you when you forsake me and have no awe of me?
-
-All your personal problems come because God is not central in your life. All of our intellectual problems come because God is not central in our thinking. And here, lastly, dear friends, Christian friends, I want you to think about this.
-
-All of your self-control problems are coming because God is not central. You say, how could that be? Well, it's pretty simple.
-
-Are you having trouble with worry? Are you having trouble with self-pity? Are you having trouble with guilt?
-
-Whatever you're having trouble with, just see it in these terms. When you worry, you are in more in awe of the power of some factor than you are in the power of God. When you're guilty, you're more in awe of the power of your sin than you are in the magnitude of his grace, the power of his grace.
-
-When you're in self-pity, you're more in awe of some great benefit which you've lost than you are in his mercies. When you are sure that everything's going wrong in your life, you're more in awe of your own wisdom than you are of his wisdom at the moment. And therefore, do you know what you need?
-
-That's the reason why the psalmist says, the fear of the Lord is clean. There's nothing that cleans you out like this. When you sit down, you don't just study your Bible just to get a little knowledge.
-
-When you come to church, I hope you're not just coming to get wisdom. You need to see God. The fear of the Lord, awe, you need to actually say, oh Holy Spirit, open my eyes so I see the awesomeness because your worries are gone when you see him as more awesome than any factor in your life.
-
-Your guilt is gone when you see his grace is more awesome than any sin in your life. Your self-pity is gone when you see his mercies is more awesome than any missing factor in your life. Your anger is gone when you see God's wisdom is more awesome than any of your wisdom and any of your little agendas for your life.
-
-You need more than anything else to see him. Say, oh Holy Spirit, magnify him. Let his glory be known.
-
-You need to wrestle until you see him, until you feel it's possible. The Bible says you can have access to him. You need that.
-
-Whatever your problem is tonight, today, whatever your problem is this week, whatever your problem is, it can be cleaned with the fear of the Lord. No matter how defiled your ark can be cleaned. If you go to him and you say it has been evil and bitter for me, I've denied you and I've denied your centrality.
-
-Do you know what he'll say? He'll say, of course I'll have you. Of course I'll have you.
-
-And if you don't do that, if you come out of this saying, well, I'm so wicked and I'm so evil and I'm so bad, that why would God have me? Here's the one thing that you're not in awe enough about, his grace. Up in verse 6, and over and over and over again throughout the whole passage, he says, nobody says where is the Lord who brought us up out of Egypt?
-
-You know what he's saying? He's saying, think about me. You know why you don't obey me?
-
-You know why you don't make me central. You don't trust my love. You don't trust my grace.
-
-He says, remember the Exodus. Think about it for a minute. Remember the fact I didn't give you the law in Egypt and then said, now if you obey that, I'll bring you out.
-
-I brought you out first and then I gave you the law later. I'm a God of grace. So why in the world are you afraid to make me central?
-
-I know why he says, you feel like you'll lose your freedom. You'll lose your joy. You see, you won't be free.
-
-You won't have your options. If I obey and make God central, I will be limited in some way. God says, why don't you say where is that gracious God who brought us up?
-
-Where is that gracious God who operates by grace? And that's the reason why here I say to you, unless you are ultimately in awe of his grace, not just in awe, you can't say, I should stop sinning or God will get me. You should say, I should stop sinning because here's the gracious God who brought me out, who brought me up.
-
-So if you go to him and say, my life is evil and bitter because I've been living and denial at him a sinner and I've been living, especially in denial of your centrality and greatness. What will God say? I am the one who brought you up.
-
-I am a gracious God. Of course, I'll take you back. I sent my son to live your life and to die your death.
-
-That's how I bring people up out of Egypt now. That's how I bring people out without the law, but strictly through grace. That's why I bring you up and put your sins away because Christ fulfilled the law.
-
-Consider and realize it is evil and bitter for you if you are not in awe of my grace and mercy. So, this is the solution to all your problems personally. This is the solution to our society's problems.
-
-This is the solution. God says, this is what's wrong with you. It's not the economy's due, but it's sin and it's the best news I can give you.
-
-Let's pray. Father, we thank you that it's now possible for us to know what's really been available to be known for thousands of years, but people continually turn away from it. They continually deny it.
-
-We realize, Father, that we have to cut through our own force field of denial to see your greatness and your reality. We pray, Father, that you would show us your love and your grace so that we will trust ourselves to put you first. We ask, Father, that you would show us how we can solve our individual problems by seeking your fear and seeking your awe and seeing your awesomeness.
-
-Apply these truths to our lives through your Holy Spirit. We ask it in Jesus name. Amen.
-
-Thanks for joining us here on the Gospel Unliked Podcast. We hope that today's teaching encouraged you to go deeper into God's Word. You can help others discover this podcast by rating and reviewing it and to find more great Gospel-centered content by Tim Keller, visit GospelUnliked.com.
-
-Today's sermon was recorded in 1995. The sermons and talks you hear on the Gospel Unliked Podcast were recorded between 1989 and 2017, while Dr.
+Now here's Dr. Keller with the rest of today's teaching.
 
 ---
-
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《福音与生活》。你不必仔细观察就能看到有些东西深深地出了问题，无论是在我们的世界还是在我们身上。但有没有一个能达到根源的答案？在今天的信息中，提摩太·凯勒通过圣经中的故事探索人类状况，揭示了经文关于罪的含义，以及为什么这是唯一足够深刻能够面对我们真实自我的解释。
-
-今天上午的教学基于耶利米书中的这段经文。我将读第 2 章，以及那里印刷的，第 2 到 13 节和第 19 节。耶利米是神在他们的民族和文化完全崩溃之前派遣给犹大人民的最后一位先知。他们被入侵，被掳到流放中，耶利米书在某种意义上是神通过先知耶利米给人民的一系列讲道。
-
-这是耶利米试图向犹大人民展示他们出了什么问题的所有伟大讲道中的第一个，为什么他们的生活在崩溃，为什么他们的文化在崩溃，为什么他们的心灵在崩溃，为什么他们的家庭在崩溃。让我从这里的顶部开始读，第 2 节，我记得你年轻时的奉献，你如何像新娘一样爱我，跟随我穿过沙漠，穿过一个未播种的土地。以色列对耶和华是圣的，是他收获的初熟果子，凡吞噬她的人都被定为有罪，灾祸降在他们身上，耶和华宣称。听耶和华的话，哦雅各家族，以色列家族的所有宗族。
-
-这是耶和华说的。你的列祖在我身上找到了什么过错，以至于他们离我那么远？他们跟随了毫无价值的偶像，自己也变成了毫无价值的。他们没有问，耶和华在哪里，他从埃及带我们出来，引领我们穿过贫瘠的荒野，穿过沙漠和裂隙之地，一个干旱和黑暗的土地，一个无人旅行、无人居住的土地。
-
-我带你进入一个肥沃的土地，吃它的果实和丰富的产物，但你进入了我的田地，玷污了我的产业。祭司没有问，耶和华在哪里？那些处理律法的人不认识我，领导者反叛我，先知通过贝尔预言，追随毫无价值的偶像。因此，我再次对你提出指控，耶和华宣称，我也将对你的孩子的孩子们提出指控。
-
-越过基提曼海岸，看，发送一只驴鹰并仔细观察，看，是否曾经有过这样的事情，一个民族是否曾改变过它的神，虽然它们根本不是神，但我的人民用毫无价值的偶像交换了他们的荣耀。对此感到震惊，哦天堂，怀着巨大的恐怖颤抖，耶和华宣称，我的人民犯了两个罪，他们抛弃了我，活水的源泉，并挖了他们自己的姐妹，破碎的姐妹，无法盛水。你的邪恶会惩罚你，你的背弃会谴责你，然后想想并意识到当你抛弃耶和华你的神并对我没有敬畏时，对你来说是多么邪恶和痛苦的。耶和华，万军之耶和华宣称。
-
-这是神的话。从今天开始，延伸大约三个月，一直到复活节，复活节大约在三个月外，我们将进行一系列关于罪的主题的教学，它是什么，它如何运作，它的影响是什么，什么样，什么类型，我们从这周开始，你会在下周再看到我们，耶利米的这第一个讲道给以色列人民，因为他们在对自己说，他们在说他们在呼喊说，我们出了什么问题，事情为什么在崩溃，什么出了问题，你知道，有趣的是，在每次选举后似乎都是这样，现在每个人都被赶了出来，新人被带进来，报纸在说，为什么每个人都不高兴，我们出了什么问题，实际上每个人都在说，什么出了问题，发生了什么，好吧，以色列人民在问那个问题，神来了并说，让我告诉你你出了什么问题，他给了他们一个关于罪的讲道，罪的本质，品格，罪的特征，当我们看这个的时候，有趣的是，我感觉它像一个巨大的讲道，这是最后的 37 节经文，但它真的在第 19 节被总结了，在某种意义上它的总结在第 19 节，有几个总结，但我主要会看那个。我们从这段经文中学到了关于罪的本质、定义，你可能会说，特征，罪的品格，这就是它们，首先，我们从这段经文和从耶和华那里学到，罪的本质是否认，罪是否认，看，看他使用的语言，然后想想并意识到对你来说是多么邪恶和痛苦，看到那个，然后想想并意识到对你来说是多么邪恶和痛苦，你知道这个语言是什么，这是干预语言，你知道你有一个朋友给你打电话，比如说，一个朋友的妻子给你打电话，她说多年来他一直在掩盖一些东西，有一个自我，有他生活中的破坏性行为，他一直在掩盖它，他一直在隐藏它，但它已经出现，但他仍然不会看到它，请过来这里，告诉他他在做什么，所以你过去了，你坐下并听了这个故事，你怎样开始说话，你说什么，你的语言是什么，你说你看不出吗，你看不出你在对自己做什么，这很清楚，每个人都能说，你在杀死自己，你怎样能这样做，你不明白吗，你必须明白它，你必须看到，这就是你说话的方式，这就是对一个被欺骗的亲爱人的干预语言，你看不出吗，这就是神对我们使用的语言，他通过这个语言假设，想想吧，然后意识到，那是什么意思，想想，你没有在思考，意识到，你不明白它，你不看你的问题，你没有意识到你生活的邪恶和痛苦的根源是什么，你没有看到它，你不明白它，你必须看到它，这是对被欺骗的亲爱人的干预和恳求的语言，换句话说，我们从这节经文学到什么，我们从这段经文学到什么，我们从圣经学到什么，我们问题的根源是罪总是伴随的否认的力场，让我用几种不同的方式说，成为一个罪人不是致命的，根据圣经，成为一个罪人不是致命的，是否认你是罪人这是致命的，我的意思是，让我们看看最明显的，你知道，这很明显，我已经在某种意义上暗示了最明显的平行，成为酒鬼不是致命的，是吗，许多酒鬼过着富有成效的生活，什么是致命的，一个酒鬼被否认这是可怕的，而我们也知道关于酒精滥用的邪恶有什么东西，这是什么，有一个邪恶，关于它的本质有什么东西会产生一个否认的力场，不是吗？好吧，从某种意义上说，这只是一个比喻，在许多方面是一个非常小的比喻，只是一个黯淡的反映，神在这里说的是什么，神在说如果你生活中有邪恶和痛苦，如果你生活中没有邪恶和痛苦，你只是非常年轻，换句话说如果你有邪恶和痛苦，你只是等等，你知道，等等，对吧，你知道，我昨晚看了亚当斯一家的价值观，你知道，有小小的学院派女孩看着星期三，说，你为什么穿得像有葬礼一样，为什么你穿得像有人死了，她看着你只是等等，好吧，同样的想法，神说你的生活是邪恶和痛苦，你说你的生活不是邪恶和痛苦，神说只是等等，当你看到你生活中的邪恶和痛苦时，神说我们社会和人类的根本问题是我们不会承认我们是罪人，成为罪人没有什么致命的，神说有很多你可以做的，什么是致命的是否认你是，那是为什么它是邪恶和痛苦，因为你不想，因为你不实现，想想吧，实现吧，那是你必须做的事情，那是你必须看到的东西，如果我能，如果我能，有一个力场来自罪，你知道，老电台节目基于影子，一个学到的角色在东方云人的思想所以他们看不到他，它变成了一部电影，去年没有人去看，那就是，但整个想法是影子是一个使人的思想模糊的人，那就是罪是什么，罪是影子，**真正的影子，按其性质，罪需要否认，你将看不到程度和规模，哦是**的，我们，当然，我是一个人类，我空气，我有缺陷，这不是承认你是一个罪人，这不是承认你是一个无助的罪人，有，作为，多萝西·塞耶斯说，心里有一个激进的内部脱位，我们远离中心，因为我们以自己为中心，我们能够犯巨大的邪恶，我希望，如果我能做到，我会让每个人读 19 世纪末的诗人、哲学家和伟大思想家，大西洋两岸，你知道，在欧洲和这里，他们说了什么，他们正在摆脱基督教，他们正在摆脱宗教，他们正在摆脱他们认为是迷信的东西，他们说，哦是的，我们最后正在引入一个理性的政府方法，一个对贫困的理性方法，一个对人类的理性方法，我们已经摆脱了迷信，我们将看到不可思议的事情发生，你应该读这些东西，你将看到 20 世纪贫困的终结，我们将看到 20 世纪战争的终结，战争的终结，他们几乎都说这个，现在我们在哪里？
-
-他们的问题是什么，否认？他们，看，我的意思是，这里有两个很好的两个非常好的例子，我的意思是，有数不尽的例子，你知道，H.G. 威尔斯和谁，我喜欢引用他们，你知道，我讨厌看到痛苦，但你看，多年来，你知道，他们从这个想法开始，我们不是罪人，他们生活的尽头，多年的失望和多年的破碎后，为什么？因为我们是罪人的否认，归档末尾，被迫尖叫着来到圣经本来可以指向的地方，多年浪费在它上面。有一个女士，两个人在英国社会福利社会的重建基础的最前面，悉尼和比特丽斯·韦伯，两个伟大的人做了很多好事，但他们在他们自己的生活中摆脱了基督教。
-
-1890 年，比特丽斯·韦伯在她的日记中写了这个词，她说，我已经把一切押在人类本性的基本善良上。35 年后，在她的日记中，她提醒自己她在 1890 年说过什么，她引用了这个，她说，我已经把一切押在人类本性的基本善良上，但随后她说，我现在意识到邪恶的冲动和本能在我们身上是多么永久，市长的社会机制永远不会改变。她已经把整个生活都押在了这样的想法上，即社会机制会摆脱贫困，会摆脱暴力，会摆脱这些东西，因为我们本质上是好的，她生活的尽头。她想到的一件事应该是解决方案。
-
-她开始意识到，我现在看到，我现在知道，邪恶的本能和冲动在我们身上是多么永久。她给了她的整个生活给某种东西。圣经本来可以告诉她一开始，她是否认。更近期，一个叫欧内斯特·贝克的人，赢得了普利策奖，他是一个社会科学家。
-
-他写了两本关于邪恶的书。第一本关于邪恶的书是结构，他称之为邪恶的结构。在那本书中，他说世界上的真正问题，我们拥有贫困的原因，我们拥有战争的原因，我们拥有暴力的原因，是因为特权者通过压抑性社会结构压迫每个人，因此他说其社会科学适用于政府将处理邪恶。就在他去世后，他的最后一本书被出版了，叫做《逃离邪恶》，在序言中，你知道他说什么吗？
-
-他已经完全改变了，他说，我现在在这本书中首次正面看待人类。他说在我之前的作品中，我未能看到人类行为是多么真正邪恶，然后得到这个引述，这是我一直陷入的困境，以及许多其他试图保持活着的启蒙传统的人。这个巨大的问题现在需要一些第三种选择以外的官僚科学或绝望。你知道他在说什么吗？
-
-这是我整个人生中我想象官僚科学，这仅仅意味着社会科学应用更好的学校，立法，更好的监管，更好地对人们工作，你看社会科学适用于官僚机构，那会处理邪恶。现在我看到了第一次多年来面对我整个人生，我现在看到一定有某种第三种方式，因为官僚科学不会工作，我们不能只是绝望，什么是第三种方式？想想吧，意识到当你抛弃耶和华你的神并对我没有敬畏时，对你来说有多么邪恶和痛苦。换句话说，圣经说的是什么出了问题？
-
-什么出了问题？为什么要用你整个人生陷入否认，最后被迫尖叫着来到你永远看不到思想家开始说人类是渣滓的地方，最后他们说人类是令人惊讶的。永远不会发生，永远不会。它总是反过来。
-
-在他们人生的尽头，他们在说我已经以整体为基础，人们怎样会那么邪恶，人们怎样会那么邪恶？他们一直在否认。什么是问题？什么是问题？
-
-这不是经济，傻瓜。这是罪。这是罪。我们得继续前进。
 
 第一点是这个。罪的本质需要对自己的否认。罪产生一个力场。罪是否认我们是罪人。
 
@@ -331,13 +194,73 @@ Today's sermon was recorded in 1995. The sermons and talks you hear on the Gospe
 
 提摩太·凯勒提供了一个清晰和同情的答案。从一系列在救赎教堂给出的教学中汲取灵感，凯勒博士展示了罪的现实如何解释我们周围看到的痛苦，以及只有福音才能提供持久的自由和治愈。无论你是否被我们的世界状态所淹没，在你自己的错误或选择中挣扎，或在寻找希望和喜乐，世界出了什么问题都将帮助你看到福音如何说话，对我们世界的心碎和我们每个人身上的痛苦。这个新发布的书，《世界出了什么问题》，是你这个月对帮助福音与生活分享耶稣好消息的礼物的感谢。
 
-请求你的副本今天在 gospelonlife.com-slash-give.那是 gospelonlife.com-slash-give.现在这是凯勒博士对今天教学的其余部分。罪是否认，但其次，主要是罪不仅仅是一般的否认。罪是什么的否认？我们说罪是一种否认，但特别是，请原谅我，神在这里告诉我们，罪的本质是什么，它的要点是什么，它的心是什么。
+请求你的副本今天在 gospelonlife.com-slash-give.那是 gospelonlife.com-slash-give.现在这是凯勒博士对今天教学的其余部分。
+
+---
+
+## 罪的核心：对神没有敬畏 / The Essence of Sin: No Awe of God
+
+Sin is denial, but secondly and mainly sin is not just denial in general.
+
+What is sin denial of? We said sin is a denial, but in particular, pardon me, God here tells us what the essence of sin is, what the nub of it is, what the heart of sin is. What is it?
+
+Well he says consider and realize how bitter, evil and bitter it is when you forsake me, but then he tells and he tells why they forsake and have no awe of me. Now this is the essence. This is the essence of sin.
+
+If you ask somebody what you know defines sin for me and they'll say well sins are breaking the rules, sins are breaking God's laws, if you believe in God, sins, that's what sins are. That's right, that's what sins are, but sin is a disposition, it's an attitude, it's a stance, it's a posture of the heart and Paul, and here I keep saying Paul, that's because I'm remembering other times. God in this passage says the heart of why you forsake him, the heart of why you sin, the reason you break the rules, the essence of it all, no awe.
+
+You have no awe of me. Let me show you why this is the whole thing, this is the heart of it all. The new international version that we're reading, this translation, the NIV translation, says you have no awe of me, but the word that's here is the word that's used throughout the Bible, and it's been most translations, it says you have no fear of me.
+
+---
+
+罪是否认，但其次，主要是罪不仅仅是一般的否认。罪是什么的否认？我们说罪是一种否认，但特别是，请原谅我，神在这里告诉我们，罪的本质是什么，它的要点是什么，它的心是什么。
 
 这是什么？好吧，他说想想，意识到当你抛弃我时，它对你有多么邪恶和痛苦，但后来他告诉，他告诉为什么他们抛弃了，没有对我的敬畏。现在这是本质。这是罪的本质。
 
 如果你问某人什么是你知道的定义罪对我来说，他们会说，好吧，罪在破坏规则，罪在破坏神的律法，如果你相信神，那就是罪。这是正确的，那就是罪是什么，但罪是一种性质，它是一种态度，它是一种立场，它是心的姿态，保罗，这里我一直在说保罗，那是因为我记得其他次。神在这段经文中说心为什么你抛弃他，心为什么你犯罪，为什么你破坏规则，本质是什么，没有敬畏。你对我没有敬畏。
 
 让我向你展示为什么这是整个事情，这是所有的心。新国际版本，我们正在阅读这个翻译，新国际版本翻译，说你对我没有敬畏，但这里使用的词是在整本圣经中使用的词，大多数翻译中，它说你对我没有恐惧。现在圣经的一个中心主题是对主的恐惧，整个圣经中都有这种关于对主的恐惧的说法，那是神在说的，是罪的本质。你没有对主的恐惧，好吧，恐惧是什么意思？
+
+---
+
+## 两种恐惧：折磨与敬畏 / Two Kinds of Fear: Torment vs. Awe
+
+Now one of the central themes of the Bible is the fear of the Lord, and all through the Bible there's all this talk about the fear of the Lord, and that's what God is saying, is the essence of sin. You do not have the fear of the Lord, well what does fear mean? Now here's the problem, in the Bible the word fear is used in two different ways, and we in our modern common use of the word only use it in one of those two ways.
+
+So first of all the Bible says there's a fear, in first John 4 it says there's a fear that hath torment. Now what does that mean? Well it's pretty simple.
+
+When we use the word fear we mean it in this way. Fear is the anticipation of pain. Fear is the anticipation of pain, but look how fear works.
+
+Fear means you suddenly get fixed on what's going to happen to you, and when you're paralyzed by fear you might say when you're in the grip of fear you are focusing on what is coming and everything is done in reference to it. See if you're afraid, in other words for example I'm not afraid of at least I'm not creeped out by insects, so if I see a spider or I see in New York a roach or something like that wandering around I'll say oh there it is, I don't like it. Somebody else might find, maybe it's irrational, they cannot sit and read a book in a room with a little roach running around.
+
+Why? They can't because they're afraid of it, okay? They're creeped out by it, it appalls them, it obsesses them which means they cannot do anything without reference to it, they can't forget it, it dominates everything they do, they can't get up and just you know have a cup of coffee, they can't read, they can't, they must deal with that roach.
+
+Why? That's what fear does. Fear absorbs you, it obsesses you with an object so that you cannot do anything except with reference to it, but then the Bible talks about a different kind of fear in Proverbs 28, 14, it says happy as the one who fears always, what?
+
+Happy as the one who fears always. We read Jeff used it for our words of encouragement, it says in Psalm 130 verse 4 because you've forgiven my sins, I fear you, what? And here's what's so interesting, there is when it comes to God something the Bible calls fear, it's a positive fear, not a negative fear, but you see why?
+
+You say, well why use the term? It's an inward awe before God, it's an inward condition of delight in the magnitude of who he is. You say, well why call that fear?
+
+You see what they have in common? Positive fear does not have torment. In negative fear you're totally absorbed in yourself.
+
+In positive fear you're blessedly free from thinking about yourself. In negative fear you're parallels, in positive fear you're empowered, but here's what they have in common. The fear of the Lord means he is absolutely central.
+
+You can do nothing without reference to him. No matter what you do, you say, how does this involve God? How does this affect my relationship with God?
+
+How does this relate to God? Because you see the magnitude of who he is and the greatness of who he is, and he is now utterly and absolutely central. There is nothing that you can possibly do or think without reference to his glory, his greatness, his love, his power.
+
+You see that? Now God says that's the essence of sin, that's the essence of everything. In other words God is so wise, God is getting beneath the violations.
+
+You say, well, you say sins are violating the law. When you lie, when you are selfish, when you're cruel, when you do these things, that's sin. Well, God says, but why would you ever do it?
+
+Why would you ever disobey? Why would you ever be cruel? Why would you ever lie?
+
+Why? And the answer is whenever you sin in a particular way, at that point, you are holding something in more awe than you are holding God in, something you find more wonderful than God, something more dynamic than God, something more captivating than God, something more awesome than God. You see?
+
+And that, at that point, is the reason why you sin. Let me apply this as we start to close up here. Let me apply this.
+
+Do you understand? First of all, let me apply it in a couple different ways. There's a number of ways.
+
+---
 
 现在这是问题，在圣经中，这个词恐惧以两种不同的方式使用，在我们现代常见的词的使用中，我们只以两种方式中的一种使用它。所以首先，圣经说有一个恐惧，在第一约翰 4 中，它说有一个恐惧，有折磨。现在那是什么意思？好吧，这很简单。
 
@@ -365,6 +288,28 @@ Today's sermon was recorded in 1995. The sermons and talks you hear on the Gospe
 
 让我申请这个。你明白吗？首先，让我以几种不同的方式应用它。有许多方式。
 
+---
+
+## 对神不能有中间立场 / No Halfway Measures with God
+
+First of all, do you see, therefore, that there is no way, no way, that there can be halfway measures when it comes to God. God says, the essence of sin is to not have me smack center in the middle of your life, smack center in the middle of your thoughts. If you are a little religious, if you are a little moral, if you are kind of religious, in other words, you can't have a God at times, you can't have a God as a vitamin supplement.
+
+Years ago, a lady was teaching, I've never forgotten what she said. A lady was teaching at a Christian conference and she said, if the distance from the earth to the sun, that 93 million miles was just the thickness of one sheet of paper. Do you know that the distance from the earth to the nearest star would be a stack of paper 70 feet high?
+
+Do you know that just the diameter of our galaxy would be a stack of paper 310 miles high? Do you realize there's trillions and trillions and trillions of galaxies that we know of? And do you know that if there is a creator God, that creator God holds it all together with the word of his power?
+
+Now, she said, if he's there at all, how can you possibly ask a person like that, a God like that into your life at times to come what he's called as an assistant, as a way of getting you over the hump? Don't you see why sin is denial? Sin is denial in its essence because it's to be out of touch with reality.
+
+If there's a God at all, how can you relate to him in any other way than with, unless you relate to him with complete and utter and unconditional devotion? That's the reason why Paul says in Romans, I finally got one for Paul. Paul says in Romans 12 verse 1, in the Old King James, it's rendered this way, make yourself living sacrifices to God, which is your reasonable service.
+
+Sin is irrational. Either there's a God, but if there is a God, we'll get to this and say, if there is a God, he must be central. He must be someone from whom you can do nothing without reference.
+
+You have to do everything with reference to him, everything. There's never an area of your life where you can say, well, you know, you don't even think about what would God say about that. What does God say about that?
+
+Never. Do you understand that? Oh, your problem, the reason your life is so evil and bitter, there's no awe.
+
+---
+
 首先，你看，因此，没有办法，根本没有办法，当涉及到神时，可能有中间措施。神说，罪的本质是不让我在你生活的中间、中间在你的思想的中间、中间被排斥。如果你是一个小宗教，如果你是一个小道德，如果你有点宗教，换句话说，你不能有时有神，你不能有神作为维生素补充剂。多年前，一位女士正在教学，我从来没有忘记她说的话。
 
 一位女士在一个基督教会议上教学，她说，如果地球到太阳的距离，那 9300 万英里只是一张纸的厚度。你知道从地球到最近的星星的距离吗，那会是 70 英尺高的一堆纸吗？你知道我们星系的直径吗，会是 310 英里高的一堆纸吗？你意识到我们知道有万亿万亿万亿个星系吗？
@@ -376,6 +321,50 @@ Today's sermon was recorded in 1995. The sermons and talks you hear on the Gospe
 要么有一个神，但如果有一个神，我们会到达这个，说，如果有一个神，他必须是中心。他必须是某人，你无法在没有参考的情况下做任何事情。你必须用对他的参考做一切，一切。你生活中没有地方，你可以说，好吧，你知道，你甚至不认为神会对那说什么。
 
 神对那说什么？永不。你理解吗？哦，你的问题，你的人生这么邪恶和痛苦的原因，没有敬畏。
+
+---
+
+## 没有敬畏就没有意义 / Without Awe of God, Nothing Has Meaning
+
+Let me give you another application, intellectually, intellectually. You know, when the Bible says that a lack of centrality of God is not only the cause of all of our personal problems, but it's the cause of all our intellectual problems. In a place like Manhattan, I ought to say something about this.
+
+So many of your students, scholars, thinkers, counselors, God says the fear of the Lord is the beginning of wisdom, is the beginning of wisdom, unless God is obsessively in the center of your intellectual scheme. If here's what's so interesting about this verse, don't you see how evil and bitter it is for you when you forsake me? If you don't have awe before God, it's not just that you're trampling on his glory, you're trampling on your glory.
+
+If you don't understand God, you won't understand yourself. Stephen Gould teaches at Harvard, doesn't believe in God. As a result, he says, what everybody has to say, who doesn't believe in God.
+
+He says, why are we here? We are here because one odd group of fish had a peculiar anatomy that could transform into legs. We may yearn for a higher answer, but there is none.
+
+We cannot read meaning in life into the facts of nature. Now, here's what he's saying. Take out God.
+
+There's no awe of God, then there's no awe before yourself. If God has no glory, you have no glory. You're a meaningless animal.
+
+There's no higher answer to that. And you know what you're left with? You're left with a senseless life.
+
+You know why? Because you're left with an incredible discrepancy between how you feel and how you operate and what you must be. You must be a meaningless animal.
+
+When you're in love with somebody, you sit down and you never say as you're kissing him or kissing her. You never say, this is just neurochemistry. There's no such thing as love.
+
+I'm just an animal. This is the way my brain is working. But that's the case.
+
+Unless there's a God. If you have no awe of God, it is evil and bitter for you. If there's no awe of God in your thinking, there can be no wonder or awe before the idea of love.
+
+Love is nothing. It's just neurochemistry. As soon as you think of the idea of good and bad, do you believe there's some things that are really wrong?
+
+Have you seen things? Have you heard of things? Have you read of things that you say that's really wrong?
+
+Not if there's no God. That's just a social construction. That's nothing but culture.
+
+No. Don't you see? Nothing matters.
+
+There is nothing awesome. There is nothing wonderful unless God is wonderful. The fear of the Lord is the beginning of wisdom.
+
+If you have no awe of me, you will have no awe of anything. You won't have any awe of yourself. The doctrine of sin, they say, is pessimistic.
+
+You're kidding me? If you don't have the doctrine of sin, there's despair, there's nothing else. Don't you consider and realize how evil and bitter it is for you when you forsake me and have no awe of me?
+
+All your personal problems come because God is not central in your life. All of our intellectual problems come because God is not central in our thinking. And here, lastly, dear friends, Christian friends, I want you to think about this.
+
+---
 
 让我给你另一个应用，在智力上，在智力上。你知道，当圣经说缺乏神的中心不仅是所有我们个人问题的原因，而且是所有我们智力问题的原因。在曼哈顿这样的地方，我应该对此说点什么。你们中的许多学生、学者、思想家、顾问，神说对主的恐惧是智慧的开始，是智慧的开始，除非神被强迫在你智力计划的中心。
 
@@ -405,7 +394,37 @@ Today's sermon was recorded in 1995. The sermons and talks you hear on the Gospe
 
 如果你没有罪的教义，就有绝望，还有什么别的。你不考虑，当你抛弃我和对我没有敬畏时，对你来说是多么邪恶和痛苦吗？所有你的个人问题出现，因为神不在你生活的中心。我们所有的智力问题出现，因为神不在我们思想的中心。
 
-最后，亲爱的朋友，基督徒朋友，我想要你对此进行思考。你所有的自我控制问题来了，因为神不在中心。你说，那怎样可能？好吧，这很简单。
+最后，亲爱的朋友，基督徒朋友，我想要你对此进行思考。
+
+---
+
+## 敬畏主洁净一切 / The Fear of the Lord Cleanses Everything
+
+All of your self-control problems are coming because God is not central. You say, how could that be? Well, it's pretty simple.
+
+Are you having trouble with worry? Are you having trouble with self-pity? Are you having trouble with guilt?
+
+Whatever you're having trouble with, just see it in these terms. When you worry, you are in more in awe of the power of some factor than you are in the power of God. When you're guilty, you're more in awe of the power of your sin than you are in the magnitude of his grace, the power of his grace.
+
+When you're in self-pity, you're more in awe of some great benefit which you've lost than you are in his mercies. When you are sure that everything's going wrong in your life, you're more in awe of your own wisdom than you are of his wisdom at the moment. And therefore, do you know what you need?
+
+That's the reason why the psalmist says, the fear of the Lord is clean. There's nothing that cleans you out like this. When you sit down, you don't just study your Bible just to get a little knowledge.
+
+When you come to church, I hope you're not just coming to get wisdom. You need to see God. The fear of the Lord, awe, you need to actually say, oh Holy Spirit, open my eyes so I see the awesomeness because your worries are gone when you see him as more awesome than any factor in your life.
+
+Your guilt is gone when you see his grace is more awesome than any sin in your life. Your self-pity is gone when you see his mercies is more awesome than any missing factor in your life. Your anger is gone when you see God's wisdom is more awesome than any of your wisdom and any of your little agendas for your life.
+
+You need more than anything else to see him. Say, oh Holy Spirit, magnify him. Let his glory be known.
+
+You need to wrestle until you see him, until you feel it's possible. The Bible says you can have access to him. You need that.
+
+Whatever your problem is tonight, today, whatever your problem is this week, whatever your problem is, it can be cleaned with the fear of the Lord. No matter how defiled your ark can be cleaned. If you go to him and you say it has been evil and bitter for me, I've denied you and I've denied your centrality.
+
+Do you know what he'll say? He'll say, of course I'll have you. Of course I'll have you.
+
+---
+
+你所有的自我控制问题来了，因为神不在中心。你说，那怎样可能？好吧，这很简单。
 
 你对担心有麻烦吗？你对自怜有麻烦吗？你对内疚有麻烦吗？无论你遇到麻烦，只是在这些条款中看到它。
 
@@ -422,6 +441,48 @@ Today's sermon was recorded in 1995. The sermons and talks you hear on the Gospe
 无论你今晚的问题是什么，今天，无论你这周的问题是什么，无论你的问题是什么，它可以用对主的恐惧来清洁。无论你的方舟如何被污染，都可以被清洁。如果你来找他，你说它对我来说已经是邪恶和痛苦的，我已经否认你，我已经否认你的中心。你知道他会说什么吗？
 
 他会说，当然我会有你。当然我会有你。如果你不这样做，如果你从这个说出来，好吧，我很邪恶，我很邪恶，我很坏，为什么神会有我？这是一件你还不够敬畏的一件东西，他的恩典。
+
+---
+
+## 解决之道：敬畏他的恩典 / The Solution: Stand in Awe of His Grace
+
+And if you don't do that, if you come out of this saying, well, I'm so wicked and I'm so evil and I'm so bad, that why would God have me? Here's the one thing that you're not in awe enough about, his grace. Up in verse 6, and over and over and over again throughout the whole passage, he says, nobody says where is the Lord who brought us up out of Egypt?
+
+You know what he's saying? He's saying, think about me. You know why you don't obey me?
+
+You know why you don't make me central. You don't trust my love. You don't trust my grace.
+
+He says, remember the Exodus. Think about it for a minute. Remember the fact I didn't give you the law in Egypt and then said, now if you obey that, I'll bring you out.
+
+I brought you out first and then I gave you the law later. I'm a God of grace. So why in the world are you afraid to make me central?
+
+I know why he says, you feel like you'll lose your freedom. You'll lose your joy. You see, you won't be free.
+
+You won't have your options. If I obey and make God central, I will be limited in some way. God says, why don't you say where is that gracious God who brought us up?
+
+Where is that gracious God who operates by grace? And that's the reason why here I say to you, unless you are ultimately in awe of his grace, not just in awe, you can't say, I should stop sinning or God will get me. You should say, I should stop sinning because here's the gracious God who brought me out, who brought me up.
+
+So if you go to him and say, my life is evil and bitter because I've been living and denial at him a sinner and I've been living, especially in denial of your centrality and greatness. What will God say? I am the one who brought you up.
+
+I am a gracious God. Of course, I'll take you back. I sent my son to live your life and to die your death.
+
+That's how I bring people up out of Egypt now. That's how I bring people out without the law, but strictly through grace. That's why I bring you up and put your sins away because Christ fulfilled the law.
+
+Consider and realize it is evil and bitter for you if you are not in awe of my grace and mercy. So, this is the solution to all your problems personally. This is the solution to our society's problems.
+
+This is the solution. God says, this is what's wrong with you. It's not the economy's due, but it's sin and it's the best news I can give you.
+
+Let's pray. Father, we thank you that it's now possible for us to know what's really been available to be known for thousands of years, but people continually turn away from it. They continually deny it.
+
+We realize, Father, that we have to cut through our own force field of denial to see your greatness and your reality. We pray, Father, that you would show us your love and your grace so that we will trust ourselves to put you first. We ask, Father, that you would show us how we can solve our individual problems by seeking your fear and seeking your awe and seeing your awesomeness.
+
+Apply these truths to our lives through your Holy Spirit. We ask it in Jesus name. Amen.
+
+Thanks for joining us here on the Gospel Unliked Podcast. We hope that today's teaching encouraged you to go deeper into God's Word. You can help others discover this podcast by rating and reviewing it and to find more great Gospel-centered content by Tim Keller, visit GospelUnliked.com.
+
+Today's sermon was recorded in 1995. The sermons and talks you hear on the Gospel Unliked Podcast were recorded between 1989 and 2017, while Dr.
+
+---
 
 在第 6 节，一遍又一遍地在整个通道中，他说，没有人说，带我们出埃及的耶和华在哪里？你知道他在说什么吗？他说，想想我。你知道为什么你不顺从我吗？
 

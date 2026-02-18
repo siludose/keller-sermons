@@ -4,6 +4,8 @@
 
 ---
 
+## 引言与经文宣读 / Introduction and Scripture Reading
+
 Welcome to Gospel and Life. How do we share what it means to truly know Jesus? Not just as a historical figure or moral teacher, but as Savior and King.
 
 This month, Tim Keller explores what the Bible shows us about being public with our faith and sharing the hope we have in Christ. The reading this morning is taken from the Book of One Corinthians, chapter 15, verses 1 through 11. Now, brothers and sisters, I want to remind you of the gospel I preach to you, which you received and on which you have taken your stand.
@@ -50,6 +52,20 @@ Well, let's just move right through it. There's actually four parts to this. The
 
 It's about sin and substitution. It's about history and resurrection. And it's about astonishing, transforming grace.
 
+---
+
+欢迎来到《福音与生活》。我们如何分享真正认识耶稣意味着什么？不仅仅是作为一个历史人物或道德教师，而是作为救世主和君王。本月，蒂姆·凯勒探讨了圣经告诉我们关于公开信仰和分享我们在基督里的盼望意味着什么。
+
+今早的经文摘自《哥林多前书》第15章第1-11节。现在，保罗在这里做了一件非常有趣的事。他说："弟兄们，我如今把先前所传给你们的福音告诉你们知道"。保罗用这个短语"我告诉你们"。
+
+这不是一个新的发现。这是关于提醒他们什么是真实的，什么是他们已经被告知的。福音是什么？在我们的文化中，如果你询问人们"福音是什么？
+
+"，你会得到许多不同的答案。有人会说："福音是你应该成为一个好人。"有人会说："福音是关于爱你的邻舍。"有人会说："福音就是跟随耶稣的道德教训。
+
+---
+
+## 福音的核心是什么 / The Gospel Is About Jesus
+
 Just right through it. Okay, so first of all, it's about Jesus, because see, for what I received, I passed on to you as a first importance, and as soon as he begins, his summary of the gospel, he says, that Christ, and actually, everything else, in the whole paragraph, is just a set of clauses or phrases that explain Christ. They all point back to Christ.
 
 The gospel is Christ, actually. The gospel is Jesus Christ. Now, how would that be?
@@ -81,6 +97,20 @@ It changes the very structure of your identity. It changes the very pathways of 
 And yet, those are results of the gospel. You never find the authors of the scripture. You never find the apostles or Paul ever loading that into the gospel as if that's part of it.
 
 No. In a sense, the gospel is Jesus Christ. It is Jesus.
+
+---
+
+" 但保罗在这里说的不是这些。他说："我所传给你们的福音，你们也领受了，又靠这福音站立得住，并且你们若不是徒然相信，能以持守我所传给你们的，就必因这福音得救。" 所以福音不仅仅是关于伦理或道德。福音是关于拯救的。
+
+这是关于对一个人的信仰，这个人可以改变你的生活，可以改变整个世界。让我们看看保罗说福音包含什么。他说："我当日所领受又传给你们的，第一，就是基督照圣经所说，为我们的罪死了"。停在这里一秒钟。
+
+"为我们的罪死了。"这说了什么？这说的是，有一个被称为罪的问题。罪不仅仅是坏行为。
+
+罪是与上帝关系的破裂。罪是人试图按照自己的方式生活，忽视他们的创造者。现在，如果那就是所有发生的一切，如果人类只是做坏事和忽视上帝，这将是相当不幸的。但基督的死改变了一切。
+
+---
+
+## 基督为我们的罪而死 / Sin and Substitution
 
 So first of all, it's about Christ. Secondly, though, it's about sin and substitution. Okay, so what's the first thing Jesus...
 
@@ -208,7 +238,17 @@ It's a powerful resource that explores how Christianity makes emotional, cultura
 
 To request your two copies of making sense of God, simply go to Gospel and Life.com-slash-give. Again, that's Gospel and Life.com-slash-give. Now, here's Dr.
 
-Keller with the remainder of today's teaching. So first of all, one of the charges is this whole idea that Jesus Christ goes and He has to shed His blood in order to satisfy the punishment and wrath of God. Many people say, that's just incredible.
+Keller with the remainder of today's teaching.
+
+---
+
+基督为我们的罪死了意味着什么？**这意味着上帝看到了一个问题——人类犯了罪，因此与他分离——上帝采取了行动。**上帝的儿子来到地球，过了完美的生活，然后甘愿付出代价，为我们的罪承担惩罚。保罗继续说："第三日复活了"。
+
+---
+
+## 复活的意义 / The Cross: Not Primitive, But Revolutionary
+
+So first of all, one of the charges is this whole idea that Jesus Christ goes and He has to shed His blood in order to satisfy the punishment and wrath of God. Many people say, that's just incredible.
 
 It's just like the ancient primitive pagan terrible religions. They're all bloody with all that sacrifice stuff. J.
 
@@ -234,7 +274,47 @@ And here's what he says. He says, in paganism, man propituates his gods. And rel
 
 In Christianity, however, God propities his own wrath through his own sacrificial action of love. See, as God comes in Jesus Christ and goes and he takes his own punishment, it's utterly different. It's the reverse of ancient primitive bloodthirsty religion.
 
-Don't say that. Now, secondly, I'd like to say something on the contrary about this doctrine of substitutionism. It's radically egalitarian and democratic.
+Don't say that.
+
+---
+
+现在这对基督教信仰至关重要。复活意味着什么？复活意味着死亡不是最后的话。复活意味着基督战胜了罪恶的权势。
+
+复活意味着生命战胜了死亡。在我们的文化中，许多人认为基督教是关于道德教训或启蒙的。但基督教的核心不是教学。基督教的核心是一个人，一个超越历史进程、战胜死亡、现在统治和统治的人。
+
+这为什么重要？让我告诉你为什么。想象你正在一个沉闷的日子走过一条黑暗的街道。天很黑，你感到沮丧和迷茫。
+
+然后有人来到你身边并说："我是一个好的道德教师。跟随我的教学。"那可能会帮助你一点。你可能会学到一些东西。
+
+但天仍然很黑，你仍然感到迷茫。但现在想象一下，有人来到你身边，说："我是生命之光。"然后他点燃一盏灯。突然间，一切都不同了。
+
+黑暗退缩了。光照亮了道路。那就是基督的不同之处。基督不仅仅是一个伟大的教师。
+
+基督是生命本身。基督是那位进入世界并改变一切的。现在，保罗说，**我们需要记住这个福音。**为什么？
+
+因为在我们的生活中很容易忘记。在我们的文化中，有许多声音告诉我们生活的意义。有声音说："你的意义来自于你的职业。"有声音说："你的意义来自于你的外表。
+
+"有声音说："你的意义来自于你的成功。"有声音说："你的意义来自于你拥有多少。" 但福音说："你的意义来自于你为之而死的那位。你的意义来自于与你的创造者的关系。
+
+" 保罗在这里提醒信徒们，这是他们需要记住的核心。这是他们需要坚持的。这是他们需要建立生活的基础。保罗还说："为我们的罪死了。
+
+他埋葬了。第三日复活了。"为什么他提到埋葬？这似乎是显而易见的，但在保罗的文化中，埋葬是确认死亡的标志。
+
+保罗在这里确认基督真正死了。这不是一个技巧。这不是一个幻觉。基督真的死了。
+
+而且，同样地，基督真的复活了。保罗说，复活出现给很多人。他给了一个名单。他给了彼得。
+
+他给了十二使徒。他给了500多个弟兄。然后他说"又显给我看。" 这很有意思，因为保罗没有与耶稣在地球上的其他使徒同行。
+
+保罗最初是基督教的迫害者。保罗最初正在追捕和杀害信徒。是什么改变了他？保罗说："末了，也显给我看。
+
+"保罗在某个时刻有了复活的基督的经历。这个经历改变了他的一生。从一个基督教的迫害者，他成为了基督教的使徒。这里重要的是什么？
+
+---
+
+## 复活是可验证的历史事件 / The Most Egalitarian Doctrine
+
+Now, secondly, I'd like to say something on the contrary about this doctrine of substitutionism. It's radically egalitarian and democratic.
 
 And if you think, you say, boy, that's kind of weird. I want you to look at the little word in here right in the beginning of the gospel presentation, where Paul says Christ died for our sins. You know what's so interesting about that?
 
@@ -300,6 +380,20 @@ We're all in it. We're all in it. No one is right.
 
 Just no not one. Most democratic, egalitarian doctrine. Okay, now thirdly.
 
+---
+
+它表明复活是一个真实的，可验证的事件。许多人看到了。许多人可以证明。许多人改变了他们的生活。
+
+现在，在保罗的日子里，这很重要，因为有人说："好吧，也许基督没有真的复活。也许这是使徒们想出的故事。"但保罗说，不，有500多个证人。如果你想知道真相，去问他们。
+
+现在，在我们的时代，2000年后，我们不能去问那些证人。但我们可以看看什么发生了。我们可以看看这个信仰的影响。我们可以看看基督教如何改变了世界。
+
+但除此之外，我们有现在活的证人——那些经历过复活的基督力量的人，那些他们的生活被改变的人，那些他们可以作证说："这是真的"的人。保罗继续说："我原是使徒中最小的，不配称为使徒，因为我从前逼迫上帝的教会。"这很有意思。保罗认为自己是不合格的。
+
+---
+
+## 恩典改变了保罗 / History and the Resurrection
+
 The third part of this Gospel presentation is the longest, but it doesn't mean it necessarily is more important than the others. In some ways it's probably long. It's about the resurrection of Jesus.
 
 It's probably longer because it's setting up the fact that the rest of the chapter is going to be a lengthy, wonderful, remarkable treatment of the doctor of the resurrection because it was an issue in the Corinthian church. But the point is he is now saying the third part is of the Gospel is history and the resurrection. He says that Christ died for sins according to the Scriptures.
@@ -331,6 +425,18 @@ Are you a Christian? Have you believed in Jesus Christ? Your conscience is killi
 Do you know how to get out the resurrection and say, to your conscience, trouble me not? Be gone. This is my receipt.
 
 This proves that it was paid in full. This proves this stamps paid in full across history in such a way that nobody is ever going to miss it. Do you know how to do that?
+
+---
+
+他有一个肮脏的过去。他做了可怕的事情。但然后保罗说："然而我今日成了何等人，是蒙上帝的恩典成的。而且他所赐我的恩典不是徒然的，我比众使徒格外劳苦。
+
+" 这是什么意思？保罗说，尽管我有一个肮脏的过去，尽管我不配，上帝的恩典拯救了我并改变了我。上帝的恩典给了我新的生活和新的目的。这是福音的核心。
+
+福音不是关于你有多好。福音是关于上帝有多好。福音不是关于你的功绩。福音是关于上帝的恩典。
+
+---
+
+## 你的价值来自神的爱 / The Resurrection Secures Our Future
 
 So on the one hand, the resurrection assures and secures you, your past salvation, but then secondly, it assures and secures the future salvation because our future salvation is not just being forgiven and going and living in heaven as a soul. Our future is a resurrected body and a new heavens and a new earth and a place without suffering and death. Do you know what that's going to be like?
 
@@ -374,6 +480,18 @@ It's not a legend. It's come down to us through the ages. People saw him.
 
 There is evidence. And if that's the case and the stuff that you most long for in life, the kind of world you most long for is available. It's there.
 
+---
+
+在我们的文化中，我们经常被告知我们的价值取决于我们所做的。我们的价值取决于我们的成就。我们的价值取决于我们能够挣多少钱或我们能够积累多少。但福音说：你的价值来自于你被上帝所爱。
+
+你的价值来自于这样一个事实：上帝认为你值得他的儿子为你死去。保罗说所有这些是为了什么？他说："所以，无论是我是他们，我们如此传道，你们也如此相信了。" 换句话说，福音的真理应该改变我们分享我们信仰的方式。
+
+它应该改变我们向世界讲述我们信仰的方式。
+
+---
+
+## 如何分享福音 / Grace That Transforms
+
 Believe the gospel. Look, at the very, very end. This ending is technically a testimony and is wonderful.
 
 Because see, the gospel ultimately is personal. It's not just a set up bullet points. And he says, for I am the least of the apostles and do not even deserve to be called an apostle, because I persecuted the Church of God.
@@ -404,6 +522,34 @@ But then when you also realize that Grace is unconditional, because it's undeser
 
 But it's infinitely costly to him, because of what he had to go through on the cross. It turns you into a sacrificial lover of other people. It was not without effect, it was not without effect.
 
+---
+
+现在，我们如何分享福音？我想给你一些关于如何思考这个问题的想法。首先，**我们需要清楚福音是什么。**
+
+福音不是关于道德。福音不是关于做好事。福音是关于一个人——耶稣基督——他为我们的罪而死，复活了，现在活着，并且提供救恩给所有相信他的人。其次，**我们需要清楚福音为什么重要。**
+
+福音很重要，因为它回答了人类最根本的问题。人类最根本的问题不是"我如何成功？"或"我如何快乐？"人类最根本的问题是"我如何与我的创造者相调和？
+
+" 福音回答说："信靠基督。他已经为你做了必要的事情。他已经支付了代价。他已经克服了死亡。
+
+现在他提供恩典和救恩给所有相信他的人。" 第三，**我们需要理解分享福音的意义。**分享福音不是强加。分享福音不是成为判断性或自以为是的。
+
+分享福音是简单地说，"我发现了一些改变了我生活的东西，我想和你分享，以防它也能帮助你。" 现在，在我们的文化中，许多人不舒服分享他们的信仰。为什么？有许多原因。
+
+有些人说："好吧，那会很粗鲁。"有些人说："好吧，人们认为我很奇怪。"有些人说："好吧，我不知道我会说什么。" 但保罗在这里说的是关于信心的事情。
+
+如果你真的相信基督已经为你的罪而死并复活，如果你真的相信这改变了你的生活，那么你不能保持沉默。你不能保持沉默，因为爱不能保持沉默。如果你看到一个房子着火了，你会安静吗？不，你会大声喊"着火了！
+
+"你会试图让人们逃离危险。现在，我不认为我们应该对不同意我们的人粗鲁或好斗。但我认为，如果我们真的相信上帝的真理，我们应该愿意以一种尊重但坚定的方式分享它。保罗在这里提醒了基督徒们为什么这很重要。
+
+他说，"我如今把先前所传给你们的福音告诉你们知道。"他在说——这是什么拯救了你们。这是改变你们生活的。不要忘记这一点。
+
+不要对此变得冷漠。不要让世界的声音说服你相信其他的东西。坚持福音。而且，坚持福音意味着与他人分享福音。
+
+---
+
+## 你明白福音吗？ / The Wonder of Grace
+
 And lastly, it just fills you with wonder. You see, he's almost, I just kind of amazed at himself. He's just looking at me saying, but by the grace of God, I am what I am.
 
 When you say something, when you, you know, Kathy pointed out to me that this week in the Tuesday of Science Times of the New York Times, it talks about the fact that we're probably on the verge of finding a cure for hep C, which is a disease, by the way, that kills more people than AIDS. It just gives you a miserable life while it's killing you. And it looks like possibly, they went to pains to say it's not for certain, but it looks like there's not just a vaccine, but a pill, just a pill, not even a vaccine, that you take, and it can take it out of your body in a couple of months.
@@ -429,99 +575,6 @@ Just go to gospelandlife.com slash share and let us know you've participated. To
 Keller was senior pastor at Redeemer Presbyterian Church.
 
 ---
-
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《福音与生活》。我们如何分享真正认识耶稣意味着什么？不仅仅是作为一个历史人物或道德教师，而是作为救世主和君王。本月，蒂姆·凯勒探讨了圣经告诉我们关于公开信仰和分享我们在基督里的盼望意味着什么。
-
-今早的经文摘自《哥林多前书》第15章第1-11节。现在，保罗在这里做了一件非常有趣的事。他说："弟兄们，我如今把先前所传给你们的福音告诉你们知道"。保罗用这个短语"我告诉你们"。
-
-这不是一个新的发现。这是关于提醒他们什么是真实的，什么是他们已经被告知的。福音是什么？在我们的文化中，如果你询问人们"福音是什么？
-
-"，你会得到许多不同的答案。有人会说："福音是你应该成为一个好人。"有人会说："福音是关于爱你的邻舍。"有人会说："福音就是跟随耶稣的道德教训。
-
-" 但保罗在这里说的不是这些。他说："我所传给你们的福音，你们也领受了，又靠这福音站立得住，并且你们若不是徒然相信，能以持守我所传给你们的，就必因这福音得救。" 所以福音不仅仅是关于伦理或道德。福音是关于拯救的。
-
-这是关于对一个人的信仰，这个人可以改变你的生活，可以改变整个世界。让我们看看保罗说福音包含什么。他说："我当日所领受又传给你们的，第一，就是基督照圣经所说，为我们的罪死了"。停在这里一秒钟。
-
-"为我们的罪死了。"这说了什么？这说的是，有一个被称为罪的问题。罪不仅仅是坏行为。
-
-罪是与上帝关系的破裂。罪是人试图按照自己的方式生活，忽视他们的创造者。现在，如果那就是所有发生的一切，如果人类只是做坏事和忽视上帝，这将是相当不幸的。但基督的死改变了一切。
-
-基督为我们的罪死了意味着什么？**这意味着上帝看到了一个问题——人类犯了罪，因此与他分离——上帝采取了行动。**上帝的儿子来到地球，过了完美的生活，然后甘愿付出代价，为我们的罪承担惩罚。保罗继续说："第三日复活了"。
-
-现在这对基督教信仰至关重要。复活意味着什么？复活意味着死亡不是最后的话。复活意味着基督战胜了罪恶的权势。
-
-复活意味着生命战胜了死亡。在我们的文化中，许多人认为基督教是关于道德教训或启蒙的。但基督教的核心不是教学。基督教的核心是一个人，一个超越历史进程、战胜死亡、现在统治和统治的人。
-
-这为什么重要？让我告诉你为什么。想象你正在一个沉闷的日子走过一条黑暗的街道。天很黑，你感到沮丧和迷茫。
-
-然后有人来到你身边并说："我是一个好的道德教师。跟随我的教学。"那可能会帮助你一点。你可能会学到一些东西。
-
-但天仍然很黑，你仍然感到迷茫。但现在想象一下，有人来到你身边，说："我是生命之光。"然后他点燃一盏灯。突然间，一切都不同了。
-
-黑暗退缩了。光照亮了道路。那就是基督的不同之处。基督不仅仅是一个伟大的教师。
-
-基督是生命本身。基督是那位进入世界并改变一切的。现在，保罗说，**我们需要记住这个福音。**为什么？
-
-因为在我们的生活中很容易忘记。在我们的文化中，有许多声音告诉我们生活的意义。有声音说："你的意义来自于你的职业。"有声音说："你的意义来自于你的外表。
-
-"有声音说："你的意义来自于你的成功。"有声音说："你的意义来自于你拥有多少。" 但福音说："你的意义来自于你为之而死的那位。你的意义来自于与你的创造者的关系。
-
-" 保罗在这里提醒信徒们，这是他们需要记住的核心。这是他们需要坚持的。这是他们需要建立生活的基础。保罗还说："为我们的罪死了。
-
-他埋葬了。第三日复活了。"为什么他提到埋葬？这似乎是显而易见的，但在保罗的文化中，埋葬是确认死亡的标志。
-
-保罗在这里确认基督真正死了。这不是一个技巧。这不是一个幻觉。基督真的死了。
-
-而且，同样地，基督真的复活了。保罗说，复活出现给很多人。他给了一个名单。他给了彼得。
-
-他给了十二使徒。他给了500多个弟兄。然后他说"又显给我看。" 这很有意思，因为保罗没有与耶稣在地球上的其他使徒同行。
-
-保罗最初是基督教的迫害者。保罗最初正在追捕和杀害信徒。是什么改变了他？保罗说："末了，也显给我看。
-
-"保罗在某个时刻有了复活的基督的经历。这个经历改变了他的一生。从一个基督教的迫害者，他成为了基督教的使徒。这里重要的是什么？
-
-它表明复活是一个真实的，可验证的事件。许多人看到了。许多人可以证明。许多人改变了他们的生活。
-
-现在，在保罗的日子里，这很重要，因为有人说："好吧，也许基督没有真的复活。也许这是使徒们想出的故事。"但保罗说，不，有500多个证人。如果你想知道真相，去问他们。
-
-现在，在我们的时代，2000年后，我们不能去问那些证人。但我们可以看看什么发生了。我们可以看看这个信仰的影响。我们可以看看基督教如何改变了世界。
-
-但除此之外，我们有现在活的证人——那些经历过复活的基督力量的人，那些他们的生活被改变的人，那些他们可以作证说："这是真的"的人。保罗继续说："我原是使徒中最小的，不配称为使徒，因为我从前逼迫上帝的教会。"这很有意思。保罗认为自己是不合格的。
-
-他有一个肮脏的过去。他做了可怕的事情。但然后保罗说："然而我今日成了何等人，是蒙上帝的恩典成的。而且他所赐我的恩典不是徒然的，我比众使徒格外劳苦。
-
-" 这是什么意思？保罗说，尽管我有一个肮脏的过去，尽管我不配，上帝的恩典拯救了我并改变了我。上帝的恩典给了我新的生活和新的目的。这是福音的核心。
-
-福音不是关于你有多好。福音是关于上帝有多好。福音不是关于你的功绩。福音是关于上帝的恩典。
-
-在我们的文化中，我们经常被告知我们的价值取决于我们所做的。我们的价值取决于我们的成就。我们的价值取决于我们能够挣多少钱或我们能够积累多少。但福音说：你的价值来自于你被上帝所爱。
-
-你的价值来自于这样一个事实：上帝认为你值得他的儿子为你死去。保罗说所有这些是为了什么？他说："所以，无论是我是他们，我们如此传道，你们也如此相信了。" 换句话说，福音的真理应该改变我们分享我们信仰的方式。
-
-它应该改变我们向世界讲述我们信仰的方式。现在，我们如何分享福音？我想给你一些关于如何思考这个问题的想法。首先，**我们需要清楚福音是什么。**
-
-福音不是关于道德。福音不是关于做好事。福音是关于一个人——耶稣基督——他为我们的罪而死，复活了，现在活着，并且提供救恩给所有相信他的人。其次，**我们需要清楚福音为什么重要。**
-
-福音很重要，因为它回答了人类最根本的问题。人类最根本的问题不是"我如何成功？"或"我如何快乐？"人类最根本的问题是"我如何与我的创造者相调和？
-
-" 福音回答说："信靠基督。他已经为你做了必要的事情。他已经支付了代价。他已经克服了死亡。
-
-现在他提供恩典和救恩给所有相信他的人。" 第三，**我们需要理解分享福音的意义。**分享福音不是强加。分享福音不是成为判断性或自以为是的。
-
-分享福音是简单地说，"我发现了一些改变了我生活的东西，我想和你分享，以防它也能帮助你。" 现在，在我们的文化中，许多人不舒服分享他们的信仰。为什么？有许多原因。
-
-有些人说："好吧，那会很粗鲁。"有些人说："好吧，人们认为我很奇怪。"有些人说："好吧，我不知道我会说什么。" 但保罗在这里说的是关于信心的事情。
-
-如果你真的相信基督已经为你的罪而死并复活，如果你真的相信这改变了你的生活，那么你不能保持沉默。你不能保持沉默，因为爱不能保持沉默。如果你看到一个房子着火了，你会安静吗？不，你会大声喊"着火了！
-
-"你会试图让人们逃离危险。现在，我不认为我们应该对不同意我们的人粗鲁或好斗。但我认为，如果我们真的相信上帝的真理，我们应该愿意以一种尊重但坚定的方式分享它。保罗在这里提醒了基督徒们为什么这很重要。
-
-他说，"我如今把先前所传给你们的福音告诉你们知道。"他在说——这是什么拯救了你们。这是改变你们生活的。不要忘记这一点。
-
-不要对此变得冷漠。不要让世界的声音说服你相信其他的东西。坚持福音。而且，坚持福音意味着与他人分享福音。
 
 所以，当我们离开这里时，我想问你一个问题：你明白福音吗？你明白基督已经为你的罪而死并复活了吗？你明白这对你的生活有什么意义吗？如果答案是"是"，那么问下一个问题：你在与他人分享这个吗？
 

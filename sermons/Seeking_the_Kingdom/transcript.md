@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### The Nature of Anxiety: Craving Control over the Uncontrollable
+
 Welcome to Gospel in Life. What is holding you back from truly trusting in God?
 
 From not just believing in His existence, but letting the power of His Word change how you approach daily life, work, and relationships. In today's message, Tim Keller looks at one of Jesus' most well-known teachings to explain how true faith begins when we stop trying to control our own lives and start trusting in the God who knows exactly what we need. Matthew 6, 25 through 34.
@@ -23,6 +25,8 @@ A quick question that comes up. How can somebody, how does anybody have the auda
 Who wants to be anxious? Nobody gets up in the morning and says, I'm going to really be anxious today. I can't wait. You know, it's not a very voluntary thing.
 
 So why would Jesus command us? If we look carefully, we'll see that He's not commanding us in a kind of drill sergeant way. There's a friend of mine, a pastor.
+
+### The Root of Anxiety: The Human Desire for Power
 
 A pastor friend of mine who was poking fun at himself. He's in his 50s now, but when they first got married, he and his wife, in their early 20s, he was saying that she went into a depression, and he used all of his, every bit of skill he could to get her out of it. He says, I tried everything, everything. Every single morning I went into her and I said, buck up.
 
@@ -60,6 +64,8 @@ And the Bible, as usual, gives us a little bit of a clue about what it is. It gi
 
 Jesus Christ is, if you look carefully, you'll see that in a very gentle way, He is saying the source of anxiety is the human will to power. The fact is that we want the power that God's got. And anxiety comes from that. He says, for example, He says, who by being anxious can add one minute to your life?
 
+### The Cure: Correcting Wrong Thinking
+
 But that's the point. We want to add. We want the power God has. And Jesus is saying, isn't life more than food and drink?
 
 And who by worrying can add one minute to your life? What He's saying is, listen, who's been keeping your life going all these years anyway?
@@ -93,6 +99,8 @@ The need for control of the uncontrollable. Where does it come from?
 Our basic, essential nature as kings and queens, which we are trying to express by being masters of our own lives when we're not. Then number three, well, then what do we do about it?
 
 And you say, this is wonderful. This is very interesting. It makes me feel very interested.
+
+### God's Providence: All Things Work Together
 
 But what do I do? And again, Jesus would never just say, Buck up. He tells you what to do. And essentially in this passage, he says, if you're full of anxiety, psychological, physical, philosophical, whatever, there are two things you're doing wrong. And therefore, if you want to remove the anxiety from your life, there's two things you've got to do right. The two things you're doing wrong is wrong thinking and wrong priorities. Wrong thinking and wrong priorities.
 
@@ -168,6 +176,8 @@ What if he had driven to work a different route that day? This church wouldn't b
 
 Do you see? It actually says there's a certain sense in which when you finally give yourself over to God and say, I trust you, you begin to realize that everything that's happening, everything that's happening, even Watergate is happening for me. Everything is happening for me. The minute you finally say, I don't I'm not going to be in the center anymore. I'm not going to demand the explanation. I'm not going to only try to stay in control of my life. I'm going to be willing to say, Lord, you know what's best.
 
+### God's Love: Your Father Knows Your Needs
+
 In Philippians 4, it says, have no anxiety, but in everything with prayer and supplication, with thanksgiving, make your requests known to God. That means when you ask God for something, thank him ahead of time for whatever he sends. Well, how can you do that?
 
 You say, it means get a conviction that he would not give you anything that's wrong. That's bad. You know, our parents spent all of our lives. When I was a little kid, my parents always were ruining my life. They were always saying, stop swallowing those rocks. Stop sticking that fork into that electrical outlet. You know, these people didn't know how to live.
@@ -179,6 +189,8 @@ What's the use in having a king? If you're wise and smart enough to do it yourse
 Of course, he's not safe. Who said anything about him being safe?
 
 But he's good. He's the king, I tell you. The other little thing that you've got to do is use the grass of the field. The grass of the field argument is different. The one argument is to say, he's in control. Who else could I trust but him?
+
+### Right Priorities: Seek First His Kingdom
 
 But the other little argument is the love of God argument. The love of God argument. Jesus says, your father knows what you need.
 
@@ -193,6 +205,8 @@ Now, and then the other thing is wrong priorities. Wrong thinking and wrong prio
 Martha and Mary. You remember Martha and Mary?
 
 Jesus came to their house and Martha ran around the house and she said, I'm going to run around. And literally it says she was anxious, doing many, many things. Uses the same word anxious that Jesus uses here in Matthew 6. Mary sat at Jesus' feet and Jesus comes to Martha and says, Martha, you're anxious and troubled about many, many, many things. One thing is necessary. Mary's found it. Sit down and focus on me.
+
+### Trusting Christ: Not Just Belief, but Trust
 
 And what Jesus is saying is worry is always a lack of proportion. If Jesus is in the center, there will be no anxiety. If your profession, if your relationship, if your material comfort, if money, if anything else is in the center, if anything else is more important than Christ, you're going to be torn up with anxiety. Your fears are like the breadcrumbs. Follow them and you'll find the house of the witch. Your anxieties come from that lack of proportion, from that lack of sense of proportion. And Jesus says, put me first.
 
@@ -221,6 +235,8 @@ That is an act of absolutely blind faith. There's no evidence for it. And you kn
 That's why you can't believe. Don't tell me that you can't believe in God. What you mean is I refuse to doubt myself, even though I've got every bit of evidence.
 
 I don't care how successful you are. Even the most successful people are making a total mess of some parts of their lives. Come to him. Jesus Christ knew what it was to trust God. In the wilderness, the devil came and said, turn these stones into bread. And he didn't do it. Why?
+
+### Closing Prayer
 
 He continued to depend on God. He wouldn't take matters into his own hands. He wouldn't decide to disobey God, get in control. And because he was faithful, he died as a substitute. And he took the punishment that we deserve. For our will to power.
 

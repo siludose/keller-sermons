@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### The Necessity of Community
+
 Welcome to the Gospel and Life podcast. Today, Tim Keller is teaching on perhaps the most well-known sermon ever preached, the sermon on the Mount. In it, we'll find Jesus' invitation to a radical new kind of life that is far beyond a guide to morality.
 
 After you listen to today's teaching, we invite you to go online to gospelandlife.com and sign up for email updates. When you sign up, you'll receive our quarterly journal and other valuable gospel-centered resources. You can subscribe today at gospelandlife.com.
@@ -130,6 +132,8 @@ You've got, there are people around you who are Christians, your brothers and si
 
 Are you dealing with them? Are you trying to turn them into friends? Now, that's the first thing Jesus talks about, the necessity of a new community.
 
+### The Intensity of Accountability
+
 He doesn't work in your life as an individual. He only works in your life corporately. Secondly, he not only talks about the necessity of Christian community, he talks about the intensity.
 
 See, clearly you're supposed to have deep relationships. Okay, somebody says, how deep? How deep do they have to go?
@@ -238,7 +242,11 @@ And as a result, unless you're praying with people, unless you're worshiping wit
 
 I don't want you to be at the altar by yourself. Go get your sister. I don't want you at the altar by yourself.
 
-That's the necessity of this new community and that's the intensity. This new community. Thirdly, we're told about the symmetry of this new community.
+That's the necessity of this new community and that's the intensity.
+
+### The Balance of Truth and Love
+
+This new community. Thirdly, we're told about the symmetry of this new community.
 
 Now, here's what I think. Symmetry, you say, yeah. How do you get these relationships this deep?
 
@@ -336,7 +344,9 @@ How do I know if my relationships are unbalanced? Oh, assume it. Assume that you
 
 In our temperament, our natural temperament without the Holy Spirit, you're either going to be a truth type or a love type. You're either going to be a nice person, diplomatic and sweet, but basically a coward, or you're going to be a challenge, fourth right, direct person, but basically cruel, basically unfeeling. We're going to be one of the other.
 
-And the only way to get that symmetry so that your relationships get down into the depths unto personal accountability and corporate spirituality is if you read about Jesus and how he treated people, read it over and over and over and over and over again. Now, lastly, that's the necessity, that's the intensity, that's the symmetry, but what's the causality? What is it that actually causes these kinds of relationships?
+And the only way to get that symmetry so that your relationships get down into the depths unto personal accountability and corporate spirituality is if you read about Jesus and how he treated people, read it over and over and over and over and over again. ### Gospel-Driven Relationships
+
+Now, lastly, that's the necessity, that's the intensity, that's the symmetry, but what's the causality? What is it that actually causes these kinds of relationships?
 
 Now, it's really pretty subtle, but let me just suggest when Jesus says judge not, don't be judgmental or you'll be judged. You know what the word judge is here? It's the word condemn.
 

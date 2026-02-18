@@ -4,11 +4,9 @@
 
 ---
 
-Welcome to the Gospel and Life Podcast. What if the Gospel didn't just shape your private life, but transformed the way you show up in the world? One of the most visible places that would play out is in your work.
+## 事实与价值的分裂 / The Abolition of Man and the Fact-Value Divide
 
-Join us as Tim Keller teaches on how the Gospel reshapes the way we approach our jobs. After you listen to today's teaching, we invite you to go online to GospelandLife.com and sign up for email updates. When you sign up, you'll receive our quarterly journal and other valuable Gospel-centered resources.
-
-Subscribe today at GospelandLife.com. Yeah, I was actually a real-life formal teacher for five years at Graduate School Seminary actually lectured and I created tests and I graded tests and papers for five years. I said, get me back in the ministry where you can teach and teach you nobody knows whether the people are learning or not.
+Yeah, I was actually a real-life formal teacher for five years at Graduate School Seminary actually lectured and I created tests and I graded tests and papers for five years. I said, get me back in the ministry where you can teach and teach you nobody knows whether the people are learning or not.
 
 It's wonderful. There's no way to find out. It seems like so, took all the pressure off.
 
@@ -41,6 +39,20 @@ He says, you can't educate people like that. So what's the answer? He actually b
 And what he means by the Dow, T-A-O, taken by way from the Chinese idea that there is a kind of, it's natural law. He says he believes that, and most all religions believe, that the religions actually differ on many things like how you're saved. All human beings have some basic understanding of God and some basic understanding of right and wrong that we kind of know intuitively.
 
 And Lewis makes a case that on the basis of that, what Catholics would call natural law and what Protestants would call common grace. On the basis of the fact that people know some things intuitively, you can educate and you can appeal on the basis of this understanding that there's such a thing as common grace. Now, what do I mean by that?
+
+---
+
+欢迎来到《福音与生活》播客。如果福音不仅仅塑造你的私生活，而是改变你在世界上的表现方式，会怎样？这会最明显地表现出来的地方之一是在你的工作中。加入我们，因为蒂姆·凯勒教导福音如何改变我们对工作的态度。
+
+我想从一个问题开始：你的信仰与你的工作有什么关系？现在，对于许多基督徒来说，这个问题的答案可能是"没有什么"。他们认为他们的信仰是私人的。他们认为他们的工作是他们赚钱和养家糊口的地方。
+
+他们的信仰和工作生活在不同的盒子里。他们不相互联系。但圣经对此有不同的看法。圣经说信仰应该改变你生活的一切。
+
+信仰应该改变你如何工作。信仰应该改变你对工作的态度。信仰应该改变你对为什么工作的理解。让我给你几个圣经关于工作的教导。
+
+---
+
+## 罪与恩典中的教育观 / Sin, Grace, and Common Grace in Education
 
 It's actually very important for both people who are in Christian schools or private schools as well as public schools. And I'm here, by the way, I'm giving you a more Protestant view of natural, long common grace. The Protestant view is if you have a thin understanding of sin that is just breaking certain rules, you should make that more robust, a thick understanding of sin according to the Bible, a thick, robust view of sin, is that sin is making anything more central than God.
 
@@ -87,6 +99,34 @@ He was an African-American Protestant, and within his understanding, the reason,
 did came out of a particular understanding of human nature and of God and of right and wrong, because everybody who says anything, even people who believe in human rights, that comes out of an enlightenment view of what life is like. Increasingly, you're going to be able, you're going to have to tell people these stories and let your students recognize how every moral claim, every claim of any sort is embedded in a worldview. You have to be able to say that, increasingly, the people at the top, the philosophers know there's no such thing as reason that is just unembedded in a particular understanding of ultimate reality, and increasingly, you're going to be able to do it too.
 
 So on the basis of common grace, on the basis of this understanding of things, I actually think that it means those of us in Christian education, like me, have to recognize the limited nature of our Christian education. Those of you who are Christians in public education have to realize, I think, real possibilities for instructing people in wisdom, and maybe increasing possibilities in talking openly about various faith views. So now, I've saying that because my guess is that when I get these questions now, I'm going to tend to refer to this basic insight that comes from the abolition of men.
+
+---
+
+首先，工作不是诅咒。很多人认为工作是诅咒。很多人认为当人类犯罪时，上帝惩罚人类工作。但这不是圣经所说的。
+
+圣经说，在创造之初，在有任何罪恶之前，上帝给人类工作做。上帝说："栽种园子。看管它。"工作是上帝给人类的礼物。
+
+工作是人类表达创造力和想象力的方式。当罪进入世界时，工作变得困难。圣经说："你必汗流满面才得糊口。"但工作本身不是诅咒。
+
+工作是好的。困难的工作是诅咒。其次，工作很重要。工作不仅仅是赚钱的一种方式。
+
+工作不仅仅是养家糊口的一种方式。工作对上帝很重要。保罗告诉信徒们："无论你做什么事，要从心里做，像是为主做的，不是为人做的。因为你们知道从主那里必得着所得的赏赐。
+
+你们要侍奉的是主基督。" **这意味着什么？这意味着当你在工作中时，即使你在做你不喜欢的工作，即使你的老板很可怕，即使没有人注意到你所做的，你仍然在为上帝服侍。**你的工作对上帝很重要。
+
+你的工作很重要，因为上帝很重要。第三，工作是有目的的。工作不仅仅是谋生。工作是为了建造、创造和贡献。
+
+想想教师。一个教师的工作是什么？一个教师的工作不仅仅是授课。一个教师的工作是改变生活。
+
+一个教师的工作是给学生装备工具，使他们能够对世界做出积极的贡献。想想医生。一个医生的工作是什么？一个医生的工作是治疗疾病。
+
+但更深层次上，一个医生的工作是照顾人。一个医生的工作是缓解痛苦。一个医生的工作是给生命。想想商人。
+
+一个商人的工作是什么？一个商人的工作是做交易。但更深层次上，一个商人的工作是创造价值。一个商人的工作是制造让人们的生活更好的东西。
+
+---
+
+## 学校选择与信仰实践 / Choosing Schools: Public, Christian, and Homeschool
 
 Okay? So I'm supposed to lead for the next 45 minutes. Well, I'm supposed to take questions and I think what this means is panel.
 
@@ -236,6 +276,32 @@ In his book, every good endeavor, Tim Keller draws from decades of teaching on v
 
 Visit gospel and life dot com slash give that's gospel and life dot com slash give. Now here's Dr. Keller with the remainder of today's teaching.
 
+---
+
+所以当我们看工作时，我们应该不仅仅看它给我们什么。我们应该看它对世界做了什么。现在，这如何改变我们对工作的态度？首先，它改变我们对诚实的态度。
+
+如果工作对上帝很重要，那么诚实就对上帝很重要。现在，在我们的文化中，有很多关于在工作中切角的压力。有压力做出不诚实的交易以获得优势。有压力隐瞒信息以赢得合同。
+
+有压力稍微扭曲真相以印象深刻的老板。但圣经说："不可有诡诈的砝码在你的包里。"圣经说诚实很重要。圣经说，即使诚实花费你，诚实也重要。
+
+当耶稣讲述一个关于管家的故事时，他说这个管家被要求处理他主人的钱。这个管家有一个机会通过做一些不诚实的事情来欺骗他的主人。但管家选择诚实。而主人说："你在小事上忠心，我要把许多事交给你。
+
+" 所以如果我们想要上帝祝福我们的工作，如果我们想要对上帝说"我的工作对你很重要"，那么**我们需要诚实。**其次，福音改变了我们对我们工作对他人的影响的态度。在我们的文化中，有很多自我中心。很多人问："这对我有什么好处？
+
+"很多人想"我能从这个得到什么？" 但圣经说："不要各人单顾自己的事，也要顾别人的事。"圣经说我们应该关心我们的工作如何影响他人。想想一个老板。
+
+一个基督徒老板应该考虑他的雇员的福祉。一个基督徒老板应该支付公平的工资。一个基督徒老板应该对待他的雇员要尊重。一个基督徒老板应该给他的雇员安全和有尊严地工作的条件。
+
+想想一个销售人员。一个基督徒销售人员应该考虑他的客户的最佳利益。一个基督徒销售人员不应该为了做一笔交易而向客户出售他们不需要的东西。想想一个教师。
+
+一个基督徒教师应该真诚地关心他的学生。一个基督徒教师应该努力工作以帮助学生学习。一个基督徒教师应该对学生的生活产生积极影响。所以福音改变了我们对工作的目的的理解。
+
+工作不仅仅是关于我们。工作是关于我们对他人的贡献。
+
+---
+
+## 世界观与课堂教学 / Faith, Worldview, and the Classroom
+
 One of the things I've noticed in reading New York Times magazine recently, I'm sure Tony being a journalist has noticed this, that increasingly when reporters are doing when they're writing articles about hot topics, instead of acting like they're the all-knowing objective omnipotent omnipresent narrator, they are making disclaimer of what where their own position is. It was interesting this article on faith in the marketplace, it was in the cover story of New York Times magazine last Sunday. The report did a great job and he came out and said in full disclosure disclaimer, here's my view.
 
 This is my religious view. Nevertheless, I'm going to say this, I'm going to try to really be fair-minded and recognize the advantages over here. And I think that's increasingly possible.
@@ -283,6 +349,36 @@ Here's justice. Here's equity. Here's love.
 Here's patience. But unless they see equity and love and patience modeled for them, they're not going to learn it. And they have to see it affirmed and reinforced that way.
 
 So if your teachers don't believe it, to the degree, your teachers believe it, and to the degree you make it a community, to that degree will be an effective school. I know it's a big fight. You want to have people ask questions?
+
+---
+
+第三，福音改变了我们对我们工作中的失败的态度。在我们的文化中，失败是可怕的。
+
+失败意味着你是一个失败者。失败意味着你不足。失败意味着你应该放弃。但圣经给了我们不同的观点。
+
+圣经说失败是学习的一部分。失败是成长的一部分。失败甚至可以是一种祝福。保罗说："我认为比什么都宝贵的是认识我的主耶稣基督。
+
+为他的缘故，我丧失了一切，把它们当作垃圾。" 保罗说的是什么？他说他曾经认为成功和成就很重要。他曾经追逐那些东西。
+
+但他失去了一切。他经历了失败。但他说这是一次成功，因为它让他更接近基督。所以从基督徒的角度来看，失败不是终点。
+
+失败不是定义。失败可以是转向上帝和寻求他的方式。现在，让我给你一个实际的例子。假设你是一个教育工作者。
+
+你是一名老师。你一直在努力改变你学生的生活。你一直在给他们最好的教学。但一个学生失败了。
+
+或者两个学生。或者很多学生。现在，这可能会令人沮丧。你可能会质疑你正在做的事情。
+
+你可能会想放弃。但从福音的角度来看，这不是失败。这是你无法改变每个学生心的提醒。这是一个提醒，有些事情超出了你的控制。
+
+这是你需要依靠上帝的提醒。你所能做的就是尽力。你所能做的就是准备尽可能好的课程。你所能做的就是关心你的学生。
+
+你所能做的就是对他们有耐心和尊重。但改变他们的生活——那是上帝的工作。所以福音释放了我们对完美的压力。福音释放了我们对完全控制的压力。
+
+福音让我们自由地做我们能做的，然后相信上帝会处理其他的。
+
+---
+
+## 在教学中持守信心与智慧 / Sustaining Faith and Wisdom in Teaching
 
 I teach high school in the South Bronx, and luckily everyone in the Bronx knows they need God, so, or something, so they let me pray for their kids. I don't really have an issue. I teach in public school.
 
@@ -424,80 +520,7 @@ Amen. Thanks for listening to today's teaching it's our prayer that you were enc
 
 ---
 
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《福音与生活》播客。如果福音不仅仅塑造你的私生活，而是改变你在世界上的表现方式，会怎样？这会最明显地表现出来的地方之一是在你的工作中。加入我们，因为蒂姆·凯勒教导福音如何改变我们对工作的态度。
-
-我想从一个问题开始：你的信仰与你的工作有什么关系？现在，对于许多基督徒来说，这个问题的答案可能是"没有什么"。他们认为他们的信仰是私人的。他们认为他们的工作是他们赚钱和养家糊口的地方。
-
-他们的信仰和工作生活在不同的盒子里。他们不相互联系。但圣经对此有不同的看法。圣经说信仰应该改变你生活的一切。
-
-信仰应该改变你如何工作。信仰应该改变你对工作的态度。信仰应该改变你对为什么工作的理解。让我给你几个圣经关于工作的教导。
-
-首先，工作不是诅咒。很多人认为工作是诅咒。很多人认为当人类犯罪时，上帝惩罚人类工作。但这不是圣经所说的。
-
-圣经说，在创造之初，在有任何罪恶之前，上帝给人类工作做。上帝说："栽种园子。看管它。"工作是上帝给人类的礼物。
-
-工作是人类表达创造力和想象力的方式。当罪进入世界时，工作变得困难。圣经说："你必汗流满面才得糊口。"但工作本身不是诅咒。
-
-工作是好的。困难的工作是诅咒。其次，工作很重要。工作不仅仅是赚钱的一种方式。
-
-工作不仅仅是养家糊口的一种方式。工作对上帝很重要。保罗告诉信徒们："无论你做什么事，要从心里做，像是为主做的，不是为人做的。因为你们知道从主那里必得着所得的赏赐。
-
-你们要侍奉的是主基督。" **这意味着什么？这意味着当你在工作中时，即使你在做你不喜欢的工作，即使你的老板很可怕，即使没有人注意到你所做的，你仍然在为上帝服侍。**你的工作对上帝很重要。
-
-你的工作很重要，因为上帝很重要。第三，工作是有目的的。工作不仅仅是谋生。工作是为了建造、创造和贡献。
-
-想想教师。一个教师的工作是什么？一个教师的工作不仅仅是授课。一个教师的工作是改变生活。
-
-一个教师的工作是给学生装备工具，使他们能够对世界做出积极的贡献。想想医生。一个医生的工作是什么？一个医生的工作是治疗疾病。
-
-但更深层次上，一个医生的工作是照顾人。一个医生的工作是缓解痛苦。一个医生的工作是给生命。想想商人。
-
-一个商人的工作是什么？一个商人的工作是做交易。但更深层次上，一个商人的工作是创造价值。一个商人的工作是制造让人们的生活更好的东西。
-
-所以当我们看工作时，我们应该不仅仅看它给我们什么。我们应该看它对世界做了什么。现在，这如何改变我们对工作的态度？首先，它改变我们对诚实的态度。
-
-如果工作对上帝很重要，那么诚实就对上帝很重要。现在，在我们的文化中，有很多关于在工作中切角的压力。有压力做出不诚实的交易以获得优势。有压力隐瞒信息以赢得合同。
-
-有压力稍微扭曲真相以印象深刻的老板。但圣经说："不可有诡诈的砝码在你的包里。"圣经说诚实很重要。圣经说，即使诚实花费你，诚实也重要。
-
-当耶稣讲述一个关于管家的故事时，他说这个管家被要求处理他主人的钱。这个管家有一个机会通过做一些不诚实的事情来欺骗他的主人。但管家选择诚实。而主人说："你在小事上忠心，我要把许多事交给你。
-
-" 所以如果我们想要上帝祝福我们的工作，如果我们想要对上帝说"我的工作对你很重要"，那么**我们需要诚实。**其次，福音改变了我们对我们工作对他人的影响的态度。在我们的文化中，有很多自我中心。很多人问："这对我有什么好处？
-
-"很多人想"我能从这个得到什么？" 但圣经说："不要各人单顾自己的事，也要顾别人的事。"圣经说我们应该关心我们的工作如何影响他人。想想一个老板。
-
-一个基督徒老板应该考虑他的雇员的福祉。一个基督徒老板应该支付公平的工资。一个基督徒老板应该对待他的雇员要尊重。一个基督徒老板应该给他的雇员安全和有尊严地工作的条件。
-
-想想一个销售人员。一个基督徒销售人员应该考虑他的客户的最佳利益。一个基督徒销售人员不应该为了做一笔交易而向客户出售他们不需要的东西。想想一个教师。
-
-一个基督徒教师应该真诚地关心他的学生。一个基督徒教师应该努力工作以帮助学生学习。一个基督徒教师应该对学生的生活产生积极影响。所以福音改变了我们对工作的目的的理解。
-
-工作不仅仅是关于我们。工作是关于我们对他人的贡献。第三，福音改变了我们对我们工作中的失败的态度。在我们的文化中，失败是可怕的。
-
-失败意味着你是一个失败者。失败意味着你不足。失败意味着你应该放弃。但圣经给了我们不同的观点。
-
-圣经说失败是学习的一部分。失败是成长的一部分。失败甚至可以是一种祝福。保罗说："我认为比什么都宝贵的是认识我的主耶稣基督。
-
-为他的缘故，我丧失了一切，把它们当作垃圾。" 保罗说的是什么？他说他曾经认为成功和成就很重要。他曾经追逐那些东西。
-
-但他失去了一切。他经历了失败。但他说这是一次成功，因为它让他更接近基督。所以从基督徒的角度来看，失败不是终点。
-
-失败不是定义。失败可以是转向上帝和寻求他的方式。现在，让我给你一个实际的例子。假设你是一个教育工作者。
-
-你是一名老师。你一直在努力改变你学生的生活。你一直在给他们最好的教学。但一个学生失败了。
-
-或者两个学生。或者很多学生。现在，这可能会令人沮丧。你可能会质疑你正在做的事情。
-
-你可能会想放弃。但从福音的角度来看，这不是失败。这是你无法改变每个学生心的提醒。这是一个提醒，有些事情超出了你的控制。
-
-这是你需要依靠上帝的提醒。你所能做的就是尽力。你所能做的就是准备尽可能好的课程。你所能做的就是关心你的学生。
-
-你所能做的就是对他们有耐心和尊重。但改变他们的生活——那是上帝的工作。所以福音释放了我们对完美的压力。福音释放了我们对完全控制的压力。
-
-福音让我们自由地做我们能做的，然后相信上帝会处理其他的。现在，总而言之，我想说这个。许多基督徒正在努力工作。许多基督徒对他们的工作感到沮丧。
+现在，总而言之，我想说这个。许多基督徒正在努力工作。许多基督徒对他们的工作感到沮丧。
 
 许多基督徒认为他们的信仰与他们的工作无关。但如果他们真的相信福音，如果他们真的相信耶稣改变了一切，那么他们的工作也应该改变。他们应该与诚实地工作。他们应该关心他们工作对他人的影响。
 

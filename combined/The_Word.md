@@ -4,67 +4,7 @@
 
 ---
 
-## 引言 欢迎来到生命中的福音。今天，蒂姆·凯勒将从约翰福音第一章开始讲解一个段落。约翰并没有从牧羊人或天使的角度开始叙述基督的诞生，而是探讨了道成为肉身的奥秘。上帝自己以耶稣基督的人格进入世界，与我们同在。
-
-Welcome to Gospel in Life. Today, Tim Keller is looking at a passage from the opening chapter of the Gospel of John. John begins his account of Christ's birth, not the shepherds or angels, but with the mystery of the word becoming flesh.
-
-God himself, entering the world as a person in Jesus Christ, join us as Tim Keller explores the meaning of Jesus' birth. Tonight's scripture comes from the book of John, chapter 1, verses 1 through 11. In the beginning was the Word, and the Word was with God, and the Word was God.
-
-He was with God in the beginning. Through Him, all things were made, without Him, nothing was made that has been made. When Him was life, and that life was the light of all mankind, the light shines in the darkness, and the darkness has not overcome it.
-
-There was a man sent from God, whose name was John. He came as a witness to testify concerning that light, so that through Him all might believe. He himself was not the light.
-
-He came only as a witness to the light. The true light that gives light to everyone was coming into the world. And though the world was made through Him, the world did not recognize Him.
-
-He came to that which was His own, but His own did not receive Him. This is the Word of the Lord. Well, we're going to be doing for the weeks of Advent, which are the four weeks going up to Christmas.
-
-It's taking a look at the first chapter of John. We've been in John chapter 13 to 17. We're looking at the first chapter, because John chapter 1 is about Jesus coming into the world.
-
-It's basically John's way of talking about the meaning of Christmas. And even though there's many things that can be said about this very, very famous passage, seven times the word light shows up here. So you see where I circled it?
-
-Can you see the only? Seven times the word light. And though there will be other themes in here, I think we need to ask ourselves, what is this telling us about light also?
-
-You all know that light in the darkness is really one of the ways that throughout history, Christmas has been celebrated. It's one of the symbols as lighting candles and lights on trees and lights at night. What is that all about?
-
-Let's just take a look at how simply these first 11 verses of the gospel of John tell us that we need light, human beings need a light, that there is a light, and then how we can connect to it, how we can receive it. We need light, there is a light, and how we can receive it. Now, first of all, the need for light, especially since verses 4 and 5, in him was life, and that life was the light of all mankind.
-
-The light shines in the darkness, and the darkness is not overcome. Now, see here in verse 4, obviously there's light and there's lights, and here's lights, and you see the lights. But there is something that down in verse 9 is called the true light, that everyone needs, and in verse 4 is the light of mankind, which means there's a kind of light that we all need.
-
-But we're also told in these verses that our relationship with that true light is, how do you say it? It's very fraught, because obviously as we're going to get in a minute, down to verse 9 and 10, it talks about when the true light came into the world, it was rejected. But here in verse 5, it says that in a sense the true light came into the dark world, and it says, the darkness has not overcome it.
-
-Now, actually, if you've read this passage in more than one translation, you know that the translators often come up with fairly different takes on how to translate that word. Sometimes it says the darkness has not comprehended it. I think one of the older translations says, the light shines in the darkness, and the darkness comprehended it not.
-
-And sometimes the word here is overcome. Now, you say, well, that's pretty different. Well, yes and no.
-
-It's a single Greek word, but it's a word with, you might say, planned ambiguity in it. It's really like our English word master. Now, think about what it means to master something.
-
-Sometimes to master something means to extinguish it, to fight with it and extinguish it. So, you master your fears, means you're trying to get rid of them. You master your fears, you're really trying to just, you know, you're trying to fight them, control them, and extinguish them.
-
-But if you master a subject, you're not trying to just, you're trying to understand it. To say, I mastered that subject, I got it, understood it. So, which is it?
-
-Well, this word means both of those things, and it's probably deliberately ambiguous, which means John is trying to say that there's a true light that human beings need. But we not only are hostile to it, but we're clueless about it. We're not only hostile to it, we're clueless about it.
-
-And so, what it's actually saying is the world is a dark place, and we do not know how to enlighten ourselves. Now, let's go a little further with this idea of light. When the Bible talks about light and darkness, what is that symbolism?
-
-Well, it's really that hard, it's what it, you'd think it means. First of all, to be dark sometimes means evil and suffering. Darkness means evil and suffering.
-
-We talk about the dark times in our lives, so we're in a dark place in our lives. And evil and suffering can have many, many, many forms. You know, when Jesus was born, if you go to the book of Matthew, it tells us that Herod found out that there was someone born who was supposed to be the prophesied future king.
-
-Herod decided to kill all the children in the village of Bethlehem to make sure there was no future claimant to the throne. Mary and Joseph got away but had to go to Egypt. And so, you have refugees, and you've got violence, and you've got injustice, and you've got war and grief, and sorrow, and broken families and bereavement, and you know, just like now.
-
-The world's a dark place, the world continues to have all those things. So, when we talk about darkness, it can mean the world is filled with evil and suffering. But darkness can also mean ignorance.
-
-You know, if I'm in a dark room, I don't know what's in the room, and I'm stumbling, and I'm falling, because I'm in a dark, meaning to be in the dark can mean evil and suffering. The meaning of dark, I can't see reality. And again, what this means is to say the world is a dark place, is to say the world is filled with evil and suffering, and we don't have the ability or the knowledge to know how to solve it.
-
-The world is filled with evil and suffering, and we do not have the ability or knowledge to know how to solve it. Now, this is the very first, you might say, clue to what the Bible says, the meaning of Christmas, the meaning of Jesus coming in the world is. And that is, this world is a dark place, and if there is going to be any light, it has to come from outside the human race.
-
-Matthew quotes Isaiah. It's a very famous passage. Isaiah chapter 9, partly because it got into Handel's Messiah, but Isaiah 9 says, the people living in darkness have seen a great light.
-
-On those living in the land of the shadow of death, a light has dawn. And that's Matthew's way of talking about, Jesus came into the world, means that we're in darkness, and light has come in the world from outside the human race. Now, I want you to know what I'm about to tell you.
-
-I mean, pardon me, what I just told you, which is one of the messages of Christmas, the world's a dark place, filled with evil and suffering. We do not have the ability or knowledge to know how to solve it ourselves. If there is light or help, it's going to have to come from outside the human race.
-
-Everything in our culture is conditioning us to not believe that. Everything in our culture is against that. And this is a problem because Christmas is not going away.
+## 圣诞的奥秘 / The Mystery of Christmas
 
 It is a commercial bananso. They will never be able to get rid of Christmas, ever. And at least not in the foreseeable thousand years.
 
@@ -132,6 +72,56 @@ Now, here's Dr. Keller with the remainder of today's message. How many people ar
 
 How many people are there like that? Not many, right? And the ones that can do that are in the most intimate relationship possible, right?
 
+---
+
+他们永远无法彻底消除圣诞节，至少在未来千年内不会。因此，当圣诞的信息与文化告诉我们的完全相反时，我们该怎么办？答案是：文化会不断试图重新定义圣诞节。几年前，我在《纽约时报》上看到一则广告： 这是一则圣诞广告，也是一家公司的商业广告。
+
+但他们说了这样的话：“圣诞的意义在于爱将战胜一切，我们将能够建立一个和平统一的世界。” 好的，这段广告说，圣诞节的意义在于只要我们齐心协力，就能做到。我们可以创造一个和平统一的世界，而这恰恰与圣诞节的信息完全相反。因为，圣诞的信息不是“光明已经降临”，而是“光明已经显现”。
+
+这来自我们之外的地方。我们无法自己产生这种光芒。我们甚至不知道如何解决自己的问题或麻烦。我们做不到。
+
+这是与圣诞节信息的对立面。然而，原谅我，这就是圣诞节的信息，但文化会不断地试图重新塑造它，但这不会奏效。瓦洛赫·哈瓦曾是捷克共和国的第一任总统，他既经历过社会主义时代，也经历了自由市场经济时代。你知道他说过什么吗？
+
+他说，这两种制度都无法解决人类最大的问题。事实上，他说，技术和科学可以告诉你能做什么，以及如何高效地去做，但它们永远无法告诉你是否应该去做。因此，他说，无论是技术、政府还是市场都不能拯救我们免于核战争、环境恶化或种族暴力。他说："追求美好生活不会帮助人类自救，民主本身也不足以解决问题。
+
+转向和寻求上帝是必要的。" 人类总是忘记了这一点，而这正是圣诞节的信息。### 二、有光：三一神的荣耀 #### 耶稣既是神，又与神同在 所以这个世界很黑暗，这是0.1。但0.2，这里还告诉我们有光。
+
+是的，这光来自人类之外，但确实有光存在。那么它在哪里呢？现在让我们看看第1、2和3节。顺便说一下，在第14节中，我们没有读到的内容，接下来几周我们会读到，那里写着"神的话就是耶稣"。
+
+现在我再回到这个“道”这个词，但目前你们可以把这个词理解为耶稣。因为接下来在这一章里，圣经告诉我们，“道”就是指耶稣。我们来读一读，来看一下第一节说了什么。在起初有道，道与神同在，道就是神。
+
+好，我们现在就停在这里。这段话可能对你们来说很熟悉了，你们之前也听过，但让我来展示给你们看，当这两个真理被放在一起时，是多么恰到好处又令人震惊。首先，它告诉我们耶稣是神。圣经没有说耶稣是一个神。
+
+原文中没有任何冠词，在希腊文里也没有冠词。圣经不是说耶稣基督是一个神，而是说耶稣基督就是神。如果说是耶稣是一个神，那就意味着有多个神了，对吧？圣经并没有这么说。
+
+它说的是你们知道的那位唯一的神，耶稣就是那位唯一的神。但紧接着，它又说耶稣是神，并且与神同在。这里的“与”字表示一种关系。实际上，在福音书里稍后的地方，特别是在马可福音中，提到耶稣选择十二个门徒时说，祂拣选他们是要与他们同在。
+
+与某人同在意味着要和祂一起生活，成为祂的密友，建立一个爱的关系，进行最亲密的交流和相爱的关系。因此，“与”这个词在圣经里表示一种与神的关系。所以这里的意思是：只有一个神，耶稣就是神，并且耶稣与神之间有着爱的关系；耶稣是神，并且耶稣与神之间也有着爱的关系。即使这里的圣灵没有被提到，在圣经的其他地方提到了圣灵，但这里我们得到的信息是：只有一个神，不是三个神，只有一个神。
+
+#### 三一神的爱与关系 但是在这一个神，父、子、圣灵之中，却没有彼此相爱。虽然只有一个神，但在这个独一的神里头有三位，从永远到永远，彼此都知晓对方。圣经上说："万物是借着祂造的；凡被造的，没有一样不是借着祂造的。"**这意味着耶稣基督并不是被创造出来的，而是通过祂创造了万物。**
+
+这就意味着父、子、圣灵从起初就彼此相爱。只有基督教宣称，在神的心中正是这样的关系。神的核心是一个动态的关系。从永远到永远，在神的本质里头有三位彼此知晓、彼此相爱、彼此荣耀和彼此敬拜，并且从永远到永远彼此相爱并彼此交流。
+
+在神里面有一个爆炸性的、动态的、无限强大的关系网络。因此，生命的意义就在于爱的关系。你看，如果只有一个神，只有一个人格，然后这个神创造了其他生物，那么爱就会出现在后来，对吧？有力量和后才有爱，不是吗？
+
+如果只有一个神，只有一种人格，一个单独的人格创造其他生物，那你怎么会有爱，除非有了其他生物，对吧？其他的人。所以首先神是有力量的，然后后来才有了爱。但如果有三一神，如果是父、子、圣灵从永远到永远，那么爱就是第一位的。
+
+爱是最重要的一件事，关系也是最重要的事，交流更是最重要的事。让我再进一步说。我认为这段圣经其实是要让我们惊讶。当圣经说神是爱时，我们可能以为这只是意味着神在某种程度上是爱。
+
+不，不是这样。神远不止如此。从永恒之初，神在创造世界之前，在祂做任何其他事情之前，就已经是爱了，而且是动态的爱、人际关系中的爱和友谊。约翰福音1:18 也没有提到这一点，但在这节经文中，你们中的一些人可能知道，因为它非常著名，这段话这样说：“从永恒之初，子已在父的怀中。
+
+”我认为，通过使用这种语言，约翰显然是想让你花一分钟时间发挥一下想象力。那么，让我们一起想象一下。随着2025年的结束，新的一年即将到来，这并不令人意外，因为我们对未来的希望很大。因为有你们的帮助，神正在通过我们在播客、YouTube频道、广播节目、季度期刊和网站上提供的福音教导和资源带领人们归信，并使基督徒们得着更新。
+
+我们感谢许多与我们合作的人士，共同传播基督的爱的信息。感谢您。神继续为我们提供扩展福音分享方式的机会。在2026年，我们预计会增加新的国际广播节目，并建立更多的在线事工合作伙伴关系，出版新书，并开始将巴刻博士的讲道翻译成其他语言。
+
+因此，在这一年结束之际，我们邀请你们祷告地考虑为“生命中的福音”做出年终捐款。年终捐款是我们准备2026年事工的重要部分。您的支持使我们能够向超过200个国家的人们分享福音的故事，并且我们非常感谢您参与这项使命。要进行年终捐款，请访问 gospelonlife.com/slash-give。
+
+这是gospelonlife.com/slash-give。并且请为我们将您的礼物善用祷告，愿通过“生命中的福音”的事工，许多新人都能找到认识基督作为救主的希望和喜乐。感谢您与我们合作，共同向需要祂的世界传播基督的爱，因为福音确实改变了所有的一切。现在，让我们听戴尔·辛格勒博士继续今天的讲道。
+
+---
+
+## 藉话语认识上帝 / Knowing God Through the Word
+
 So I think this is what we're being asked. If you want to understand who God is and what God is like, then you have to start to imagine the time in your life when you felt the most loved. Now multiply that by a trillion, trillion, trillion.
 
 Imagine the time in your life when you felt the most understood, the most appreciated, the most adored, the most secure, the most significant. And you remember the joy of that, okay? And it's impossible almost to hold on to that because we're selfish beings.
@@ -198,6 +188,56 @@ You know how different that is? From ancient paganism and modern secularism. Anc
 
 There were these multiple power centers called gods. There was all these different gods and they fought with each other. And that's how the earth got created.
 
+---
+
+世界上有多少人，在你躺在沙发上时，不用问 permission，就能走到你身边躺下来，并且你觉得这很舒服？这样的关系有多少？不多吧？而能够这样的人处于最亲密的关系中。
+
+所以我想这就是我们被要求去思考的问题。如果你想了解上帝是谁和上帝是怎样的，那么你需要开始想象你生命中最感到被爱的时刻。然后将那个感觉放大到万亿万亿万亿倍。想象一下你生命中最感到理解、欣赏、宠爱、安全和重要的时刻，并记住那种喜悦的感觉。
+
+几乎不可能抓住这种感觉，因为我们都是自私的人。即使在一段好的婚姻中，这样的时刻也会来去匆匆。即使是最好的婚姻，这些时刻也只是短暂的，因为我们都倾向于自私，只想接受而不是给予，所以我们常常会争执。因此，那些我们感到最幸福、最被爱、最快乐和最受宠的时刻是转瞬即逝的。
+
+而且是不完全的。现在想象三个完美的人格，他们总是彼此相爱并荣耀对方。他们从不说你必须为我服务，而是永远互相服侍。他们彼此毫无保留地奉献自己，从无穷无尽的时间开始就是如此。
+
+所以你需要将你生命中体验到的一点这样的时刻放大到万亿万亿万亿倍，那就是上帝。上帝是无限的快乐。上帝是无限的爱。上帝正在经历着爱和喜悦。
+
+圣父和圣灵不断地在彼此的灵魂中倾注欢乐、爱和荣耀，他们沉浸在彼此的欢乐之中，沉浸在彼此的爱之中。他们因此是无限的快乐，无限的欢喜，无限的爱。那么，上帝为什么创造其他生物来与之分享这一切？为什么上帝要创造具有上帝形象的生命？
+
+这样我们就可以彼此之间以及与上帝一起分享这一切。#### 光就是神的爱 现在你可能会问，这和主题有什么关系呢？一切都有关系。因为我要向你们展示的是：约翰一书1:5的内容，在约翰写三封信及《约翰福音》的时候。
+
+约翰一书1:5说："这就是我们从主那里所听见、现在也报给你们听的：神就是光，在他毫无黑暗。" 那么，什么是光呢？这有点抽象。什么是光？
+
+这就是光。你知道为什么这是光吗？因为这种无限的爱，这种脉动的爱。这不是一种泛泛的情感。
+
+我们在谈论实际的互动和交流。这就是**我们需要的光。**为什么？让我们看看我们的黑暗吧。
+
+这个世界上的每一点邪恶与痛苦，这个世界的黑暗。最根本的是什么？总是缺乏爱。是失去了爱。
+
+什么是战争？什么是种族主义？什么是不公？什么是犯罪？
+
+什么是暴力？什么是离婚？什么是破碎的家庭？什么是失去亲人？
+
+什么是悲伤？什么是哀痛？它是什么？总是爱的缺失。
+
+总是缺乏爱，永远如此。这就是我们的黑暗。那么我们为什么会有问题呢？为什么我们不能自己发光呢？
+
+因为我们自私。因为心中有一种想法：我第一。这里有一个关于人性的巨大讽刺。我们渴望爱。
+
+我们比任何东西都更渴望爱。这使我们的生活有意义。我们都明白这一点。你知道，没有人会说他们希望在办公室多待些时间。
+
+没有人会说他们希望自己赚更多的钱。他们都表示希望花更多的时间与所爱的人在一起。希望改善人际关系。这就是生活的意义。
+
+然而同时，我们内心深处有一种想法：我第一。您服侍我。这就是爱的终结。爱就是您首先为我做的。
+
+我要服侍您。而上帝知道这一点。上帝无限地知道这一点。因为上帝因此是无限无私和充满爱的，祂是无限快乐的。
+
+而我们没有这样的能力。所以我们处于黑暗中，**我们需要那道光。**#### 基督教世界观与其他观点的对比 顺便说一句，在继续讨论我们如何得到它之前，请记住基督教对世界的看法有多么不同。基督教宇宙观是因为我们相信在起初有一个彼此相爱的神——圣父、圣子和圣灵，从无始以来就相互爱着。
+
+你知道这有多不同吗？与古代多神教和现代世俗主义相比。古代多神教认为世界是如何形成的？那里有多个权力中心被称为诸神，有许多不同的神祇，它们互相争斗。
+
+---
+
+## 超越古代多神论 / Beyond Ancient Paganism
+
 And that's how this and that happened. So, in other words, ancient paganism believed the world at its heart was multiple power centers struggling against each other, power struggle. Modern secularism doesn't believe in gods.
 
 No, but it believes in an impersonal universe, impersonal. And it believes that the world got here through violent forces and that human beings evolved through survival of the fittest, nature red and tooth and crock claw, the strong eating the weak. So ancient paganism and modern secularism say the essence of the world is power and struggle.
@@ -263,6 +303,56 @@ The agony and pain he experienced on the cross, that loss of love was greater th
 Number one, objectively, our sins are forgiven. So when I say father forgive me because of what Jesus did, God can forgive my sins and now come into my life and begin to start to fill me with His love. So that I begin to be somebody who actually can start to love other people and you can become someone who can love other people.
 
 It's a matter of money. Listen, it's very, very, very hard to be really generous to people when you can't pay your own light bill. But if you have a lot of money, then it's easier to be generous.
+
+---
+
+于是地球就这样被创造了。这就是这一切发生的原因。换句话说，古代多神教相信世界的本质是多个权力中心相互斗争，是一种力量的斗争。现代世俗主义不信仰神明， 但认为宇宙是无生命的，且世界通过暴力的力量形成，并且人类通过适者生存进化而来，自然红牙利爪，强者吃弱者。
+
+所以古代多神教和现代世俗主义说世界的本质是权力与斗争。而基督教则说，在起初有见证。在起初有爱。无限的爱，无尽的爱，强大的爱。
+
+而这爱就是**我们需要的光。**### 三、如何得到光：十字架与道 #### 耶稣被拒绝与钉十字架 第三点，那么我们如何得到它呢？它是如何发生的？显然，正如约翰福音开头所描述的那样，整本约翰福音都在讲述这一点。
+
+所以我们必须向前看，但这里甚至有一个暗示。就在下面最后一段中。**真正的光，这是**第9、10、11节的内容：**真正的光是**照亮每个人的光，正进入世界。他在世界里，虽然世界是藉着他造的，世人却不认识他。
+
+他来到自己的地方，自己的人倒不接待他。这段话的意思其实很简单。耶稣基督来到这个世界是要被拒绝的。他知道会遭到拒绝。
+
+但最大的拒绝是他自己的人不仅没有接受他，反而杀了他。他来到我们中间。我们就是他的“自己”。他是创造我们的，参见1节和2节。
+
+他创造了我们。如果你造了什么东西，那就是你的。他创造了我们。不仅如此，当然，他是我们的真光。
+
+**我们需要他，但他被拒绝了，并且被钉死了。**为什么呢？因为这是我们心中的黑暗。我们渴望爱，但同时又害怕有人进来要求我们服侍他。
+
+我不愿意服侍任何人。我的内心想要掌控一切。所以耶稣基督必须克服自己和上帝之间的障碍。#### 十字架上的黑暗：失去无限的爱 圣经说，我们和上帝之间有一道屏障。
+
+他是怎么做的？他去了十字架，在那里发生了两件事。黑暗降临了。那是白天。
+
+是白天。但马太福音27章45节说，在白天中间，变得完全黑暗。黑暗降临了。为什么？
+
+世界的光降入了黑暗之中。但这只是象征性的。同时，他在十字架上喊叫，下一节经文说，黑暗降临了。第45节，马太福音27章45节。
+
+而马太福音27章46节说：“他便大声呼叫：‘我的上帝，我的上帝，为什么离弃我？’”你看，我们在这里已经把光和爱联系起来了。把黑暗和自私联系起来。那么让我们再做一下这个联系。
+
+耶稣在十字架上发生了什么？每小时，黑暗降临了。内心深处，黑暗也在降临。那是什么？
+
+那就是失去爱。耶稣基督去到十字架上承担了我们罪该受的惩罚。自私的惩罚是什么呢？自私就是失去爱。
+
+如果你在一个婚姻中，双方都自私，不需要有人来发现你们。停止自私。这每天要花一千美元。不，你正在失去爱。
+
+你们彼此疏远了。这很糟糕。而且在友谊中也是如此。在家庭中也是如此。
+
+到处都是如此。那么，自私该受到什么样的惩罚呢？它总是会得到这样的惩罚：失去爱。哦天哪，但请看看耶稣所经历的。
+
+要知道，耶稣为全世界人的罪受苦赎罪、承担惩罚的原因是这个。咨询师和心理学家会告诉你，但你不需要他们来告诉你，因为你对此有直觉上的认识。那就是没有比配偶因死亡或离婚而失去更痛苦的事情了，也没有比失去爱更大的心理创伤之痛。为什么？
+
+因为这是一种非常深沉的爱，是最亲密的关系之一，无论以何种方式失去它都是很糟糕的。哦天哪，但请不要忘记，即使你们已经结婚六十年，即使你们有过一段美好的婚姻，两个人之间也只能相爱到一定的程度，但是父亲和儿子从永恒中就彼此相爱得完美无缺，你能想象吗？如果你现在不因失去爱而痛苦不已，并且你是以我们有限的无限方式存在的，那么耶稣在十字架上所经历的痛苦会有多么巨大呢？想想那种痛苦。
+
+想想耶稣在十字架上所经历的地狱般的煎熬。耶稣在十字架上所经历的痛苦和煎熬，那失去爱之痛是如此之大，比你我曾经经历过的任何事情都要大得多，就像核弹头的力量要比橡皮筋爆裂的声音大得多。他为我们受苦赎罪。#### 通过十字架连接到光明 这就是连接到光明的关键所在。
+
+首先，客观地说，我们的罪得到了赦免。所以当我祈求父亲原谅我的时候，因为耶稣所做的一切，上帝可以赦免我的罪，并进入我的生命中开始填充我对他的爱。这样我才能成为一个真正能够去爱别人的人，你也能成为能去爱别人的人。金钱的问题。
+
+---
+
+## 道成肉身 / The Word Made Flesh
 
 A lot of people aren't generous with it, but it's at least possible. And the same thing with love, it's very hard to love other people and not be selfish when your own insights are so needy. When you don't feel very lovable yourself, but when God's love starts to pour in through the cross, when you see that Jesus Christ lost infinite love out of love for you, that begins to melt your heart, and that begins to fill you up.
 
@@ -331,180 +421,6 @@ If you'd like to see more people encouraged by the Gospel Center teaching and re
 That website again is gospelonlife.com slash partner. Today's sermon was recorded in 2016. The sermons and talks you hear on the Gospel and Life podcast were recorded between 1989 and 2017, while Dr.
 
 ---
-
-今晚，我们将一同聆听蒂姆·凯勒如何探索耶稣降生的意义。### 经文阅读：约翰福音 1:1-11 今天的经文出自约翰福音第一章1至11节："起初有道，道与神同在，道就是神。" 他在起初就与神同在。通过他造就有了万物；凡被造的，没有一样不是通过他造的。
-
-生命在他里头，这生命就是人的光。光是照亮每个人生命的真光，来到黑暗中，黑暗并没有胜过它。有一个从神差来作见证的人，名叫约翰。他来为要作见证，将那生命指给人看，叫人藉着他可以信生命。
-
-他自己并不是那光，不过是要为那光作见证。那真正照亮一切人的光是已经来到这世界了；他在世界上，世界也是借着他造的，世界却不认识他。他到自己的地方来，自己的人倒不接待他。这话是真确的：他们不喜欢光，恐怕他们的行为显露出来。
-
-这是主的话语。### 讲道框架：**我们需要光，有光，以及如何接收光 接下来的几周我们将进入圣诞季，也就是从圣诞节前四个星期开始。**我们将会重温约翰福音第一章的内容。之前我们已经研读了约翰福音第十三章到第十七章，现在回到第一章，因为约翰福音第一章正是在讲述耶稣如何来到这个世界。
-
-这其实也是约翰对圣诞节意义的一种阐述。尽管这段非常著名的经文有许多可以探讨的地方，但其中"光"这个词出现了七次。你看我圈出来的部分吗？你能看到那里有七次提到"光"吗？
-
-在这段经文中虽然还有其他主题，但我认为**我们需要问自己一个问题：这在告诉我们关于光的什么意义呢？你们都知道，在黑暗中点亮灯光是圣诞节庆祝的一个重要方式之一。**这是通过点燃蜡烛、树上的灯饰和夜晚的灯光来象征的。这一切背后的意义是什么呢？
-
-让我们看看约翰福音前11节是如何简单地告诉我们，**我们需要光，人类需要光，有光，并且我们如何能连接到它、接受它。****我们需要光，有光，以及我们如何可以接收它。**### 一、**我们需要光：世界的黑暗 #### 黑暗的含义：邪恶、苦难与无知 首先，关于对光的需求，尤其是在4和5节中，"在他里头有生命，这生命就是人的光。**" 光在黑暗中照耀，黑暗却没有胜过它。
-
-现在，请注意，在第4节中明显提到了光和灯光，而在第5节中又出现了“光”，你们看到了这些光。但这里有一个**真正的光（the true light），是**每个人都需要的，而这个**真正的光在第9节中被提及了。第4节提到的是**人的光（light of mankind），**这意味着有一种光是我们所有人所需要的。**然而，在这些经文中也告诉我们，我们与这种真正之光的关系如何？
-
-用英文怎么说呢？这关系很复杂，因为显然正如稍后在第9和10节中所讲的，当真正的光来到这个世界时，它被拒绝了。但在第5节中说，从某种意义上来说，真正的光进入了黑暗的世界，并且说：“黑暗没有胜过它。” 实际上，如果你读过这段经文的不同译本，你会发现翻译者常常对这个词有不同的处理方式。
-
-有时会翻译成“黑暗没有理解它”，而较早的译本可能会说，“光在黑暗中照耀，黑暗没有理解它。” 有时这个词被翻译为“胜过”（overcome）。现在你可能会想，这差别很大吧？是的，但也不完全是这样。
-
-这是一个单一的希腊单词，但它是一个具有所谓计划性模糊性的词。这个词就像我们英语中的“master”一样。想想什么是掌握某物的意思。有时掌握某物意味着消灭它，与之斗争并将其熄灭。
-
-所以，你克服恐惧（master your fears）意味着你试图摆脱它们。你克服恐惧，实际上是在努力控制和熄灭它们。但是如果你掌握了某个科目，你不是试图去记住它，而是试图理解它。你要说的是：“我掌握了这个科目，我懂了。
-
-”那么是哪一个意思呢？这个词的意思就是这两个方面，而且可能是故意模棱两可的，**这意味着约翰想要说，人类需要一种**真正的光明。**但我们不仅对这种光明怀有敌意，甚至对此一无所知。我们不仅是**怀着敌意，更是无知。
-
-所以这句话实际上是在说：世界是一个黑暗的地方，而我们不知道如何照亮自己。现在让我们再深入探讨一下光的概念。当圣经提到光明和黑暗时，这个象征主义是什么意思呢？这其实是非常明显的，它就是字面上的意思。
-
-首先，“黑暗”有时意味着邪恶和苦难。黑暗就意味着邪恶和苦难。我们谈论生命中的艰难时期，所以我们在生命的某个阶段处于黑暗之中。邪恶和苦难可以有多种形式。
-
-你知道，在耶稣出生的时候，如果你去看马太福音，它告诉我们希律王得知有人被预言为未来的国王出世了。希律王决定杀死贝特勒姆村的所有婴儿以确保没有未来对王位的威胁。玛丽亚和约瑟夫逃走了，不得不去埃及避难。于是你有难民、暴力、不公、战争、悲伤、破碎的家庭和失去亲人的情况，就像现在一样。
-
-世界是一个黑暗的地方，世界仍然充满邪恶和苦难。但“黑暗”也可以意味着无知。你知道，在一个黑暗的房间里，我不知道房间里有什么，我摸索着走动，因为我在黑暗中跌倒了。也就是说，“在黑暗中”的意思就是看不见现实。
-
-同样地，说这个世界是黑暗的，意思是这个世界充满了邪恶和苦难，而我们没有能力或知识知道如何解决这些问题。这个世界充满了邪恶和苦难，我们没有能力也没有知识去解决这些问题。现在，这可能是圣经中关于圣诞节意义的第一个线索——耶稣来到这个世界的意义。那就是，这个世界是一个黑暗的地方，如果要带来光明，就必须来自人类之外。
-
-马太引用以赛亚的话。这是一个非常著名的段落，出自以赛亚书9章，部分原因是它被融入了海顿的《弥赛亚》中。以赛亚书9章说：“住在黑暗中的百姓看见了伟大的光。”“那些生活在死亡阴影中的人，光明已经照耀他们。
-
-” 这就是马太谈论耶稣来到这个世界的方式——意味着我们身处黑暗之中，而光明从人类之外来到了这个世界。#### 文化对圣诞信息的曲解 现在我要告诉你的是： 请原谅我，刚才我说的其中一条圣诞信息是：世界是一个黑暗的地方，充满了邪恶和苦难。我们没有能力也没有知识去自己解决这些问题。如果要带来光明或帮助，那必须来自人类之外。
-
-我们的文化一直在对我们进行这样的引导，让我们不相信这一点。我们的文化与之背道而驰。这是一个问题，因为圣诞节不会消失。它已经成为一种商业现象。
-
-他们永远无法彻底消除圣诞节，至少在未来千年内不会。因此，当圣诞的信息与文化告诉我们的完全相反时，我们该怎么办？答案是：文化会不断试图重新定义圣诞节。几年前，我在《纽约时报》上看到一则广告： 这是一则圣诞广告，也是一家公司的商业广告。
-
-但他们说了这样的话：“圣诞的意义在于爱将战胜一切，我们将能够建立一个和平统一的世界。” 好的，这段广告说，圣诞节的意义在于只要我们齐心协力，就能做到。我们可以创造一个和平统一的世界，而这恰恰与圣诞节的信息完全相反。因为，圣诞的信息不是“光明已经降临”，而是“光明已经显现”。
-
-这来自我们之外的地方。我们无法自己产生这种光芒。我们甚至不知道如何解决自己的问题或麻烦。我们做不到。
-
-这是与圣诞节信息的对立面。然而，原谅我，这就是圣诞节的信息，但文化会不断地试图重新塑造它，但这不会奏效。瓦洛赫·哈瓦曾是捷克共和国的第一任总统，他既经历过社会主义时代，也经历了自由市场经济时代。你知道他说过什么吗？
-
-他说，这两种制度都无法解决人类最大的问题。事实上，他说，技术和科学可以告诉你能做什么，以及如何高效地去做，但它们永远无法告诉你是否应该去做。因此，他说，无论是技术、政府还是市场都不能拯救我们免于核战争、环境恶化或种族暴力。他说："追求美好生活不会帮助人类自救，民主本身也不足以解决问题。
-
-转向和寻求上帝是必要的。" 人类总是忘记了这一点，而这正是圣诞节的信息。### 二、有光：三一神的荣耀 #### 耶稣既是神，又与神同在 所以这个世界很黑暗，这是0.1。但0.2，这里还告诉我们有光。
-
-是的，这光来自人类之外，但确实有光存在。那么它在哪里呢？现在让我们看看第1、2和3节。顺便说一下，在第14节中，我们没有读到的内容，接下来几周我们会读到，那里写着"神的话就是耶稣"。
-
-现在我再回到这个“道”这个词，但目前你们可以把这个词理解为耶稣。因为接下来在这一章里，圣经告诉我们，“道”就是指耶稣。我们来读一读，来看一下第一节说了什么。在起初有道，道与神同在，道就是神。
-
-好，我们现在就停在这里。这段话可能对你们来说很熟悉了，你们之前也听过，但让我来展示给你们看，当这两个真理被放在一起时，是多么恰到好处又令人震惊。首先，它告诉我们耶稣是神。圣经没有说耶稣是一个神。
-
-原文中没有任何冠词，在希腊文里也没有冠词。圣经不是说耶稣基督是一个神，而是说耶稣基督就是神。如果说是耶稣是一个神，那就意味着有多个神了，对吧？圣经并没有这么说。
-
-它说的是你们知道的那位唯一的神，耶稣就是那位唯一的神。但紧接着，它又说耶稣是神，并且与神同在。这里的“与”字表示一种关系。实际上，在福音书里稍后的地方，特别是在马可福音中，提到耶稣选择十二个门徒时说，祂拣选他们是要与他们同在。
-
-与某人同在意味着要和祂一起生活，成为祂的密友，建立一个爱的关系，进行最亲密的交流和相爱的关系。因此，“与”这个词在圣经里表示一种与神的关系。所以这里的意思是：只有一个神，耶稣就是神，并且耶稣与神之间有着爱的关系；耶稣是神，并且耶稣与神之间也有着爱的关系。即使这里的圣灵没有被提到，在圣经的其他地方提到了圣灵，但这里我们得到的信息是：只有一个神，不是三个神，只有一个神。
-
-#### 三一神的爱与关系 但是在这一个神，父、子、圣灵之中，却没有彼此相爱。虽然只有一个神，但在这个独一的神里头有三位，从永远到永远，彼此都知晓对方。圣经上说："万物是借着祂造的；凡被造的，没有一样不是借着祂造的。"**这意味着耶稣基督并不是被创造出来的，而是通过祂创造了万物。**
-
-这就意味着父、子、圣灵从起初就彼此相爱。只有基督教宣称，在神的心中正是这样的关系。神的核心是一个动态的关系。从永远到永远，在神的本质里头有三位彼此知晓、彼此相爱、彼此荣耀和彼此敬拜，并且从永远到永远彼此相爱并彼此交流。
-
-在神里面有一个爆炸性的、动态的、无限强大的关系网络。因此，生命的意义就在于爱的关系。你看，如果只有一个神，只有一个人格，然后这个神创造了其他生物，那么爱就会出现在后来，对吧？有力量和后才有爱，不是吗？
-
-如果只有一个神，只有一种人格，一个单独的人格创造其他生物，那你怎么会有爱，除非有了其他生物，对吧？其他的人。所以首先神是有力量的，然后后来才有了爱。但如果有三一神，如果是父、子、圣灵从永远到永远，那么爱就是第一位的。
-
-爱是最重要的一件事，关系也是最重要的事，交流更是最重要的事。让我再进一步说。我认为这段圣经其实是要让我们惊讶。当圣经说神是爱时，我们可能以为这只是意味着神在某种程度上是爱。
-
-不，不是这样。神远不止如此。从永恒之初，神在创造世界之前，在祂做任何其他事情之前，就已经是爱了，而且是动态的爱、人际关系中的爱和友谊。约翰福音1:18 也没有提到这一点，但在这节经文中，你们中的一些人可能知道，因为它非常著名，这段话这样说：“从永恒之初，子已在父的怀中。
-
-”我认为，通过使用这种语言，约翰显然是想让你花一分钟时间发挥一下想象力。那么，让我们一起想象一下。随着2025年的结束，新的一年即将到来，这并不令人意外，因为我们对未来的希望很大。因为有你们的帮助，神正在通过我们在播客、YouTube频道、广播节目、季度期刊和网站上提供的福音教导和资源带领人们归信，并使基督徒们得着更新。
-
-我们感谢许多与我们合作的人士，共同传播基督的爱的信息。感谢您。神继续为我们提供扩展福音分享方式的机会。在2026年，我们预计会增加新的国际广播节目，并建立更多的在线事工合作伙伴关系，出版新书，并开始将巴刻博士的讲道翻译成其他语言。
-
-因此，在这一年结束之际，我们邀请你们祷告地考虑为“生命中的福音”做出年终捐款。年终捐款是我们准备2026年事工的重要部分。您的支持使我们能够向超过200个国家的人们分享福音的故事，并且我们非常感谢您参与这项使命。要进行年终捐款，请访问 gospelonlife.com/slash-give。
-
-这是gospelonlife.com/slash-give。并且请为我们将您的礼物善用祷告，愿通过“生命中的福音”的事工，许多新人都能找到认识基督作为救主的希望和喜乐。感谢您与我们合作，共同向需要祂的世界传播基督的爱，因为福音确实改变了所有的一切。现在，让我们听戴尔·辛格勒博士继续今天的讲道。
-
-世界上有多少人，在你躺在沙发上时，不用问 permission，就能走到你身边躺下来，并且你觉得这很舒服？这样的关系有多少？不多吧？而能够这样的人处于最亲密的关系中。
-
-所以我想这就是我们被要求去思考的问题。如果你想了解上帝是谁和上帝是怎样的，那么你需要开始想象你生命中最感到被爱的时刻。然后将那个感觉放大到万亿万亿万亿倍。想象一下你生命中最感到理解、欣赏、宠爱、安全和重要的时刻，并记住那种喜悦的感觉。
-
-几乎不可能抓住这种感觉，因为我们都是自私的人。即使在一段好的婚姻中，这样的时刻也会来去匆匆。即使是最好的婚姻，这些时刻也只是短暂的，因为我们都倾向于自私，只想接受而不是给予，所以我们常常会争执。因此，那些我们感到最幸福、最被爱、最快乐和最受宠的时刻是转瞬即逝的。
-
-而且是不完全的。现在想象三个完美的人格，他们总是彼此相爱并荣耀对方。他们从不说你必须为我服务，而是永远互相服侍。他们彼此毫无保留地奉献自己，从无穷无尽的时间开始就是如此。
-
-所以你需要将你生命中体验到的一点这样的时刻放大到万亿万亿万亿倍，那就是上帝。上帝是无限的快乐。上帝是无限的爱。上帝正在经历着爱和喜悦。
-
-圣父和圣灵不断地在彼此的灵魂中倾注欢乐、爱和荣耀，他们沉浸在彼此的欢乐之中，沉浸在彼此的爱之中。他们因此是无限的快乐，无限的欢喜，无限的爱。那么，上帝为什么创造其他生物来与之分享这一切？为什么上帝要创造具有上帝形象的生命？
-
-这样我们就可以彼此之间以及与上帝一起分享这一切。#### 光就是神的爱 现在你可能会问，这和主题有什么关系呢？一切都有关系。因为我要向你们展示的是：约翰一书1:5的内容，在约翰写三封信及《约翰福音》的时候。
-
-约翰一书1:5说："这就是我们从主那里所听见、现在也报给你们听的：神就是光，在他毫无黑暗。" 那么，什么是光呢？这有点抽象。什么是光？
-
-这就是光。你知道为什么这是光吗？因为这种无限的爱，这种脉动的爱。这不是一种泛泛的情感。
-
-我们在谈论实际的互动和交流。这就是**我们需要的光。**为什么？让我们看看我们的黑暗吧。
-
-这个世界上的每一点邪恶与痛苦，这个世界的黑暗。最根本的是什么？总是缺乏爱。是失去了爱。
-
-什么是战争？什么是种族主义？什么是不公？什么是犯罪？
-
-什么是暴力？什么是离婚？什么是破碎的家庭？什么是失去亲人？
-
-什么是悲伤？什么是哀痛？它是什么？总是爱的缺失。
-
-总是缺乏爱，永远如此。这就是我们的黑暗。那么我们为什么会有问题呢？为什么我们不能自己发光呢？
-
-因为我们自私。因为心中有一种想法：我第一。这里有一个关于人性的巨大讽刺。我们渴望爱。
-
-我们比任何东西都更渴望爱。这使我们的生活有意义。我们都明白这一点。你知道，没有人会说他们希望在办公室多待些时间。
-
-没有人会说他们希望自己赚更多的钱。他们都表示希望花更多的时间与所爱的人在一起。希望改善人际关系。这就是生活的意义。
-
-然而同时，我们内心深处有一种想法：我第一。您服侍我。这就是爱的终结。爱就是您首先为我做的。
-
-我要服侍您。而上帝知道这一点。上帝无限地知道这一点。因为上帝因此是无限无私和充满爱的，祂是无限快乐的。
-
-而我们没有这样的能力。所以我们处于黑暗中，**我们需要那道光。**#### 基督教世界观与其他观点的对比 顺便说一句，在继续讨论我们如何得到它之前，请记住基督教对世界的看法有多么不同。基督教宇宙观是因为我们相信在起初有一个彼此相爱的神——圣父、圣子和圣灵，从无始以来就相互爱着。
-
-你知道这有多不同吗？与古代多神教和现代世俗主义相比。古代多神教认为世界是如何形成的？那里有多个权力中心被称为诸神，有许多不同的神祇，它们互相争斗。
-
-于是地球就这样被创造了。这就是这一切发生的原因。换句话说，古代多神教相信世界的本质是多个权力中心相互斗争，是一种力量的斗争。现代世俗主义不信仰神明， 但认为宇宙是无生命的，且世界通过暴力的力量形成，并且人类通过适者生存进化而来，自然红牙利爪，强者吃弱者。
-
-所以古代多神教和现代世俗主义说世界的本质是权力与斗争。而基督教则说，在起初有见证。在起初有爱。无限的爱，无尽的爱，强大的爱。
-
-而这爱就是**我们需要的光。**### 三、如何得到光：十字架与道 #### 耶稣被拒绝与钉十字架 第三点，那么我们如何得到它呢？它是如何发生的？显然，正如约翰福音开头所描述的那样，整本约翰福音都在讲述这一点。
-
-所以我们必须向前看，但这里甚至有一个暗示。就在下面最后一段中。**真正的光，这是**第9、10、11节的内容：**真正的光是**照亮每个人的光，正进入世界。他在世界里，虽然世界是藉着他造的，世人却不认识他。
-
-他来到自己的地方，自己的人倒不接待他。这段话的意思其实很简单。耶稣基督来到这个世界是要被拒绝的。他知道会遭到拒绝。
-
-但最大的拒绝是他自己的人不仅没有接受他，反而杀了他。他来到我们中间。我们就是他的“自己”。他是创造我们的，参见1节和2节。
-
-他创造了我们。如果你造了什么东西，那就是你的。他创造了我们。不仅如此，当然，他是我们的真光。
-
-**我们需要他，但他被拒绝了，并且被钉死了。**为什么呢？因为这是我们心中的黑暗。我们渴望爱，但同时又害怕有人进来要求我们服侍他。
-
-我不愿意服侍任何人。我的内心想要掌控一切。所以耶稣基督必须克服自己和上帝之间的障碍。#### 十字架上的黑暗：失去无限的爱 圣经说，我们和上帝之间有一道屏障。
-
-他是怎么做的？他去了十字架，在那里发生了两件事。黑暗降临了。那是白天。
-
-是白天。但马太福音27章45节说，在白天中间，变得完全黑暗。黑暗降临了。为什么？
-
-世界的光降入了黑暗之中。但这只是象征性的。同时，他在十字架上喊叫，下一节经文说，黑暗降临了。第45节，马太福音27章45节。
-
-而马太福音27章46节说：“他便大声呼叫：‘我的上帝，我的上帝，为什么离弃我？’”你看，我们在这里已经把光和爱联系起来了。把黑暗和自私联系起来。那么让我们再做一下这个联系。
-
-耶稣在十字架上发生了什么？每小时，黑暗降临了。内心深处，黑暗也在降临。那是什么？
-
-那就是失去爱。耶稣基督去到十字架上承担了我们罪该受的惩罚。自私的惩罚是什么呢？自私就是失去爱。
-
-如果你在一个婚姻中，双方都自私，不需要有人来发现你们。停止自私。这每天要花一千美元。不，你正在失去爱。
-
-你们彼此疏远了。这很糟糕。而且在友谊中也是如此。在家庭中也是如此。
-
-到处都是如此。那么，自私该受到什么样的惩罚呢？它总是会得到这样的惩罚：失去爱。哦天哪，但请看看耶稣所经历的。
-
-要知道，耶稣为全世界人的罪受苦赎罪、承担惩罚的原因是这个。咨询师和心理学家会告诉你，但你不需要他们来告诉你，因为你对此有直觉上的认识。那就是没有比配偶因死亡或离婚而失去更痛苦的事情了，也没有比失去爱更大的心理创伤之痛。为什么？
-
-因为这是一种非常深沉的爱，是最亲密的关系之一，无论以何种方式失去它都是很糟糕的。哦天哪，但请不要忘记，即使你们已经结婚六十年，即使你们有过一段美好的婚姻，两个人之间也只能相爱到一定的程度，但是父亲和儿子从永恒中就彼此相爱得完美无缺，你能想象吗？如果你现在不因失去爱而痛苦不已，并且你是以我们有限的无限方式存在的，那么耶稣在十字架上所经历的痛苦会有多么巨大呢？想想那种痛苦。
-
-想想耶稣在十字架上所经历的地狱般的煎熬。耶稣在十字架上所经历的痛苦和煎熬，那失去爱之痛是如此之大，比你我曾经经历过的任何事情都要大得多，就像核弹头的力量要比橡皮筋爆裂的声音大得多。他为我们受苦赎罪。#### 通过十字架连接到光明 这就是连接到光明的关键所在。
-
-首先，客观地说，我们的罪得到了赦免。所以当我祈求父亲原谅我的时候，因为耶稣所做的一切，上帝可以赦免我的罪，并进入我的生命中开始填充我对他的爱。这样我才能成为一个真正能够去爱别人的人，你也能成为能去爱别人的人。金钱的问题。
 
 听我说，当你连自己的电费都交不起时，真正慷慨给别人是非常非常难的。但如果你有很多钱，那么变得慷慨就容易多了。很多人并不大方地付出，但这至少是有可能的。同样地，爱也是一样，当你的内心如此需要的时候，要不自私地去爱人是非常困难的。
 

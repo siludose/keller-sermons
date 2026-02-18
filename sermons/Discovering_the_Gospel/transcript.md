@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel and Life. How do we share what it means to truly know Jesus? Not just as a historical figure or moral teacher, but as Savior and King.
 
 This month, Tim Keller explores what the Bible shows us about being public with our faith and sharing the hope we have in Christ. The reading this morning is taken from the Book of One Corinthians, chapter 15, verses 1 through 11. Now, brothers and sisters, I want to remind you of the gospel I preach to you, which you received and on which you have taken your stand.
@@ -48,6 +50,8 @@ Well, let's just move right through it. There's actually four parts to this. The
 
 It's about sin and substitution. It's about history and resurrection. And it's about astonishing, transforming grace.
 
+### The Gospel Is About Jesus
+
 Just right through it. Okay, so first of all, it's about Jesus, because see, for what I received, I passed on to you as a first importance, and as soon as he begins, his summary of the gospel, he says, that Christ, and actually, everything else, in the whole paragraph, is just a set of clauses or phrases that explain Christ. They all point back to Christ.
 
 The gospel is Christ, actually. The gospel is Jesus Christ. Now, how would that be?
@@ -79,6 +83,8 @@ It changes the very structure of your identity. It changes the very pathways of 
 And yet, those are results of the gospel. You never find the authors of the scripture. You never find the apostles or Paul ever loading that into the gospel as if that's part of it.
 
 No. In a sense, the gospel is Jesus Christ. It is Jesus.
+
+### Sin and Substitution
 
 So first of all, it's about Christ. Secondly, though, it's about sin and substitution. Okay, so what's the first thing Jesus...
 
@@ -206,7 +212,11 @@ It's a powerful resource that explores how Christianity makes emotional, cultura
 
 To request your two copies of making sense of God, simply go to Gospel and Life.com-slash-give. Again, that's Gospel and Life.com-slash-give. Now, here's Dr.
 
-Keller with the remainder of today's teaching. So first of all, one of the charges is this whole idea that Jesus Christ goes and He has to shed His blood in order to satisfy the punishment and wrath of God. Many people say, that's just incredible.
+Keller with the remainder of today's teaching.
+
+### The Cross: Not Primitive, But Revolutionary
+
+So first of all, one of the charges is this whole idea that Jesus Christ goes and He has to shed His blood in order to satisfy the punishment and wrath of God. Many people say, that's just incredible.
 
 It's just like the ancient primitive pagan terrible religions. They're all bloody with all that sacrifice stuff. J.
 
@@ -232,7 +242,11 @@ And here's what he says. He says, in paganism, man propituates his gods. And rel
 
 In Christianity, however, God propities his own wrath through his own sacrificial action of love. See, as God comes in Jesus Christ and goes and he takes his own punishment, it's utterly different. It's the reverse of ancient primitive bloodthirsty religion.
 
-Don't say that. Now, secondly, I'd like to say something on the contrary about this doctrine of substitutionism. It's radically egalitarian and democratic.
+Don't say that.
+
+### The Most Egalitarian Doctrine
+
+Now, secondly, I'd like to say something on the contrary about this doctrine of substitutionism. It's radically egalitarian and democratic.
 
 And if you think, you say, boy, that's kind of weird. I want you to look at the little word in here right in the beginning of the gospel presentation, where Paul says Christ died for our sins. You know what's so interesting about that?
 
@@ -298,6 +312,8 @@ We're all in it. We're all in it. No one is right.
 
 Just no not one. Most democratic, egalitarian doctrine. Okay, now thirdly.
 
+### History and the Resurrection
+
 The third part of this Gospel presentation is the longest, but it doesn't mean it necessarily is more important than the others. In some ways it's probably long. It's about the resurrection of Jesus.
 
 It's probably longer because it's setting up the fact that the rest of the chapter is going to be a lengthy, wonderful, remarkable treatment of the doctor of the resurrection because it was an issue in the Corinthian church. But the point is he is now saying the third part is of the Gospel is history and the resurrection. He says that Christ died for sins according to the Scriptures.
@@ -329,6 +345,8 @@ Are you a Christian? Have you believed in Jesus Christ? Your conscience is killi
 Do you know how to get out the resurrection and say, to your conscience, trouble me not? Be gone. This is my receipt.
 
 This proves that it was paid in full. This proves this stamps paid in full across history in such a way that nobody is ever going to miss it. Do you know how to do that?
+
+### The Resurrection Secures Our Future
 
 So on the one hand, the resurrection assures and secures you, your past salvation, but then secondly, it assures and secures the future salvation because our future salvation is not just being forgiven and going and living in heaven as a soul. Our future is a resurrected body and a new heavens and a new earth and a place without suffering and death. Do you know what that's going to be like?
 
@@ -372,6 +390,8 @@ It's not a legend. It's come down to us through the ages. People saw him.
 
 There is evidence. And if that's the case and the stuff that you most long for in life, the kind of world you most long for is available. It's there.
 
+### Grace That Transforms
+
 Believe the gospel. Look, at the very, very end. This ending is technically a testimony and is wonderful.
 
 Because see, the gospel ultimately is personal. It's not just a set up bullet points. And he says, for I am the least of the apostles and do not even deserve to be called an apostle, because I persecuted the Church of God.
@@ -401,6 +421,8 @@ He was brilliant, and he hated Christianity, and yet Grace changed him. Well, ho
 But then when you also realize that Grace is unconditional, because it's undeserved, it takes you down. I'm no different than anybody else, but because it's unconditional, it brings you back up. I'm always accepted, I'm always loved, peace, boldness, but because it was costly, it's absolutely free to you, God's grace.
 
 But it's infinitely costly to him, because of what he had to go through on the cross. It turns you into a sacrificial lover of other people. It was not without effect, it was not without effect.
+
+### The Wonder of Grace
 
 And lastly, it just fills you with wonder. You see, he's almost, I just kind of amazed at himself. He's just looking at me saying, but by the grace of God, I am what I am.
 

@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Clues to God's Existence
+
 Welcome to Gospel and Life. How do we share what it means to truly know Jesus? Not just as a historical figure or moral teacher, but as Savior and King.
 
 This month, Tim Keller explores what the Bible shows us about being public with our faith and sharing the hope we have in Christ. The reading today is from the Book of Romans. Chapter 1 verses 16 through 21.
@@ -91,6 +93,8 @@ I want you to assume it's a conspiracy. That it was as somebody did it. That it 
 He wouldn't assume the one in a zillion chance happened. He would assume it was a personal design. And for you to say, there's a one in a zillion chance that maybe there is no God.
 
 Does that make sense to base your entire life on that? So these are the cosmological and teleological arguments. And these are basically forms of the kinds of clues that people have seen over the years.
+
+### We Already Know God
 
 And Paul says they're there. They're really our clues. But Paul says something much more radical than that.
 
@@ -234,6 +238,8 @@ Now, the fact is that psychologists will tell you that there's really probably n
 
 We simply repress them. It's pretty rare. But I'll tell you what you do repress.
 
+### Why We Suppress God's Reality
+
 If you're really angry, you can repress that. No, I'm not that angry. If you're really feeling guilty about something you've done, you can repress that.
 
 No, I don't really feel guilty. Anything about your heart that doesn't fit in with your identity, your way that you'd like to think about who you are. So you have a chosen identity.
@@ -292,7 +298,11 @@ At the same time, we desperately do not want to believe in God. Everybody in thi
 
 It's too threatening. It's too traumatic. We all try to whittle God down somehow, flatten him.
 
-But the biblical god, very traumatic. And so though we can know God and we do know God, we don't know God. Well, what do we do about it?
+But the biblical god, very traumatic. And so though we can know God and we do know God, we don't know God.
+
+### The Gospel Heals Our Fear
+
+Well, what do we do about it?
 
 What can we do about it? Well, there actually is clues here as to what we can do about it and how we can truly know the god who's really there, how we can heal ourselves of our fears so that we can know him truly. And what is that?
 

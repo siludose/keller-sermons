@@ -4,6 +4,8 @@
 
 ---
 
+## 引言与经文诵读 / Introduction and Scripture Reading
+
 **Introduction:**
 
 Welcome to Gospel in Life. During January, we're inviting our listeners to consider becoming a Gospel in Life monthly partner. Monthly partners are an important part in helping us to plan for how we can be the most effective in reaching people all over the world with the gospel.
@@ -26,13 +28,43 @@ I am angry enough to die. But the Lord said, you have been concerned about this 
 
 But Nineveh has more than 120,000 people who cannot tell their right hand from their left and many cattle as well. Should I not be concerned about that great city? This is the word of the Lord.
 
+---
+
+**引言：** 欢迎来到福音生活。在一月份，我们邀请听众考虑成为福音生活的月度合作伙伴。月度合作伙伴对于帮助我们规划如何最有效地将福音传递给全世界的人们是非常重要的。如果您想成为月度合作伙伴，只需访问gospelinlife.com/partner.那是gospelinlife.com/partner.当您听到十诫时，您会想到什么？
+
+对许多人来说，它们带来了内疚和羞愧的感觉，或者它们似乎是一份不可能遵循的规则清单。在今天的讲道中，提姆·凯勒向我们展示了神并没有给我们十诫来用无法实现的道德标准压垮我们，而是指向耶稣基督，唯一完美履行神律法的人。约拿书第一章，第一到十节。但约拿大大不悦，且甚发怒。
+
+他祷告耶和华说：“耶和华啊，我在本国的时候，岂不是这样说吗？我知道你是有恩典、有怜悯的神，不轻易发怒，有丰盛的慈爱，并且后悔不降所说的灾。我知道你是有恩典、有怜悯的神，不轻易发怒，有丰盛的慈爱，并且后悔不降所说的灾。耶和华啊，现在求你取我的命吧！
+
+因为我死了比活着还好。”耶和华说：“你这样发怒合乎理吗？”于是约拿出城，坐在城的东边，在那里为自己搭了一座棚，坐在棚的荫下，要看看那城究竟如何。耶和华神安排了一棵蓖麻，使其发生高过约拿，影儿遮住他的头，救他脱离苦楚。
+
+约拿因这棵蓖麻大大喜乐。次日黎明，神却安排一条虫子咬这蓖麻，以致枯槁。日头出来的时候，神安排炎热的东风，日头曝晒约拿的头，使他发昏。他就为自己求死，说：“我死了比活着还好。
+
+”神对约拿说：“你因这棵蓖麻发怒合乎理吗？”他说：“我发怒以至于死，都合乎理。”耶和华说：“这蓖麻不是你栽种的，也不是你培养的；一夜发生，一夜干死，你尚且爱惜；何况这尼尼微大城，其中不能分辨左手右手的有十二万多人，并有许多牲畜，我岂能不爱惜呢？”这是耶和华的话。
+
+---
+
+## 自己绑架案的共谋者 / Co-Conspirators in Our Own Kidnapping
+
 **The Co-Conspirator in Her Own Kidnapping:**
 
 1974, Patty Hearst, remember? Nineteen years old, millionaire heiress or heiress of a fortune, the Hearst newspaper fortune, was kidnapped by the Symbionese Liberation Army, I remembered. And within just a few weeks, her life was so empty that within a few weeks they were able to take the cuffs off of her and they were able to take off the ropes and to take off the guards and she joined them and she took the name Tonya and she was involved in a bank robbery in which a woman was killed.
 
 By the way, it was a woman, a Seventh-day Adventist woman, who was just depositing the weekly offerings at the bank and that group blew her away. And what was so intriguing about this is that Patty Hearst became a co-conspirator in her own kidnapping. She became enamored with her jailers and after a while they could take the cuffs off because her idolization of her jailers was her chain.
 
-And whenever anybody tried to free her or liberate her, she sneered and snarled at them. She was a co-conspirator in her own kidnapping. **Jonah's Story - A Case Study:**
+And whenever anybody tried to free her or liberate her, she sneered and snarled at them. She was a co-conspirator in her own kidnapping.
+
+---
+
+**自己绑架案的共谋者：** 1974年，帕蒂·赫斯特，记得吗？十九岁，百万富翁报业继承人，被辛比奥尼斯解放军绑架，我记得。仅仅几周后，她的生活如此空虚，以至于在几周内他们就能解开她的手铐，解开她的绳索，解开她的守卫，她加入了他们，并取名为托尼娅，并参与了一次银行抢劫，其中一名妇女被杀。顺便说一下，那是一名妇女，一名基督复临安息日会的妇女，她只是在银行存入每周的奉献，而那个团体就把她打死了。
+
+令人着迷的是，帕蒂·赫斯特成为了自己绑架案的共谋者。她对她的监禁者产生了迷恋，过了一段时间，他们可以解开她的手铐，因为她对她的监禁者的偶像崇拜就是她的枷锁。每当有人试图解放她或解救她时，她对他们嗤之以鼻。她是自己绑架案的共谋者。
+
+---
+
+## 约拿的案例：好的爱变成偶像 / Jonah's Case Study: When Good Love Becomes an Idol
+
+**Jonah's Story - A Case Study:**
 
 Jonah was an extremely prominent religious figure in his day.
 
@@ -112,200 +144,9 @@ We have to have those things. And if those things are not there or if those thin
 
 We start to say, what am I really living for? We experience that emptiness, that loss of meaning in life, which shows that those are really our gods, not him. We say, I am angry.
 
-Yes, I'm angry. Enough to die. **The Variety of Idols:**
-
-Now, my friends, everybody's idols are different.
-
-There's an infinite variety. And some people have asked a great question, where do they come from? Now, not tonight, but the next couple of weeks in the evening service, I'm actually going to get into that in some detail.
-
-Some people say, well, our idols are fixed from our childhood. And by the way, I'm not sure that's wrong. But the only thing we've got to talk about here is the Bible says that we've all got them.
-
-Romans chapter 1 says, everybody, everybody, lifts up something created and gives glory to it instead of the creator. And that means somewhere, for whatever reasons, for all sorts of complex reasons that probably have to do with heredity and environment and that sort of thing, we've latched onto certain things. Deep down at some level of our being, we say to ourselves, if I have that, I'll be safe.
-
-If I achieve that, I can feel good about myself. If I achieve that, I have a worthwhile life. And if I don't have these things, I'm angry enough to die.
-
-And you see, our idols are very different, very different. You nervous types, you need certainty. And you can't live with risk.
-
-And when the risk comes in, you lose everything because you've got to have certainty. You relational types, you've got to have approval. And you can't live with disapproval.
-
-You don't mind uncertainty as long as you've got people there telling you, I love you. You achiever types, you can't live with failure. You don't mind people not liking you as long as you know you've achieved.
-
-And we look down our noses at each other if the other person has a different idol than us. When people come into the Christian faith, if they cross the line and they receive Christ as Savior, they begin to see what is expected of a Christian. And it's so interesting to see how different people's reactions are to the things the Bible requires.
-
-One of the first things you learn, the Bible says, is you must give of your substance to the Lord's work and to the needs of people. You must tithe. It's fascinating to see that some people come on in and when they read that, they say, that's a great idea, you're right, that's good, I'll do it.
-
-And other people have apoplexy. Then there's another thing that the Bible says, and that is, Jesus says, if you deny me before men, I will deny you before my Father. In other words, you should be willing to speak up, to open your mouth, to identify yourself as a Christian to your friends.
-
-You should speak up for him. Some people, they become Christians, they get in and they read that and some people say, that's right, that's good, I'll do it. And other people have apoplexy.
-
-And very often they're different people than the ones who had apoplexy about the tithing. And we looked at our nose at each other, but it's just idols. Our idols are different, don't you see?
-
-Certain things control us and they all are different. But whatever our God is, as this great quote by Becky Pippert says, that God controls us. We all chase things like success, true love, or the perfect life.
-
-Good things that can easily become ultimate things. When we put our faith in them, deep down, we know they can't satisfy our deepest longings. The truth is that we've made lesser gods of good things, things that can't give us what we really need.
-
-In his book, Counterfeit Gods, the empty promises of money, sex, and power, and the only hope that matters, Tim Keller shows us how a proper understanding of the Bible reveals the truth about societal ideals in our own hearts and shows us that there is only one God who can wholly satisfy our desires. This month, we'll send you Counterfeit Gods as our thank you for your gift to help Gospel and Life share the love of Christ with people all over the world. You can request your copy at gospelandlife.com slash give.
-
-That's gospelandlife.com slash give. Now here's Dr. Keller with the rest of today's teaching.
-
-Becky Pippert, in her book, Out of the Salt Shaker, writes, whatever controls you, whatever controls us is our Lord. The person who seeks power is controlled by power. The person who seeks acceptance is controlled by the people who he or she wants to please.
-
-We do not control ourselves. We are controlled by the Lord of our life. If Jesus is our Lord, then he is the one who controls.
-
-He has the ultimate power. There are no bargains. Can you detect the things in your life that are controlling you?
-
-The things that you must have? The things that are probably before the Lord and that have to be removed if you're ever going to experience freedom? **God Reveals Our Idols:**
-
-Now, Jonah doesn't see his, but God turns around and begins to help him see it.
-
-And we see from verses 4 all the way down through verse 9, God goes into a kind of program, a campaign, through which he's trying to reveal to Jonah his idol. Now, the reason God does that is because until you recognize what your idols are, they will sap you. Anything you add to Jesus Christ as a requirement for being happy is an idol that will sap you.
-
-It will kill you. Anything that you add to Jesus Christ as a requirement to be happy. When God sees us saying at some level of our life, I can't live without that, he knows then we can't live with it.
-
-And he's got to remove it. Why? He's got to remove it because it's the only way to freedom.
-
-My friends, how can you possibly be free from any fear of loss of power or loss of popularity or loss of love or loss of certainty or loss of status? How can you be free from that? Only if you get rid of all the things that are before him, all the other gods.
-
-He wants, he is committed. He is committed to liberating you so that you can weather any change, so that you can look any situation or condition in the face. And only by pushing you to pure and pure and more exclusive devotion to him can he ever bring you to that place.
-
-Don't you see? So he's got to do it. Now he comes to Jonah the first time and he says in verse 4, do you have a right to be angry?
-
-He's asking Jonah to look deeper than his anger. What God does here is he's saying, Jonah, look, what is making you angry? What is the basis for it?
-
-Look deeper than your anger, Jonah, and see what is it that's driving me? But Jonah doesn't do it. And frankly, very few of us do it the first time.
-
-God, thank you, Lord, does not come to us once or we'd all be dead meat. Unfortunately, the first time he comes to Jonah very gently, and unfortunately for most of us, he comes to us very gently. In fact, if right now God is putting his finger on something in your life through this worship service, I can assure you that's a gentle approach.
-
-And if you don't get it, God loves you too much to let you go. And what he has to do here with Jonah is he goes a step further. He brings into Jonah's life a comfort, a vine.
-
-Now you might say, well, that's nice. But you have to realize that in a place like the desert of Palestine, this was a great comfort. God brings it up, lets Jonah's heart get attached to it, and then he removes it.
-
-Very often God does the very same thing for us. He pulls things out of our lives that we love. He pulls things out of our lives that we're leaning on.
-
-Why? Because he enjoys to see us squirm? No, he doesn't like that at all.
-
-He hates to see us in pain. But he's like the lumberjacks. Two lumberjacks came into a forest, and they were about to cut all the trees down.
-
-And they looked up and they noticed that there were two birds beginning to make a nest in one of the trees. So what they did was they took not the cutting part of the ax, but the flat part of the ax, and they socked the tree and shook the tree until the birds up there were getting their heads rattled around. And finally, the birds moved and flew away to the next tree.
-
-But the lumberjacks didn't want them to stop there. That tree was going to come down too, so they socked that tree. And they rattled the poor birds around until they moved to the next tree.
-
-And they continually rattled the birds in the next tree and rattled the birds in the next tree until finally the birds started building their nest on a rock. Now friends, don't you see things that have been happening in your life that perhaps you've been pretty angry at God for? And what he's saying to you is, this tree is coming down.
-
-This thing that you build your life on, this thing that you say you must have to be happy, don't you realize you will never be free? You will never be free from ups and downs. You'll never have lasting, infallible, unassailable certainty and joy until you build your nest in some tree that's not coming down, that's me.
-
-**Abraham and Isaac - Walking Up the Mountain:**
-
-Abraham and Isaac. Abraham had become the love slave of his son. He loved his son.
-
-It often happens sometimes to a child that's born to someone in old age. And he was totally the love slave of his son. That meant when Isaac was happy, he was happy.
-
-If something was wrong with Isaac, he was dashed. And God had to do something about that. So he comes to Abraham and says, I want you to slay Isaac as a sacrifice on the mount for me.
-
-And we're told both in Genesis and in the book of Hebrews that Abraham wrestled and wrestled. And you can imagine his agony until finally, the book of Hebrews tells us, he got up in the morning and said, well, I guess God will have to just raise him from the dead. I guess that's what God's going to do.
-
-I'm going to kill him and then God will raise him from the dead. Now, it's very typical that when you try to figure out when God is shaking your life up, if you try to figure out what he's doing, you won't get it right because Abraham was wrong. But you can be sure about the why.
-
-And you've got to proclaim it again and again. And that is he is pushing me to pure devotion. At the end, when he lifted the dagger over Isaac's heart, God said, no, now I know that you love me.
-
-Now you've removed that idol from between you and me. Now I know that you love me because you did not withhold your son, your only son whom you love for me. And listen to this.
-
-The only things that God wants you to walk up the mountain with are Isaac's, things that are probably good in themselves, achievement, desire for friendship, desire for a spouse. What's wrong with those things? Nothing.
-
-And yet God says they're Isaac's. Walk up the mountain. And you say, yes, well, are you going to take them out of my life or are you going to put it back in my life?
-
-That's not your job. The offering, the act of offering, cleanses you and frees you. After all, remember when the angel showed up to Mary, the mother of Jesus, and said, Mary, you're going to become pregnant with Jesus.
-
-You're going to become pregnant out of wedlock. You're going to have into your life a child that's actually the son of God. And all Mary wanted was a normal life.
-
-All Mary wanted was a decent reputation. And when God came and called her away from those things, did she say, I'm angry enough to die? She said, let it be unto me according to thy will.
-
-And was she the worst for that? **Abandoning the False Gods:**
-
-Now the last thing, how do you actually abandon those gods? How did Jonah do it?
-
-We don't know. You know, one of the frustrating things about the book is that it ends. God is confronting Jonah with his idolatry and his racism and he's confronting Jonah and the book ends.
-
-And everybody says, what happened? And does anybody know? Sure we know.
-
-Where do you think we got the book from? Nobody could have possibly given us a story but Jonah himself. And nobody would ever write a book that made him look so bad, except the man who had been so humbled, he was free from his need for approval.
-
-He was free from his need to look good. He was cleansed. He was purified.
-
-He had removed every other idol from his life. Now the other thing you have to recognize, not only is it possible, but it's a process. Friends, it is a process.
-
-If you read the whole book of Jonah, you realize that this is the second time this happened. The first time is the famous time. God called Jonah to go to Nineveh and he left the other direction.
-
-He was swallowed by a fish and in the fish he repents. And he says at the end of chapter 2, he says, those who cling to worthless idols, now he's thinking of the Assyrians, forsake the mercy that could be theirs. Forsake their own mercy.
-
-When he was in the fish, he realized that the grace of God was so great that it was the same to respectable Jews as to dirty idol-worshipping pagans. And he suddenly realized the grace of God was absolutely free. And that is the gospel.
-
-That no matter how respectable you are, no matter how much of a criminal in the gutter you are, you stand in the same place. No one is good, no not one, anyone can be saved if they humbly ask for the grace of Jesus Christ who died for us. When Jonah recognized that at the end of chapter 2, when he said salvation is of the Lord, when he says it's not of my ethnic group, when he says it's not of me and my moral standards, when he says salvation is of the Lord, his racism was healed and he took off for Nineveh.
-
-But when he saw Nineveh being spared, it came back. And I want you to realize that when you become a Christian, you really do a good number on your sins and you say nothing else between me and God, but after you become a Christian, you find that those same sins very often will bounce back. You feel like I cut that tree down, but lo and behold, a shoot comes up out of the stump.
-
-Then you dig up the stump. It's gone and next thing you know, there's roots out there and those roots will bring up a little shoot here and there. You'll spend all of your life going back and having to say, I thought I dealt with that idol and it's back.
-
-And it will continually come back, but every time you'll deal with another blow and another blow and another blow. Those of you who make an idol of approval and love, you thought you dealt with it a year ago, but now you're going to have to come back and you're going to have to take the gospel, the gospel of grace, and you're going to have to say, the only love I really need is the one love that I cannot lose. Those of you who need certainty, you've got to screw the gospel down in your heart and say the only certainty I really need is the one certainty I cannot lose.
-
-And that is that I'm accepted by the free grace of Jesus Christ. That's what you've got to do. That's what you've got to continually do.
-
-**The Path to the Heights:**
-
-This is the only way to the heights, the heights. We talked about it in the call to worship. There was a man who was trying to get a bunch of soldiers.
-
-I'll finish with this. A man who was trying to recruit soldiers years ago to a mountain campaign, and this is how he recruited them. He says, I do not want people to come with me under certain reservations.
-
-In battle, you need soldiers who fear nothing. The roads are rugged. The precipices are steep.
-
-There are feelings of dizziness on the heights. There are gusts of wind, peals of thunder, fierce eagles, and nights of awful gloom. But fear them not.
-
-There are also the joys of sunlight, flowers such as are not on the plain, the purest of air, restful nooks, and the star smile like the eyes of God. You can, if you want, stay down on the plain, and when every so often, if you have some problem in your life, you can rush off to church or suddenly get out, you dust off your Bible and say, Lord, I'm in trouble. Help me.
-
-Or you can decide to go to the mountain, and the only way to the heights, the only way up there where the stars smile like the eyes of God, is to say, I see that there are idols in my life. There are things that I add as a requirement to be happy. To Jesus Christ, Jesus is alone.
-
-Jesus is my only Lord. Jesus is my exclusive Lord. I'm going to give myself to him absolutely, utterly, and totally, and put everything else second.
-
-That's the only way to the heights. It's a hard process. It's a long process.
-
-It's a painful process, but it's the only way out of the fog. It's the only way out of the smog. It's the only way out of the pollution.
-
-It's the only way to the heights. Are you ready? Let's pray.
-
-Our Father, this first commandment is the great one, and we pray, Lord, for two kinds of people here this morning. There are many of us that though we gave our lives to Jesus Christ, we have come to recognize that there's so little joy and excitement and vitality in our lives, and we realize now it's because we have tried to worship not just Jesus, but some other things that we've kept, that we've held on to, that we continue to bow down to in worship, and they are sapping us of the great spiritual power, vitality, and joy that we can have that we ought to have. Now Father, everyone in this room needs to detect the idols, the things that come before you.
-
-Help us to do that now. Help us to give ourselves to you. And Father, there are other folk in this room who are for the first time recognizing and need to recognize what Jonah did in the belly of the fish, that salvation is not of their efforts and their striving, that they cannot just hold on to their goals and be saved by their own works and efforts with your help along the way, but that they must turn to you and receive you as Savior and Lord and say, salvation is of the Lord.
-
-And Father, we pray that you'd enable them to really pray from their heart this prayer, Lord, though I've often lived according to my moral standards, I now see that I've never worshiped you truly, but I've worshiped other things. I now receive you as my Savior, my real hope, and I put other concerns and other goals as secondary. Our Father, enable us to worship you now from the heart, for that's our freedom.
-
-We pray it in Jesus name, amen. Thanks for listening to today's teaching. It's our prayer that you were encouraged by it and that it helps you apply the gospel to your life and share it with others.
-
-For more helpful resources from Tim Keller, visit gospelandlife.com. There you can subscribe to the Life in the Gospel quarterly journal. When you do, you will also receive free articles, sermons, devotionals, and other great gospel-centered resources.
-
-Again, it's all at gospelandlife.com. You can also stay connected with us on Facebook, Instagram, YouTube, and X. Today's sermon was recorded in 1989.
-
-The sermons and talks you hear on the Gospel in Life podcast were recorded between 1989 and 2017 while Dr.
+Yes, I'm angry. Enough to die.
 
 ---
-
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-**引言：** 欢迎来到福音生活。在一月份，我们邀请听众考虑成为福音生活的月度合作伙伴。月度合作伙伴对于帮助我们规划如何最有效地将福音传递给全世界的人们是非常重要的。如果您想成为月度合作伙伴，只需访问gospelinlife.com/partner.那是gospelinlife.com/partner.当您听到十诫时，您会想到什么？
-
-对许多人来说，它们带来了内疚和羞愧的感觉，或者它们似乎是一份不可能遵循的规则清单。在今天的讲道中，提姆·凯勒向我们展示了神并没有给我们十诫来用无法实现的道德标准压垮我们，而是指向耶稣基督，唯一完美履行神律法的人。约拿书第一章，第一到十节。但约拿大大不悦，且甚发怒。
-
-他祷告耶和华说：“耶和华啊，我在本国的时候，岂不是这样说吗？我知道你是有恩典、有怜悯的神，不轻易发怒，有丰盛的慈爱，并且后悔不降所说的灾。我知道你是有恩典、有怜悯的神，不轻易发怒，有丰盛的慈爱，并且后悔不降所说的灾。耶和华啊，现在求你取我的命吧！
-
-因为我死了比活着还好。”耶和华说：“你这样发怒合乎理吗？”于是约拿出城，坐在城的东边，在那里为自己搭了一座棚，坐在棚的荫下，要看看那城究竟如何。耶和华神安排了一棵蓖麻，使其发生高过约拿，影儿遮住他的头，救他脱离苦楚。
-
-约拿因这棵蓖麻大大喜乐。次日黎明，神却安排一条虫子咬这蓖麻，以致枯槁。日头出来的时候，神安排炎热的东风，日头曝晒约拿的头，使他发昏。他就为自己求死，说：“我死了比活着还好。
-
-”神对约拿说：“你因这棵蓖麻发怒合乎理吗？”他说：“我发怒以至于死，都合乎理。”耶和华说：“这蓖麻不是你栽种的，也不是你培养的；一夜发生，一夜干死，你尚且爱惜；何况这尼尼微大城，其中不能分辨左手右手的有十二万多人，并有许多牲畜，我岂能不爱惜呢？”这是耶和华的话。
-
-**自己绑架案的共谋者：** 1974年，帕蒂·赫斯特，记得吗？十九岁，百万富翁报业继承人，被辛比奥尼斯解放军绑架，我记得。仅仅几周后，她的生活如此空虚，以至于在几周内他们就能解开她的手铐，解开她的绳索，解开她的守卫，她加入了他们，并取名为托尼娅，并参与了一次银行抢劫，其中一名妇女被杀。顺便说一下，那是一名妇女，一名基督复临安息日会的妇女，她只是在银行存入每周的奉献，而那个团体就把她打死了。
-
-令人着迷的是，帕蒂·赫斯特成为了自己绑架案的共谋者。她对她的监禁者产生了迷恋，过了一段时间，他们可以解开她的手铐，因为她对她的监禁者的偶像崇拜就是她的枷锁。每当有人试图解放她或解救她时，她对他们嗤之以鼻。她是自己绑架案的共谋者。
 
 **约拿的故事——案例研究：** 约拿在他那个时代是一个极其著名的宗教人物。他可能是以色列的首席先知、传道人和宗教领袖。当我们在这里遇到他时，他刚刚去了尼尼微，那是那个时代的纽约市。它是世界的首都，是世界上最大、最重要的帝国亚述的最大城市。
 
@@ -361,7 +202,59 @@ The sermons and talks you hear on the Gospel in Life podcast were recorded betwe
 
 如果这些东西不存在，或者如果这些东西甚至受到威胁，我们就会体验到生活意义的丧失。对吗？我们开始说，我到底在为什么而活？我们体验到那种空虚，那种生活意义的丧失，这表明那些实际上是我们的神，而不是他。
 
-我们说，我生气。是的，我生气。生气到想死。**偶像的多样性：** 现在，我的朋友们，每个人的偶像都不同。
+我们说，我生气。是的，我生气。生气到想死。
+
+---
+
+## 偶像的无穷多样性 / The Infinite Variety of Idols
+
+**The Variety of Idols:**
+
+Now, my friends, everybody's idols are different.
+
+There's an infinite variety. And some people have asked a great question, where do they come from? Now, not tonight, but the next couple of weeks in the evening service, I'm actually going to get into that in some detail.
+
+Some people say, well, our idols are fixed from our childhood. And by the way, I'm not sure that's wrong. But the only thing we've got to talk about here is the Bible says that we've all got them.
+
+Romans chapter 1 says, everybody, everybody, lifts up something created and gives glory to it instead of the creator. And that means somewhere, for whatever reasons, for all sorts of complex reasons that probably have to do with heredity and environment and that sort of thing, we've latched onto certain things. Deep down at some level of our being, we say to ourselves, if I have that, I'll be safe.
+
+If I achieve that, I can feel good about myself. If I achieve that, I have a worthwhile life. And if I don't have these things, I'm angry enough to die.
+
+And you see, our idols are very different, very different. You nervous types, you need certainty. And you can't live with risk.
+
+And when the risk comes in, you lose everything because you've got to have certainty. You relational types, you've got to have approval. And you can't live with disapproval.
+
+You don't mind uncertainty as long as you've got people there telling you, I love you. You achiever types, you can't live with failure. You don't mind people not liking you as long as you know you've achieved.
+
+And we look down our noses at each other if the other person has a different idol than us. When people come into the Christian faith, if they cross the line and they receive Christ as Savior, they begin to see what is expected of a Christian. And it's so interesting to see how different people's reactions are to the things the Bible requires.
+
+One of the first things you learn, the Bible says, is you must give of your substance to the Lord's work and to the needs of people. You must tithe. It's fascinating to see that some people come on in and when they read that, they say, that's a great idea, you're right, that's good, I'll do it.
+
+And other people have apoplexy. Then there's another thing that the Bible says, and that is, Jesus says, if you deny me before men, I will deny you before my Father. In other words, you should be willing to speak up, to open your mouth, to identify yourself as a Christian to your friends.
+
+You should speak up for him. Some people, they become Christians, they get in and they read that and some people say, that's right, that's good, I'll do it. And other people have apoplexy.
+
+And very often they're different people than the ones who had apoplexy about the tithing. And we looked at our nose at each other, but it's just idols. Our idols are different, don't you see?
+
+Certain things control us and they all are different. But whatever our God is, as this great quote by Becky Pippert says, that God controls us. We all chase things like success, true love, or the perfect life.
+
+Good things that can easily become ultimate things. When we put our faith in them, deep down, we know they can't satisfy our deepest longings. The truth is that we've made lesser gods of good things, things that can't give us what we really need.
+
+In his book, Counterfeit Gods, the empty promises of money, sex, and power, and the only hope that matters, Tim Keller shows us how a proper understanding of the Bible reveals the truth about societal ideals in our own hearts and shows us that there is only one God who can wholly satisfy our desires. This month, we'll send you Counterfeit Gods as our thank you for your gift to help Gospel and Life share the love of Christ with people all over the world. You can request your copy at gospelandlife.com slash give.
+
+That's gospelandlife.com slash give. Now here's Dr. Keller with the rest of today's teaching.
+
+Becky Pippert, in her book, Out of the Salt Shaker, writes, whatever controls you, whatever controls us is our Lord. The person who seeks power is controlled by power. The person who seeks acceptance is controlled by the people who he or she wants to please.
+
+We do not control ourselves. We are controlled by the Lord of our life. If Jesus is our Lord, then he is the one who controls.
+
+He has the ultimate power. There are no bargains. Can you detect the things in your life that are controlling you?
+
+The things that you must have? The things that are probably before the Lord and that have to be removed if you're ever going to experience freedom?
+
+---
+
+**偶像的多样性：** 现在，我的朋友们，每个人的偶像都不同。
 
 有无数种类。有些人提出了一个很好的问题，它们从哪里来？现在不是今晚，但接下来的几个星期的晚上崇拜，我实际上会详细讨论这个问题。有些人说，我们的偶像是从童年固定下来的。
 
@@ -391,7 +284,55 @@ The sermons and talks you hear on the Gospel in Life podcast were recorded betwe
 
 他拥有最终的权力。没有讨价还价。你能察觉到你生活中控制你的东西吗？你必须拥有的东西？
 
-那些可能在主之前的东西，如果你想要体验自由，就必须去除的东西？**神揭示我们的偶像：** 现在，约拿没有看到他的偶像，但神转过来开始帮助他看到它。我们从第4节一直到第9节看到，神进入了一种计划，通过这种计划，他试图向约拿揭示他的偶像。神这样做的原因是因为除非你认识到你的偶像是什么，否则它们会消耗你。
+那些可能在主之前的东西，如果你想要体验自由，就必须去除的东西？
+
+---
+
+## 神如何揭露并移除偶像 / How God Exposes and Removes Our Idols
+
+**God Reveals Our Idols:**
+
+Now, Jonah doesn't see his, but God turns around and begins to help him see it.
+
+And we see from verses 4 all the way down through verse 9, God goes into a kind of program, a campaign, through which he's trying to reveal to Jonah his idol. Now, the reason God does that is because until you recognize what your idols are, they will sap you. Anything you add to Jesus Christ as a requirement for being happy is an idol that will sap you.
+
+It will kill you. Anything that you add to Jesus Christ as a requirement to be happy. When God sees us saying at some level of our life, I can't live without that, he knows then we can't live with it.
+
+And he's got to remove it. Why? He's got to remove it because it's the only way to freedom.
+
+My friends, how can you possibly be free from any fear of loss of power or loss of popularity or loss of love or loss of certainty or loss of status? How can you be free from that? Only if you get rid of all the things that are before him, all the other gods.
+
+He wants, he is committed. He is committed to liberating you so that you can weather any change, so that you can look any situation or condition in the face. And only by pushing you to pure and pure and more exclusive devotion to him can he ever bring you to that place.
+
+Don't you see? So he's got to do it. Now he comes to Jonah the first time and he says in verse 4, do you have a right to be angry?
+
+He's asking Jonah to look deeper than his anger. What God does here is he's saying, Jonah, look, what is making you angry? What is the basis for it?
+
+Look deeper than your anger, Jonah, and see what is it that's driving me? But Jonah doesn't do it. And frankly, very few of us do it the first time.
+
+God, thank you, Lord, does not come to us once or we'd all be dead meat. Unfortunately, the first time he comes to Jonah very gently, and unfortunately for most of us, he comes to us very gently. In fact, if right now God is putting his finger on something in your life through this worship service, I can assure you that's a gentle approach.
+
+And if you don't get it, God loves you too much to let you go. And what he has to do here with Jonah is he goes a step further. He brings into Jonah's life a comfort, a vine.
+
+Now you might say, well, that's nice. But you have to realize that in a place like the desert of Palestine, this was a great comfort. God brings it up, lets Jonah's heart get attached to it, and then he removes it.
+
+Very often God does the very same thing for us. He pulls things out of our lives that we love. He pulls things out of our lives that we're leaning on.
+
+Why? Because he enjoys to see us squirm? No, he doesn't like that at all.
+
+He hates to see us in pain. But he's like the lumberjacks. Two lumberjacks came into a forest, and they were about to cut all the trees down.
+
+And they looked up and they noticed that there were two birds beginning to make a nest in one of the trees. So what they did was they took not the cutting part of the ax, but the flat part of the ax, and they socked the tree and shook the tree until the birds up there were getting their heads rattled around. And finally, the birds moved and flew away to the next tree.
+
+But the lumberjacks didn't want them to stop there. That tree was going to come down too, so they socked that tree. And they rattled the poor birds around until they moved to the next tree.
+
+And they continually rattled the birds in the next tree and rattled the birds in the next tree until finally the birds started building their nest on a rock. Now friends, don't you see things that have been happening in your life that perhaps you've been pretty angry at God for? And what he's saying to you is, this tree is coming down.
+
+This thing that you build your life on, this thing that you say you must have to be happy, don't you realize you will never be free? You will never be free from ups and downs. You'll never have lasting, infallible, unassailable certainty and joy until you build your nest in some tree that's not coming down, that's me.
+
+---
+
+**神揭示我们的偶像：** 现在，约拿没有看到他的偶像，但神转过来开始帮助他看到它。我们从第4节一直到第9节看到，神进入了一种计划，通过这种计划，他试图向约拿揭示他的偶像。神这样做的原因是因为除非你认识到你的偶像是什么，否则它们会消耗你。
 
 任何你加到耶稣基督上的东西作为快乐的要求都是一个会消耗你的偶像。它会杀了你。任何你加到耶稣基督上的东西作为快乐的要求。当神看到我们在生活的某个层面上说，我不能没有那个，他知道我们不能和它一起生活。
 
@@ -417,6 +358,40 @@ The sermons and talks you hear on the Gospel in Life podcast were recorded betwe
 
 现在朋友们，你不明白生活中发生的事情，也许你对神非常生气，而他在对你说，这棵树要倒了。这个你建立生活的东西，这个你说你必须拥有才能快乐的东西，你不明白你永远不会自由吗？你永远不会从起伏中解放出来。你永远不会有持久的、无懈可击的、无可争议的确定性和喜悦，直到你在某棵不会倒的树上筑巢，那就是我。
 
+---
+
+## 亚伯拉罕和以撒：走上山 / Abraham and Isaac: Walking Up the Mountain
+
+**Abraham and Isaac - Walking Up the Mountain:**
+
+Abraham and Isaac. Abraham had become the love slave of his son. He loved his son.
+
+It often happens sometimes to a child that's born to someone in old age. And he was totally the love slave of his son. That meant when Isaac was happy, he was happy.
+
+If something was wrong with Isaac, he was dashed. And God had to do something about that. So he comes to Abraham and says, I want you to slay Isaac as a sacrifice on the mount for me.
+
+And we're told both in Genesis and in the book of Hebrews that Abraham wrestled and wrestled. And you can imagine his agony until finally, the book of Hebrews tells us, he got up in the morning and said, well, I guess God will have to just raise him from the dead. I guess that's what God's going to do.
+
+I'm going to kill him and then God will raise him from the dead. Now, it's very typical that when you try to figure out when God is shaking your life up, if you try to figure out what he's doing, you won't get it right because Abraham was wrong. But you can be sure about the why.
+
+And you've got to proclaim it again and again. And that is he is pushing me to pure devotion. At the end, when he lifted the dagger over Isaac's heart, God said, no, now I know that you love me.
+
+Now you've removed that idol from between you and me. Now I know that you love me because you did not withhold your son, your only son whom you love for me. And listen to this.
+
+The only things that God wants you to walk up the mountain with are Isaac's, things that are probably good in themselves, achievement, desire for friendship, desire for a spouse. What's wrong with those things? Nothing.
+
+And yet God says they're Isaac's. Walk up the mountain. And you say, yes, well, are you going to take them out of my life or are you going to put it back in my life?
+
+That's not your job. The offering, the act of offering, cleanses you and frees you. After all, remember when the angel showed up to Mary, the mother of Jesus, and said, Mary, you're going to become pregnant with Jesus.
+
+You're going to become pregnant out of wedlock. You're going to have into your life a child that's actually the son of God. And all Mary wanted was a normal life.
+
+All Mary wanted was a decent reputation. And when God came and called her away from those things, did she say, I'm angry enough to die? She said, let it be unto me according to thy will.
+
+And was she the worst for that?
+
+---
+
 **亚伯拉罕和以撒——走上山：** 亚伯拉罕和以撒。亚伯拉罕已经成为他儿子的爱情奴隶。他爱他的儿子。有时发生在一个人在老年时生下的孩子身上。
 
 他完全是他儿子的爱情奴隶。**这意味着当以撒快乐时，他就快乐。**如果以撒有什么问题，他就沮丧。神必须对此做些什么。
@@ -433,7 +408,45 @@ The sermons and talks you hear on the Gospel in Life podcast were recorded betwe
 
 你将未婚先孕。你将有一个孩子进入你的生活，这实际上是神的儿子。玛丽只想要一个正常的生活。玛丽只想要一个体面的名声。
 
-当神来召她离开那些东西时，她说，我生气到想死吗？她说，愿照你的旨意成就在我身上。她因此而变得更糟吗？**放弃虚假的神：** 现在最后一件事，你如何真正放弃那些神？
+当神来召她离开那些东西时，她说，我生气到想死吗？她说，愿照你的旨意成就在我身上。她因此而变得更糟吗？
+
+---
+
+## 放弃虚假的神 / Abandoning the False Gods
+
+**Abandoning the False Gods:**
+
+Now the last thing, how do you actually abandon those gods? How did Jonah do it?
+
+We don't know. You know, one of the frustrating things about the book is that it ends. God is confronting Jonah with his idolatry and his racism and he's confronting Jonah and the book ends.
+
+And everybody says, what happened? And does anybody know? Sure we know.
+
+Where do you think we got the book from? Nobody could have possibly given us a story but Jonah himself. And nobody would ever write a book that made him look so bad, except the man who had been so humbled, he was free from his need for approval.
+
+He was free from his need to look good. He was cleansed. He was purified.
+
+He had removed every other idol from his life. Now the other thing you have to recognize, not only is it possible, but it's a process. Friends, it is a process.
+
+If you read the whole book of Jonah, you realize that this is the second time this happened. The first time is the famous time. God called Jonah to go to Nineveh and he left the other direction.
+
+He was swallowed by a fish and in the fish he repents. And he says at the end of chapter 2, he says, those who cling to worthless idols, now he's thinking of the Assyrians, forsake the mercy that could be theirs. Forsake their own mercy.
+
+When he was in the fish, he realized that the grace of God was so great that it was the same to respectable Jews as to dirty idol-worshipping pagans. And he suddenly realized the grace of God was absolutely free. And that is the gospel.
+
+That no matter how respectable you are, no matter how much of a criminal in the gutter you are, you stand in the same place. No one is good, no not one, anyone can be saved if they humbly ask for the grace of Jesus Christ who died for us. When Jonah recognized that at the end of chapter 2, when he said salvation is of the Lord, when he says it's not of my ethnic group, when he says it's not of me and my moral standards, when he says salvation is of the Lord, his racism was healed and he took off for Nineveh.
+
+But when he saw Nineveh being spared, it came back. And I want you to realize that when you become a Christian, you really do a good number on your sins and you say nothing else between me and God, but after you become a Christian, you find that those same sins very often will bounce back. You feel like I cut that tree down, but lo and behold, a shoot comes up out of the stump.
+
+Then you dig up the stump. It's gone and next thing you know, there's roots out there and those roots will bring up a little shoot here and there. You'll spend all of your life going back and having to say, I thought I dealt with that idol and it's back.
+
+And it will continually come back, but every time you'll deal with another blow and another blow and another blow. Those of you who make an idol of approval and love, you thought you dealt with it a year ago, but now you're going to have to come back and you're going to have to take the gospel, the gospel of grace, and you're going to have to say, the only love I really need is the one love that I cannot lose. Those of you who need certainty, you've got to screw the gospel down in your heart and say the only certainty I really need is the one certainty I cannot lose.
+
+And that is that I'm accepted by the free grace of Jesus Christ. That's what you've got to do. That's what you've got to continually do.
+
+---
+
+**放弃虚假的神：** 现在最后一件事，你如何真正放弃那些神？
 
 约拿是怎么做到的？我们不知道。你知道，这本书令人沮丧的地方在于它结束了。神正在与约拿的偶像崇拜和种族主义对峙，他正在与约拿对峙，书就结束了。
 
@@ -453,7 +466,51 @@ The sermons and talks you hear on the Gospel in Life podcast were recorded betwe
 
 你会花一生的时间回去，不得不说，我以为我处理了那个偶像，它又回来了。它会不断地回来，但每次你都会处理另一个打击和另一个打击和另一个打击。那些把认可和爱的偶像当作偶像的人，你以为你一年前处理了它，但现在你必须回来，你必须拿福音，恩典的福音，你必须说，我真正需要的唯一的爱是我不能失去的那种爱。那些需要确定性的人，你必须把福音拧进你的心里，说我真正需要的唯一确定性是我不能失去的那种确定性。
 
-那就是我被耶稣基督的自由恩典所接受的确定性。这就是你必须做的。这就是你必须不断做的。**通往高处的路：** 这是通往高处的唯一途径，高处。
+那就是我被耶稣基督的自由恩典所接受的确定性。这就是你必须做的。这就是你必须不断做的。
+
+---
+
+## 通往高处的唯一道路 / The Only Way to the Heights
+
+**The Path to the Heights:**
+
+This is the only way to the heights, the heights. We talked about it in the call to worship. There was a man who was trying to get a bunch of soldiers.
+
+I'll finish with this. A man who was trying to recruit soldiers years ago to a mountain campaign, and this is how he recruited them. He says, I do not want people to come with me under certain reservations.
+
+In battle, you need soldiers who fear nothing. The roads are rugged. The precipices are steep.
+
+There are feelings of dizziness on the heights. There are gusts of wind, peals of thunder, fierce eagles, and nights of awful gloom. But fear them not.
+
+There are also the joys of sunlight, flowers such as are not on the plain, the purest of air, restful nooks, and the star smile like the eyes of God. You can, if you want, stay down on the plain, and when every so often, if you have some problem in your life, you can rush off to church or suddenly get out, you dust off your Bible and say, Lord, I'm in trouble. Help me.
+
+Or you can decide to go to the mountain, and the only way to the heights, the only way up there where the stars smile like the eyes of God, is to say, I see that there are idols in my life. There are things that I add as a requirement to be happy. To Jesus Christ, Jesus is alone.
+
+Jesus is my only Lord. Jesus is my exclusive Lord. I'm going to give myself to him absolutely, utterly, and totally, and put everything else second.
+
+That's the only way to the heights. It's a hard process. It's a long process.
+
+It's a painful process, but it's the only way out of the fog. It's the only way out of the smog. It's the only way out of the pollution.
+
+It's the only way to the heights. Are you ready? Let's pray.
+
+Our Father, this first commandment is the great one, and we pray, Lord, for two kinds of people here this morning. There are many of us that though we gave our lives to Jesus Christ, we have come to recognize that there's so little joy and excitement and vitality in our lives, and we realize now it's because we have tried to worship not just Jesus, but some other things that we've kept, that we've held on to, that we continue to bow down to in worship, and they are sapping us of the great spiritual power, vitality, and joy that we can have that we ought to have. Now Father, everyone in this room needs to detect the idols, the things that come before you.
+
+Help us to do that now. Help us to give ourselves to you. And Father, there are other folk in this room who are for the first time recognizing and need to recognize what Jonah did in the belly of the fish, that salvation is not of their efforts and their striving, that they cannot just hold on to their goals and be saved by their own works and efforts with your help along the way, but that they must turn to you and receive you as Savior and Lord and say, salvation is of the Lord.
+
+And Father, we pray that you'd enable them to really pray from their heart this prayer, Lord, though I've often lived according to my moral standards, I now see that I've never worshiped you truly, but I've worshiped other things. I now receive you as my Savior, my real hope, and I put other concerns and other goals as secondary. Our Father, enable us to worship you now from the heart, for that's our freedom.
+
+We pray it in Jesus name, amen. Thanks for listening to today's teaching. It's our prayer that you were encouraged by it and that it helps you apply the gospel to your life and share it with others.
+
+For more helpful resources from Tim Keller, visit gospelandlife.com. There you can subscribe to the Life in the Gospel quarterly journal. When you do, you will also receive free articles, sermons, devotionals, and other great gospel-centered resources.
+
+Again, it's all at gospelandlife.com. You can also stay connected with us on Facebook, Instagram, YouTube, and X. Today's sermon was recorded in 1989.
+
+The sermons and talks you hear on the Gospel in Life podcast were recorded between 1989 and 2017 while Dr.
+
+---
+
+**通往高处的路：** 这是通往高处的唯一途径，高处。
 
 我们在敬拜中谈到了这一点。有一个人试图召集一群士兵。我将以此结束。一个人试图招募士兵多年前参加一场山地战役，这是他招募他们的方式。
 

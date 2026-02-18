@@ -4,6 +4,8 @@
 
 ---
 
+## 引言与经文宣读 / Introduction and Scripture Reading
+
 Welcome to Gospel in Life. How comfortable are you when it comes to being open about your faith? This month on the podcast, Tim Keller looks at what the Bible says about having a public faith.
 
 He shows us what it looks like to be open about our faith in a pluralistic society, in a way that creates civility and peace and meaningful dialogue with our neighbors. Good morning. The scripture this morning is taken from the Book of Deuteronomy, chapter 30, verses 11-20.
@@ -28,6 +30,20 @@ Here's the one thing you can do. Do this. Don't do this.
 
 This will bring this. This will bring this. So simple.
 
+---
+
+欢迎来到《福音人生》。谈到公开表达你的信仰时，你感到舒适吗？本月在播客上，蒂姆·凯勒探讨圣经关于拥有公开信仰的教导。他向我们展示了在多元社会中公开信仰的样子，以一种能创造文明、和平和与邻舍有意义对话的方式。
+
+早上好。今早的经文摘自《申命记》第30章第11-20节。我想讨论的是：什么是真正的选择？这个问题很重要，因为现代社会中我们谈论很多关于选择的事情。
+
+我们说："这是我的选择，那是你的选择。"我们珍视选择，将其视为自由的标志。但圣经告诉我们，真正的选择并非如此简单。摩西在此对以色列人说："看哪，我今日将生与善、死与恶，都摆在你面前。
+
+"这听起来像是一个简单的决定：选择生或死，选择好或坏。但这句话背后有更深层的含义。首先，摩西在这里提醒以色列人，他们处于一个关键时刻。他们即将进入应许之地，但他们需要理解什么是真正重要的。
+
+---
+
+## 真正的选择意味着什么 / The Difficult Simplicity of Faith
+
 In fact, it's so simple. I actually struggled a little bit with this. I still struggle with this passage, you know why?
 
 A preacher loves to take a hard passage and make it simple. And everybody say, oh, it's simpler than I thought. He's wonderful.
@@ -39,6 +55,22 @@ Moses starts saying, look, I'm offering you this personal relationship with God.
 You don't have to go up to heaven. You don't have to go over the sea. He's actually trying to say the simplicity of what I'm telling you is its difficulty.
 
 People miss this covenant relationship with God because it's so simple. The simplicity is its difficulty. And if you're ever going to get it, you need to come to grips with the difficult simplicity of having a personal relationship with God.
+
+---
+
+选择生命意味着什么？它意味着什么选择公开你的信仰，什么是与上帝的真实关系。生命和死亡这里的象征不仅仅是物理上的。它们象征两种生活方式。
+
+一种方式——选择上帝，选择跟随他的道路，选择用他的话来引导你的生活——这就是生命。另一种方式——拒绝上帝，转向虚假的神，依靠自己的判断——这就是死亡。现在，为什么摩西特别强调"看哪，我今日将"这几个词？"今日"这个词很关键。
+
+这不是关于来来世或来世的。这是关于现在、关于今天、关于你每天所做的选择。在今天的文化中，我们常常说："信仰是私人的事。"有一种想法认为，你的信仰应该是你自己的，你不应该在公共场合表达它。
+
+但圣经中摩西所说的不是这样。他说："这诫命我今日所吩咐你的，不是难行的，也不是远离你的。" 这暗示什么？**这意味着信仰不是某种遥远的、无法企及的东西。**
+
+它就在你的嘴里，就在你的心里。这是关于什么——这是关于公开宣布你所信的，这是关于让你的信仰成为你身份的一部分。当摩西说选择生命意味着"爱耶和华你的上帝，听从他的声音，专靠他"时，他不是说这些是秘密的、隐藏的活动。他是在谈论一种生活方式，一种可以看到的、可以被注意到的、可以被同意或不同意的信仰生活。
+
+---
+
+## 在多元社会中公开信仰 / The Deceptive Ordinariness of God's Word
 
 Now, let's look at this difficult simplicity under three headings. We're going to see here, when it comes to this personal covenant relationship with God, its deceptive ordinariness, its threatening graciousness, and its unimaginable promise. Its deceptiveness, its deceptive pardon me, ordinariness.
 
@@ -74,6 +106,16 @@ Modern people have every bit the same problem that the ancients had. We think if
 
 There was an article about the last institute in Manhattan that trains psychiatrists in psychoanalysis, Freudian psychoanalysis. The last institute, the trains, therapists in Freudian psychoanalysis, they were talking about it, and they've mentioned that even just say 30 years ago, 40 years ago there were dozens and dozens in Manhattan. One of the reasons I was so intrigued by that was because I know, when I got here like 20 years ago, and I would talk to New Yorkers who at the time were saying their 50s or 60s, what they told me was that in the middle of the century, every New Yorker who was anybody, anyone who was savvy, anyone who was with at all went to analysis two or three times a week for years and years and years, and everybody knew this is it, this is how we're going to get into our hearts, this is the whole issue, this is it, and if you don't understand this, you're just out of it, and now it's dead, it's an eclipse, it is, you know, it is so unsexy, and yet guess what, the gospel's on every street corner, but there's something else coming, right?
 
+---
+
+在多元社会中，这变得特别复杂。我们生活在一个有许多不同信仰的社会中。有无神论者、有穆斯林、有佛教徒、有犹太人、有其他基督徒、有不相信任何东西的人。面对这一切，一个基督徒能做什么？
+
+我们如何选择生命，同时尊重他人的选择？首先，**我们需要理解，生活在多元社会中并不意味着我们不能有信仰，或者我们不能谈论我们的信仰。****这意味着我们的信仰必须足够坚强，以至于我们可以与那些不同意我们的人进行真诚的对话。**其次，当摩西谈到选择生命时，他提到的不仅仅是个人的精神经历。
+
+---
+
+## 信仰必须体现在行动中 / Beware the Simplicity: Le Chambon's Example
+
 Beware the deceptive simplicity of biblical faith. It really throws people who are having trouble believing it, but guess what, the simplicity of our faith throws just as much those of us who do believe it. You look at it, well what is the heart of it?
 
 Well, you know, the heart of it is, you know, Carl Bart actually said it this way, Jesus loves me this I know, for the Bible tells me so, there it is, or put it another way is you're saved by God's grace, and the New Testament adds through the sacrifice of Christ, and you look at that and you say, okay, I've heard that, I've heard that, I know it, I got it, I got it, and it's so simple, almost nobody grasped the radical implications of it. Walter Brogiman wrote a commentary on Deuteronomy that I use, I've been using during this series of sermons, and in what, on this passage where he sees the place where Moses says, this word is not beyond you, it's near you, you know, it's simple, it's accessible, and Brogiman, and that place in his commentary tells this fascinating story, true story, and here's what he says, another illustration of how plain and simple God's word is, is the account of the evangelical Christian community of Le Chambon in France during World War 2, that hid Jews during Nazi efforts at extermination. The people of the mountain village, under the direction of evangelical church and pastor, saved the lives of an estimated three to 5,000 Jews under circumstances extremely dangerous.
@@ -91,6 +133,20 @@ And why didn't they all do that? And the answer is, it's too simple for us. So y
 Dear friends, do not be deceived by the ordinaryness of what the Bible says about this subject, not have a personal relationship with God. If you're exploring Christianity, please don't be offended by simplicity and its ordinaryness. And if you're a Christian and you say, oh, I understand the gospel, I get the gospel, that just proves you don't.
 
 It's difficulty, it's simplicity, it's simplicity, it's difficulty. And you really don't understand it until you really grasp that. Secondly, though, that's not all, that's part of this difficult simplicity.
+
+---
+
+他谈论的是一种生活方式，会影响你如何对待他人、如何处理金钱、如何对待穷人、如何对待陌生人。摩西说："你们要听从耶和华你们上帝的话，谨守他的诫命。"这些诫命包括什么？它们包括关于如何相待的教导。
+
+它们包括关于公正和怜悯的教导。所以当我们谈论在多元社会中选择生命时，我们不仅仅是在谈论说对的话或参加教堂。我们在谈论一种生活方式，一种明显反映我们信仰的方式。这为什么重要？
+
+因为这是基督徒见证的核心。当人们看着我们的生活时会发生什么？他们看到我们说一回事，做另一回事吗？还是他们看到与我们声称相信的一致的生活方式？
+
+在今天的文化中，许多人已经放弃了对基督教的渴望，因为他们在基督徒身上看不到他声称相信的东西。他们看到愤怒、判断和虚伪。但当他们看到真正选择生命的基督徒——选择爱、选择诚实、选择与他人共济——时会发生什么？某些东西可能开始改变。
+
+---
+
+## 选择生命是每日的决定 / The Threatening Graciousness of Grace
 
 Secondly, there's a threatening graciousness to this. Now, you see, we said, when Moses says, this is near you, in the sense of you don't have to go to heaven to get it, because it's revealed in the Bible. But now here's another thought.
 
@@ -132,6 +188,22 @@ He says, it's in your mouth and in your heart. So your heart is where you believ
 
 It's not something that you prove your worth, you just get it. And therefore he's talking, he's saying, that this relationship with God is not something that you go to heaven to get, you go over the sea to get, you don't go on some kind of quest, you don't have to be some heroic warrior, you receive it by grace. Now this is threatening, and this is our second problem we have with it.
 
+---
+
+现在，让我回到摩西的话："看哪，我今日将生与善、死与恶，都摆在你面前。"他说"今日"，不是明天或未来。**这意味着选择生命不是某个大的、一次性的决定。**这是每天所做的一系列选择。
+
+每一天，当你醒来时，你都有选择。你会让耶稣是你早晨的第一个想法吗？你会让他的话引导你一天的决定吗？在工作中，你会以诚实对待客户吗？
+
+在家中，你会用耐心和爱对待你的家人吗？与朋友在一起时，你会愿意站起来支持正确的东西吗？这些日常选择加起来就形成了一种生活。他们定义了你是谁。
+
+他们表明了你真正相信什么。而且，当你做出这些选择，当你每天选择生命时，有趣的事情发生了。你开始影响你周围的人。不是通过说教或判断。
+
+而是通过你所做的方式让人们看到还有另一种生活方式是可能的。
+
+---
+
+## 你的日常选择影响他人 / Naaman: When Grace Feels Too Easy
+
 If you want a perfect example of this, and it's a great example, is the biblical story of Naaman in 2 Kings chapter 5. In 2 Kings chapter 5 we're told about Naaman who was a Syrian general, and he was stricken with leprosy, and he knew he was going to die if he wasn't healed, and he heard about the God of Israel and his power. So he decided to go to Israel and find the prophet Elisha and seek his healing and salvation.
 
 And the text tells us the way he's salad forth to do so, and what he brought with him showed that he understood himself being on a quest. He went with gold and treasure to buy whatever and purchase whatever he had to. He went with a sword, ready to do a great deed because he was a man of prowess and valor.
@@ -162,6 +234,20 @@ You can't call the shots in your life anymore, don't you see? The incredible inc
 
 This threatening graciousness, our pride, because of our pride, the absolute graciousness of the gospel throws us, don't let it throw you, but we're not done. First aspect of this difficult simplicity is the deceptive ordinariness. The second aspect is the threatening graciousness, but the third aspect is the unimaginable promise.
 
+---
+
+在我们的社会中，有许多声音在争夺我们的注意力。有声音说："获得尽可能多的钱。"有声音说："尽可能多地享受。
+
+"有声音说："追求权力。"有声音说："随便做。" 但摩西说："看，我摆在你面前生与死。选择生命。
+
+选择遵循我的诫命。选择爱耶和华你的上帝。" 而当我们这样做时，我们不仅为自己选择更好的生活。我们也为那些观看我们的人点燃了一盏灯。
+
+我们表明，还有另一种方式生活是可能的。一种以爱为中心，以上帝为中心，以他人为中心的方式。
+
+---
+
+## 公开信仰并非难事 / The Unimaginable Promise: The Lord Is Your Life
+
 What do I mean by that? You're smart people, this is New York, so if you're reading that passage, you realize that I've been concentrating on the first part of the passage, which seems to be all about grace. You don't have to go to heaven, you don't have to go over the sea, it's right there in your mouth in your heart, you have to believe in your heart and confess with your mouth, and it's there, it's right there, but then you get to the last part, and it seems like the second part totally contradicts what was just said, because it says, you see, if your heart turns away and you're not obedient, and if you're drawn away to bow down to other gods and worship them, I declare to you this day you will certainly be destroyed.
 
 You will not live long in the land. This day I call heaven and earth as witnesses against you that I have set before you life and death, blessings and curses, choose life, or else all these curses will come upon you. And wait a minute, we say, wait a minute, that seems like we're back to the quest thing, we're back to going over the sea again.
@@ -181,6 +267,20 @@ So choose life, so obey. And all the way through the book up to now, that's what
 But verse 20, suddenly, suddenly, Moses basically says here, your obedience would be your life, and it could be your life, but because it can't be your life, because you're not going to keep it up, the Lord will be your life. What does that mean? Not that the Lord will give you life if you obey.
 
 That's not what it's saying. It says the Lord will be your life, the Lord himself will be your life. What does that mean?
+
+---
+
+所以，如果你今天听这个，并且你说："但我的信仰正变得我生活中的负担。公开谈论它似乎很困难。
+
+"我要鼓励你记住摩西所说的。他说这诫命"不是难行的，也不是远离你的。" 这不是说，选择生命总是容易的。这不是说不会有压力或冲突。
+
+但**这意味着，如果你有真诚的信仰，如果你真的信仰耶稣，那么公开表达这一点就在你的能力范围内。**这不需要是激进的或好斗的。它可以很简单，像是说："我是基督徒，这很重要我。"或者："我去教堂"，或者："我祈祷"。
+
+在许多情况下，这就是人们所需要知道的。这足以开启对话。这足以让他们知道，在一个充满不同声音的世界中，有一个人选择了立场。最后，我想回到标题。
+
+---
+
+## 生命来自与神的关系 / Christ's Quest: Triumph Through Losing
 
 Paul explains it in Romans 10. In Romans chapter 10, Paul comes to this very passage when he's proclaiming the gospel of Jesus Christ to the readers of the book of Romans, to the Romans. He goes to this very passage and he interprets the passage in the most unbelievable way.
 
@@ -261,61 +361,6 @@ And we've curated a wide range of free resources to help you take simple steps t
 Today's sermon was recorded in 2007. The sermons and talks you here on the Gospel and Life Podcast were recorded between 1989 and 2017, while Dr.
 
 ---
-
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《福音人生》。谈到公开表达你的信仰时，你感到舒适吗？本月在播客上，蒂姆·凯勒探讨圣经关于拥有公开信仰的教导。他向我们展示了在多元社会中公开信仰的样子，以一种能创造文明、和平和与邻舍有意义对话的方式。
-
-早上好。今早的经文摘自《申命记》第30章第11-20节。我想讨论的是：什么是真正的选择？这个问题很重要，因为现代社会中我们谈论很多关于选择的事情。
-
-我们说："这是我的选择，那是你的选择。"我们珍视选择，将其视为自由的标志。但圣经告诉我们，真正的选择并非如此简单。摩西在此对以色列人说："看哪，我今日将生与善、死与恶，都摆在你面前。
-
-"这听起来像是一个简单的决定：选择生或死，选择好或坏。但这句话背后有更深层的含义。首先，摩西在这里提醒以色列人，他们处于一个关键时刻。他们即将进入应许之地，但他们需要理解什么是真正重要的。
-
-选择生命意味着什么？它意味着什么选择公开你的信仰，什么是与上帝的真实关系。生命和死亡这里的象征不仅仅是物理上的。它们象征两种生活方式。
-
-一种方式——选择上帝，选择跟随他的道路，选择用他的话来引导你的生活——这就是生命。另一种方式——拒绝上帝，转向虚假的神，依靠自己的判断——这就是死亡。现在，为什么摩西特别强调"看哪，我今日将"这几个词？"今日"这个词很关键。
-
-这不是关于来来世或来世的。这是关于现在、关于今天、关于你每天所做的选择。在今天的文化中，我们常常说："信仰是私人的事。"有一种想法认为，你的信仰应该是你自己的，你不应该在公共场合表达它。
-
-但圣经中摩西所说的不是这样。他说："这诫命我今日所吩咐你的，不是难行的，也不是远离你的。" 这暗示什么？**这意味着信仰不是某种遥远的、无法企及的东西。**
-
-它就在你的嘴里，就在你的心里。这是关于什么——这是关于公开宣布你所信的，这是关于让你的信仰成为你身份的一部分。当摩西说选择生命意味着"爱耶和华你的上帝，听从他的声音，专靠他"时，他不是说这些是秘密的、隐藏的活动。他是在谈论一种生活方式，一种可以看到的、可以被注意到的、可以被同意或不同意的信仰生活。
-
-在多元社会中，这变得特别复杂。我们生活在一个有许多不同信仰的社会中。有无神论者、有穆斯林、有佛教徒、有犹太人、有其他基督徒、有不相信任何东西的人。面对这一切，一个基督徒能做什么？
-
-我们如何选择生命，同时尊重他人的选择？首先，**我们需要理解，生活在多元社会中并不意味着我们不能有信仰，或者我们不能谈论我们的信仰。****这意味着我们的信仰必须足够坚强，以至于我们可以与那些不同意我们的人进行真诚的对话。**其次，当摩西谈到选择生命时，他提到的不仅仅是个人的精神经历。
-
-他谈论的是一种生活方式，会影响你如何对待他人、如何处理金钱、如何对待穷人、如何对待陌生人。摩西说："你们要听从耶和华你们上帝的话，谨守他的诫命。"这些诫命包括什么？它们包括关于如何相待的教导。
-
-它们包括关于公正和怜悯的教导。所以当我们谈论在多元社会中选择生命时，我们不仅仅是在谈论说对的话或参加教堂。我们在谈论一种生活方式，一种明显反映我们信仰的方式。这为什么重要？
-
-因为这是基督徒见证的核心。当人们看着我们的生活时会发生什么？他们看到我们说一回事，做另一回事吗？还是他们看到与我们声称相信的一致的生活方式？
-
-在今天的文化中，许多人已经放弃了对基督教的渴望，因为他们在基督徒身上看不到他声称相信的东西。他们看到愤怒、判断和虚伪。但当他们看到真正选择生命的基督徒——选择爱、选择诚实、选择与他人共济——时会发生什么？某些东西可能开始改变。
-
-现在，让我回到摩西的话："看哪，我今日将生与善、死与恶，都摆在你面前。"他说"今日"，不是明天或未来。**这意味着选择生命不是某个大的、一次性的决定。**这是每天所做的一系列选择。
-
-每一天，当你醒来时，你都有选择。你会让耶稣是你早晨的第一个想法吗？你会让他的话引导你一天的决定吗？在工作中，你会以诚实对待客户吗？
-
-在家中，你会用耐心和爱对待你的家人吗？与朋友在一起时，你会愿意站起来支持正确的东西吗？这些日常选择加起来就形成了一种生活。他们定义了你是谁。
-
-他们表明了你真正相信什么。而且，当你做出这些选择，当你每天选择生命时，有趣的事情发生了。你开始影响你周围的人。不是通过说教或判断。
-
-而是通过你所做的方式让人们看到还有另一种生活方式是可能的。在我们的社会中，有许多声音在争夺我们的注意力。有声音说："获得尽可能多的钱。"有声音说："尽可能多地享受。
-
-"有声音说："追求权力。"有声音说："随便做。" 但摩西说："看，我摆在你面前生与死。选择生命。
-
-选择遵循我的诫命。选择爱耶和华你的上帝。" 而当我们这样做时，我们不仅为自己选择更好的生活。我们也为那些观看我们的人点燃了一盏灯。
-
-我们表明，还有另一种方式生活是可能的。一种以爱为中心，以上帝为中心，以他人为中心的方式。所以，如果你今天听这个，并且你说："但我的信仰正变得我生活中的负担。公开谈论它似乎很困难。
-
-"我要鼓励你记住摩西所说的。他说这诫命"不是难行的，也不是远离你的。" 这不是说，选择生命总是容易的。这不是说不会有压力或冲突。
-
-但**这意味着，如果你有真诚的信仰，如果你真的信仰耶稣，那么公开表达这一点就在你的能力范围内。**这不需要是激进的或好斗的。它可以很简单，像是说："我是基督徒，这很重要我。"或者："我去教堂"，或者："我祈祷"。
-
-在许多情况下，这就是人们所需要知道的。这足以开启对话。这足以让他们知道，在一个充满不同声音的世界中，有一个人选择了立场。最后，我想回到标题。
 
 为什么是"选择生命"？因为生命，真实的、完整的生命，来自于与上帝的关系。它不是来自金钱，不是来自成功，不是来自我们能够积累或获得的任何东西。生命来自于与创造我们并为我们而死的那位的关系。
 

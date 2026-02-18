@@ -22,7 +22,11 @@ By oppression and judgment he was taken away and who can speak of his descendant
 
 After the suffering of his soul he will see the light of life and be satisfied. By his knowledge my righteous servant will justify many and he will bear their iniquities. Therefore I will give him a portion among the great and he will divide the spoils with the strong because he poured out his life on the death and was numbered with the transgressors for he bore the sin of many and made intercession for the transgressors.
 
-This is God's word. There's a little bit of a guess that there's new people here tonight that haven't been part of any series and this is actually part of a series and we've been actually talking about what's wrong with us. I mean the human race.
+This is God's word.
+
+### The Question of Human Evil
+
+There's a little bit of a guess that there's new people here tonight that haven't been part of any series and this is actually part of a series and we've been actually talking about what's wrong with us. I mean the human race.
 
 Captain I just watched a video of a movie I think it came out last year was just called Paradise Road, true story of a prison of war camp in Sumatra, World War II and all of those true stories, whether it's the book Shanton Compound by Langdon Gilgi or the accounts of the death cast by Victor Frankel or this movie, they're gripping of course but there's a whole lot more than that. What happened in the Holocaust? What happened in World War II?
 
@@ -32,11 +36,15 @@ They were devastated because when you're in the midst of one of those experience
 
 There's a lot of disagreement among scholars about the book of Isaiah but one thing everybody's in agreement about is Isaiah chapter 40 through 55 was written for a nation that was facing exile was written to the Israelites who were about to face all the stuff we're talking about, captivity, atrocities, prison. And it was written to them to answer the same two questions, what's wrong with the human race and what are we going to do about it and this is the answer, maybe the best answer, maybe the most famous answer in the Bible to the question about human evil. Here's the answer, God sending somebody, the servant of the Lord and what we learn in, we take a look at the text is we learn who he is, why he came and what he did, pretty much everything, right?
 
+### Who He Is: The Arm of the Lord
+
 Who he is, why he came, what he did, let's take a look, first of all who he is. Now there's a little, there's a lot in this passage and when we get to the top, you see it pretty straight off the bat, it says see my servant will act wisely, he'll be raised and lifted up and highly exalted. Now actually that's the same terminology that describe the one that Isaiah saw in the temple, back in Isaiah 6, when it says, I went to the temple and I saw the Lord high and lifted up the same words, it's got to do with the transcendence, the transcendent majesty of God, it's got to do with the purity, the perfection, it's amazing that the same terms would be attached to this person, but the real amazing thing is verse 1, and you don't notice it right off the bat and there's a number of ways to translate it, let me just tell you what he's saying, verse 1, who has believed our message and to whom has the arm of the Lord been revealed.
 
 Now let me give you a little bit of a paraphrase of this, what he's saying is who has believed our message, that this is the arm of the Lord, it's going to take revelation, Isaiah is saying, nobody's going to believe that this one, this servant, is the arm of the Lord, nobody's going to believe it, and here's why, the arm of the Lord is not just a kind of nice metaphor that Isaiah came up with on the spot, the arm of the Lord is a specific, has a very specific, very definite meaning in the Hebrew Bible and also especially in the book of Isaiah. The arm of the Lord is the Lord himself come into history to do something concrete. The arm of the Lord is what moved the Red Sea, part of the Red Sea.
 
 See, the arm of the Lord is not God's strength in general, of course arm, if it was the eye of the Lord we'd be talking about the knowledge of God, but the arm of the Lord is the power of God, but not just any kind of power, it's not just general strength, it's God's power in history. And no wonder Isaiah says, look, I know people aren't going to believe it, nobody's going to believe that this is the arm of the Lord reveal, this is the arm of the Lord. This person is the omnipotent God come into history.
+
+### The Essence of Christianity: Action, Not Advice
 
 Now before we move on, we've got to move on, let me just say what's neat about this passage, it's got to do with essentials. In fact, the more I look at this, who is why he came, you know, what he came to do. This really gets a kind of essential definition, this whole passage for example, you know, Aristotle brought us the distinction between what he called the essence and the accidents, the essentials and the accidentals.
 
@@ -63,6 +71,8 @@ Jesus Christ did not essentially come. Every other founder comes and says, Jesus
 Do this. Jesus Christ says, I'm going to connect you to God. I've done this or put it in another way, just number of ways to put it.
 
 It means, for example, the gospel is news, not advice. You see, the other founders come with advice and they say, hey, here's how you can change your life. But news is this is what's happened that changes your life.
+
+### Christian Stories Must Be True to Work
 
 Now, if I, what? Some of you may have heard me say this before, but let me put it to another way that I think brings it home. The stories of Christianity don't work unless they're true.
 
@@ -114,7 +124,11 @@ If it's not true, it actually works badly. It's a perverse, it's a, it's pernici
 
 See, Christianity is really bad for you. Very, very bad, terrible. It's one of the other, he is the arm of the Lord.
 
-Okay, that's who came. It's God himself acting in history. Second, that's who he came and the wider he comes now.
+Okay, that's who came. It's God himself acting in history.
+
+### Why He Came: The Essence of Sin
+
+Second, that's who he came and the wider he comes now.
 
 Again, we're getting into essence because the reason he came and his look, verses four through six, there's a whole sleut of a great vocabulary where it's a whole survey of almost every kind of way to describe human evil. Sin, look, you've got infirmities. See, transgressions andiquities.
 
@@ -125,6 +139,8 @@ It means bent, bent, okay? Bent means it doesn't work, but if you try to unbend,
 But in the midst of all of these interesting words, there's one that kind of gets at the essence of what's wrong with us. So this is the answer to the question. What's wrong with us?
 
 Here it is. Verse six, very famous, but overlooked. All we like sheep have gone astray, each of us has turned to his own way.
+
+### "Me First": The Undeletable Impulse
 
 Now you say my word, this is the central place where God is telling us the secrets of what's wrong with us, of human evil. This is a definition of evil. This is a definition of sin, own way.
 
@@ -172,7 +188,11 @@ Keller shows how the reality of sin explains the pain we see all around us and h
 
 Request your copy today at gospelandlife.com slash give. That's gospelandlife.com slash give. Now here's Dr.
 
-Keller with the rest of today's teaching. If you say sin is breaking rules, God's rules, and that's partly, that's one perspective, but if you start there, here's the problem. Let's just say you just cheated on the test.
+Keller with the rest of today's teaching.
+
+### Sin as Shattering, Not Scratching
+
+If you say sin is breaking rules, God's rules, and that's partly, that's one perspective, but if you start there, here's the problem. Let's just say you just cheated on the test.
 
 You get cheated on the test. Well, that's something like robbery. So you think of sin and you can actually say, well, it's just a very small sin.
 
@@ -256,6 +276,8 @@ I can be my own maker. And there's no meaning for anything. One or the other.
 
 Well, almost nobody thinks that out. You don't want to think it out. But I'm respectfully asking you to think it out.
 
+### What He Did: Substitution as Salvation
+
 Now, lastly. See? Who he is?
 
 Why he came? What he did. Now, what we have here is one more essence.
@@ -334,6 +356,8 @@ His death was like this. It's almost as if Jesus Christ took his body in one han
 
 Now what does that mean? Well, it means something for your heart and something for your understanding and then we're going to end. Here's the thing it means for your heart.
 
+### The Unbreakable Love of the Cross
+
 The heart. What held Jesus to the cross? Think about it.
 
 What held Him to the cross? I mean, there's a lot of people who died for other people. Those that they can move you.
@@ -383,6 +407,8 @@ I wonder whether Jesus is going to give up on me. Your inconsistency, your fooli
 He was absolutely voluntary. He gave himself for you. That's something your heart's got to know.
 
 It's a strong love. You couldn't possibly wear it out. You couldn't possibly wear it through it.
+
+### The Cross as the Pattern for Life
 
 But then, here's the last thing for your understanding. This is not only something you need to know if you need to know this for your understanding. Jesus Christ essentially fulfilled the law of God twice when he came to earth because he didn't just die to fulfill the law.
 

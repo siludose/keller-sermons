@@ -4,59 +4,7 @@
 
 ---
 
-## 首果，但只是一颗。**真正的果子，但只是**一颗。如今，在你成为基督徒的时候，你的内心就结出了圣灵的果子。你的生命中也有了圣灵的恩赐。
-
-Welcome to the Gospel and Life podcast. Do you believe Christ's resurrection is merely a symbol or an actual real historical event? Today, Tim Keller is teaching on why believing in the historical reality of the resurrection is the only way it will really change you.
-
-After you listen to today's teaching, we invite you to go online to gospelandlife.com and sign up for email updates. When you sign up, you'll receive our quarterly journal and other valuable gospel-centered resources. You can subscribe today at gospelandlife.com.
-
-Turn in the bullet into the passage of Scripture on which the teaching is based. First Corinthians 15. Now, there's three basic things that Paul says about the resurrection.
-
-Now, the musicians know what they are, don't you? The musicians have heard this three times. And they are so holy that tonight, when they turn off the lights, they're going to glow in the dark.
-
-But you don't know what those three things are yet. And so, just to get a little bit of the effulgence of the musicians to get your cut, let's read. First Corinthians 15.
-
-For what I received, I passed on to you as of first importance, that Christ died for our sins according to the Scriptures, that He was buried, that He was raised on the third day according to the Scriptures, and that He appeared to Peter, and then to the twelve. And after that, He appeared to more than 500 of the brothers at the same time, most of whom are still living, though some have fallen asleep. But Christ has indeed been raised from the dead.
-
-And the first fruits of those who have fallen asleep, for since death, came through a man. The resurrection of the dead comes also through a man. For as in Adam all die, so in Christ all will be made alive.
-
-But each in his own turn, Christ the first fruits, then when He comes those who belong to Him, then the end will come when He hands over the kingdom to God the Father after He has destroyed all dominion, authority and power, for He must reign until He has put all His enemies under His feet. The last enemy to be destroyed is death. Listen, I tell you a mystery.
-
-We will not all sleep, but we will all be changed in a flash. In the twinkle of an eye, at the last trumpet, for the trumpet will sound. The dead will be raised in perishable, and we will be changed.
-
-For the perishable must close itself with imperishable, and the mortal with immortality. And when the perishable has been clothed within the imperishable, and the mortal with immortality, then the saying that is written will come true. Death is swallowed up in victory.
-
-Where O death is your victory, where O death is your sting. The sting of death is sin, and the power of sin is the law, but thanks be to God. He gives us the victory through our Lord Jesus Christ.
-
-Therefore my dear brothers stand firm, but nothing move you. Always give yourselves fully to the work of the Lord, because you know that your labor in the Lord is not in vain. Now, what Paul does here is he answers three questions, and it's a long chapter, and I've only pulled a couple of pieces out, and you could do worse than to read the whole chapter on Easter Sunday.
-
-First Corinthians 15, maybe the great chapter in the whole Bible on the meaning of the resurrection of Jesus. And he answers three questions about Jesus' resurrection. Did he do it?
-
-What did it do? And what should we do about it? See, did it happen, in other words, what did it accomplish, and what should we do about it?
-
-Now, those three things hang together, though I'd like to concentrate tonight on the last point. But see, here's how they hang together. First of all, Paul, in the first few verses, tries to explain that if you're going to get the benefits of the resurrection in your life, if it's really going to make a difference in your life, if it's really going to change you, you have to believe it actually happened.
-
-That's the reason he goes to the trouble in the very beginning of saying, look, I received. Now, these are technical Greek verbs, actually. He chooses verbs when he says, I received, and I passed on to you.
-
-These are verbs that mean I researched, I got information, and I passed it on. I talked to the eyewitnesses. I talked to 500.
-
-He says, 500 Christians who are still alive when I'm writing this, which is 20 years after Jesus' death and resurrection, who are still there, you can still go and ask them. See, when Paul makes this sort of public claim in a publicly circulated letter, when he says, look, there are 500 witnesses, go and talk to them if you want. They all saw Jesus at once after he had been raised from the dead.
-
-What is Paul doing? He was saying, it matters. It matters whether you believe it really happened.
-
-The average person in New York City believes the resurrection is a wonderful concept. It's a symbol. It's a symbol of good triumphing over bad.
-
-It's a symbol that you can have a new start after a disaster. If you want a little example of it, of that view of the resurrection, it's the New York Times lead editorial today. It says, well, Christians have always celebrated the fact that here was a man who stood against tyranny.
-
-Since Christians are not supposed to be sensitive, that would be an insult and therefore it's not. But if we were sensitive, it would be an insult. Paul goes to great pains and says, if you have a comfortable little life, the symbol of the resurrection, meaning just how good things overcome bad things eventually, might be a some comfort.
-
-In your life with concrete trouble, concrete trials, concrete, real death coming at you, unless you believe in a concrete, real physical, literal, historical resurrection, you're not going to be any different. You're not going to be able to handle real trouble unless you believe in a real resurrection. You can't believe the resurrection is just a beautiful symbol but didn't happen literally or physically.
-
-Paul goes out of his way to say, like in verse 20, but Christ has risen indeed. That's why we say, not just he's risen, indeed he's risen, really risen, actually risen. His body rekindled and he walked out.
-
-And Paul's here saying, the reason he lays all these verses down in the very beginning is, he says unless you believe it, it's not going to change you. That's the first point. Now, the second point is not only does he say, you have to believe it happen, but he also says, you have to believe or have to understand what it accomplished.
-
-The resurrection isn't just something that happened. It's not just a naked display of power, it accomplishes something. And what is it accomplish?
+## 复活成就了什么 / What Resurrection Accomplishes
 
 Well, there's two things that Paul says happen, the resurrection accomplishes. The first one, he says in verse 17, which I didn't print there unfortunately, where Paul says, if Christ has not raised from the dead, you're still in your sins. In fact, he says it in a very vivid way.
 
@@ -115,6 +63,52 @@ It proves that something has begun. It goes in verse 20 to 23. Twice.
 We're told Jesus Christ is the first fruits. Now what's the first fruits? Wow.
 
 Here's what the first fruits mean. There is a world. There is an eternal world.
+
+---
+
+什么结束了？根据罗马书4:25，耶稣为我们的罪被钉死，但为我们的义而复活。这又意味着什么呢？**这意味着：当你面对死亡，当你接近死亡，当你参加一个你认识的人的葬礼时，无论这个人是谁。**
+
+尽管这个社会会告诉你死亡是自然的、生活的一部分，你知道事实并非如此。死亡是不自然的，不对的。我们不想死，我们不愿看到亲人离去。这是不正常的事情。
+
+死亡阻止我们复活，但我们想复活，但它阻止了我们。死亡把我们拉下深渊。死亡不对。这就是为什么迪伦·托马斯那句著名的话如此出名的原因。
+
+迪伦·托马斯说：“我们对抗着光的消逝。”我们知道死亡不是自然的，但如果它不是自然的，那么它就是被施加的。所以你知道死亡是自然的，但如果是自然的，那就意味着它是审判、惩罚。为什么呢？
+
+圣经给出了答案。我们生活在一个被建造的世界里，这个世界如果我们要为他人和上帝而活而不是为自己，就能正常运作。我们是为了服务他人并保存上帝而构建的。那不是我们生活的样子。
+
+我们为了满足自己而活，利用上帝的人来达到我们的需要和目标。因此，世界无法正常运作。而在死亡中不工作是自然的结果。我们违背了现实的经纬和本质，其结果就是瓦解。
+
+而瓦解即是死亡。因此，死亡有权威。死亡是一种审判。当耶稣基督死时，保罗说，如果他没有复活，你们仍然在罪里。
+
+为什么？因为如果耶稣基督死了，死亡依然有效。死亡依然拥有权威。但当耶稣基督复活了，我们已经为此歌唱过。
+
+死亡徒劳地阻止他复活。最后一首圣诗也很好，它谈论了死亡徒劳的主题。死亡不能。为什么？
+
+因为公义已经被偿还。审判已经被偿还。当耶稣基督死的时候，他已经完成了所有必要的事情。因此，死亡徒劳。
+
+死亡对我们没有力量。死亡对我们没有权威。因此，定罪已经结束。你看？
+
+复活意味着定罪已经结束。复活意味着你的罪已经被偿还。上帝已经满足了你。实际上，在旧约中，一年有一天，所有人聚集在一起，大祭司在赎罪日进入幔子内。
+
+他进去的是什么？至圣所。他要去的地方是什么？他去为百姓的罪献祭。
+
+所有人都很紧张。为什么？因为他要回到上帝面前的直接存在前。牺牲会被接受吗？
+
+有人屏息以待，他下去了，几乎面临死亡。他进入了幔子。但每次他在献祭后出来时，大家都会欢欣鼓舞。为什么？
+
+因为**这意味着罪已经被偿还。**但这每年都在重复发生，正如希伯来书所说，这种方式无法完全满足良心。但当耶稣基督进入地里又出来时，这就是神对所有人说：你们的罪已经被完全偿还。因此，一方面，没有复活，你绝对没有任何信心相信神此刻看着你而满意并接纳你。
+
+另一方面，复活不仅证明某件事已经结束。它还证明了新事物已经开始。这在第20节到第23节中得到了证实。两次。
+
+我们被告知耶稣基督是初熟的果子。那么什么是初熟的果子呢？哇。初熟的果子意味着什么？
+
+有一个世界，一个永恒的世界。一个完全公义的世界。一个充满爱的世界。一个没有衰老和死亡的世界。
+
+一个充满生命、真理和美丽的世界。但那是理想中的世界。而这是现实的世界。每个人都明白，在现实世界与理想世界之间有一块坚硬的石板。
+
+---
+
+## 新创造的应许 / The Promise of New Creation
 
 A world of complete justice. A world of complete love. A world where nothing gets old and dies into case.
 
@@ -188,6 +182,60 @@ He was in a terrible spot. It was, you don't need to know. But he says, they're 
 
 Sam saw a white star twinkle. The beauty of it smote his heart. As he looked up out of the forsaken land and hope returned to him, for like a shaft clear and cold, the thought pierced him that in the end the shadow was only a small and passing thing.
 
+---
+
+但当耶稣从死里复活时，这不仅仅是烟花表演，也不仅是裸露的力量展示。而是理想的现实进入了现实世界。耶稣基督是初熟的果子。什么是初熟的果子？
+
+它是从花园中出来的第一样东西。它是从谷物中出来的第一样东西。它是葡萄藤上的第一个果实。它是即将到来的东西。
+
+它就是现实，虽然是不完全的，但它确实是收获的一部分。**这意味着神未来的希望已经降临了。**在复活中，一个洞被捅破了世界的无情壁垒。死亡的世界迎来了永生。
+
+黑暗的世界迎来了光明。当耶稣基督说：“相信我，你将获得复活。”这不仅仅是让你振奋一下，让你高兴一点。你知道，他会给你力量度过一天。
+
+抬起头来。放弃你的小目标。圣经说，基督徒和教会是神末世学的先锋。**这意味着他的未来已经现在到来，部分但真实。**
+
+首果，但只是一颗。**真正的果子，但只是**一颗。如今，在你成为基督徒的时候，你的内心就结出了圣灵的果子。你的生命中也有了圣灵的恩赐。
+
+你的内心充满了真实的、神圣的、未来的喜乐、爱和荣耀。当你拥有圣灵的恩赐时，**这意味着当你关心他人、辅导他人、见证他人、教导他人时，你正在把未来的生命带进他们的生活中。**这世界中的疏离感开始被治愈了：我们精神上与神隔绝，心理上与真正的自我隔绝，社会上与其他种族、阶层和国籍的人隔绝。这一切都通过圣灵的恩赐得到了治愈，因为未来已经来到了你的生命中。
+
+这个夏天你是否在寻找增长信仰的方法？或者你希望帮助新信徒或孩子理解基督教的核心教义吗？对于很多人来说，夏季可以提供更多的机会来深化我们的信仰，并理解跟随基督意味着什么。今年夏天的一个很好的资源就是新的城市 catechism 日课。
+
+神的话语滋养我们的心灵和思想。这个日课将基督教历史上经典的 catechism 带入生活，每周为你提供一个问题进行思考。在引言中，提摩太·凯勒阐述了 catechesis 的重要性——这一丰富而共同体的实践，通过学习和背诵问题与答案来塑造基督徒的基本信仰。每个星期包括一段圣经经文、一个祷告和一篇简短的沉思，这些都会挑战并激励你。
+
+附带的注释由当代牧者如约翰·派博、提摩太·凯勒和凯文·德容以及历史人物如奥古斯丁、约翰·加尔文和马丁·路德撰写。这个月，除了新城市小教理问答灵修材料之外，我们还将提供一个很好的配套资源——新的儿童版新城市小教理问答，作为您对福音和生命事工的支持的感谢。请访问 gospelonlife.com/give 获得您的副本。这就是 gospelonlife.com/give。
+
+现在，请听蒂姆·凯勒继续今天的教导。复活已经将未来带到了现在。复活已经使你们得到了称义。那么，什么超越了永远的定罪和审判？
+
+又有什么开始了呢？是国度。正如第20至24节所说。那么，第一果是什么？
+
+是国度。首先，也是最后，完整的国度。这就是15章20到24节的意思。现在让我们进入最后一个要点，因为保罗基本上是在说这一切只是为了达到这个结论。
+
+当到达这个结论时，他说：“好吧，这在我们的生活中有什么不同吗？”我特别喜欢第58或59节中的一句话：“所以，亲爱的弟兄们，请站立坚定，不要让任何东西动摇你们。” 总是全心全意地献身于主的工作。那么，“因此”后面指的是什么呢？
+
+让我花一分钟时间。你如何应对困难？你是如何变得坚强的？你如何面对生活中的困难？
+
+你是如何成为不动摇的人？这就是保罗在谈论的问题。你怎么做到这一点？你怎么应对生活的困难？
+
+你知道，只是咬紧牙关说：“我要坚强。” 你说：“我是基督徒，这不会影响我。” 这不是保罗的做法。保罗不建议你咬紧牙关，让任何东西动摇不了你。
+
+“因此”后面指的是什么呢？这里的“因此”涵盖了哥林多前书15章的全部神学内容。你看，当保罗说他希望你们成为坚强的人时，并不只是要与世界抗争。他说的是思考，是思考上帝所做的一切如何使你感到敬畏和荣耀。
+
+这非常全面。让心灵参与进来，直到情感激荡到极致，意志变得无比强大。所以当保罗说“因此”这个词时，他指的是前面所有的一 Corinthians 的内容，而他真正要做的，是我们大多数人在面对困境时所做的事情恰恰相反。我们只是硬抗。
+
+这是纯粹的斯多葛主义。我们直接与意志对抗，而不是像保罗那样。保罗说：“你们需要有盼望。” 希望只来自于一个理解：这个复活确实发生了，它做了什么。
+
+我的英雄之一是《魔戒》中的山姆·甘吉。在书中有一个地方，他几乎到了绝望的地步。他抬头望向星空，看到了一些东西。他说：“他从藏身之处爬出来，向外望去，只见土地满是吱吱嘎嘎、窸窸窣窣的声音。
+
+” 他陷入了绝境。你不需要知道具体情况。但他看到，“云层之上，黑暗的山峰中，有星星在闪烁。” 山姆被那光芒刺痛了心扉。
+
+当他从这片荒芜之地抬头望向天空时，希望重新回到了他的心中，就像一道清澈冰冷的思想穿透了他的心灵：“最终，阴影只是一场短暂而微不足道的事。” 光明和高远的美丽永远超越它的触及范围。那时，他不再只是为自己抗争，而是将自己置于一个更深、更无波澜的睡眠中。现在其中有很多微妙之处。
+
+你看，在过去，山姆变强大是因为他只是硬抗。他直接锻炼自己的意志力。但最终，你注意到它说这是自我中心的。“自我中心”就是说：“我不用担心，我不会出汗，我会没事的，我会坚强。
+
+---
+
+## 在盼望中站稳 / Standing Firm in Hope
+
 There was light and high beauty forever beyond its reach. His song and the tower had been defiance rather than hope for then he was thinking of himself. Now for a moment, his own fate ceased to trouble him.
 
 He crawled back into the brambles, laid himself down and putting away all fear. He cast himself into a deep untroubled sleep. Now there's a lot of nuances in there.
@@ -237,6 +285,46 @@ Christians, if you understand the doctrine of the resurrection and the doctrine 
 God hasn't come in his fullness. There's still tons and tons of brokenness. There's still tons and tons of death.
 
 There's all kinds of problems. Now what does that mean? Well, people get into the life and first of all, see all kinds of disappointments and all kinds of tragedies and they'll harden their hearts.
+
+---
+
+” 但是突然间，他得到了希望。什么是希望？是一种刺痛心灵的思想。就像一道清澈冰冷的思想穿透了他的心扉：“最终，阴影只是一场短暂而微不足道的事；光明和高远的美丽永远超越它的触及范围。
+
+” 现在这不过是黑暗中的呼喊，除非耶稣基督真的复活了。如果祂真的复活了，那么我建议你像萨姆看着那颗星星一样去看它，直到箭头穿透你的心，然后你就站定了，没有什么能动摇你。让我快速给你列举一些不会让你困扰的事情。首先，你的罪和瑕疵不再会困扰你。
+
+你们相信耶稣的复活吗？你看？如果耶稣不在了，那么上帝看你时就会满意，并接受你，你的罪和瑕疵就不会再困扰你。你会问，这怎么可能呢？
+
+想象一下你在梅西百货购物的情景。梅西百货是个非常大的商店，假设你买了一件很大的东西，太大而无法装进袋子里。你需要从你现在的位置走到街上。当你到达街上时，一切都会好起来的。
+
+但路上有人会说，他们会要求你的收据。为什么呢？因为如果保安拦住你或销售人员或其他人问你拿着那个东西做什么，你可以挥舞着你的收据说：“不要打扰我。” 我已经付了款，一分钱也没欠。
+
+什么都没有欠。我是清白的。复活节是什么？这就是你的收据。
+
+因为你将要面对问题，很多问题。你会从这个世界得到问题，从肉体得到问题，还会从魔鬼那里得到问题。这些问题会这样问你：如果你知道你在西边五点钟礼拜时心里想的是些什么。我注意到那边有一个很吸引人的家伙，就开始胡思乱想，哇，我简直不敢相信自己在教堂里。
+
+天哪。你自己的心也会说：“上帝为什么爱你？”“上帝为什么要爱你？”当你心中开始下沉时，你可以拿出你的收据——耶稣基督的复活。
+
+不要打扰我。不要打扰我。我已经付了款。我是清白的。
+
+你看，你可别自欺。无论这是世界、肉体还是魔鬼的问题，你都可以这样说。不要你欺骗我，我也不会欺骗自己，因为复活了，这就是我的收据。**这意味着一切已经全部付清。**
+
+所以不要让你的罪和缺陷使你沮丧。不要让他们动摇你。不要让他们打倒你。你看，什么也不要动摇你。
+
+不要让他们动摇你。其次，不要让生活的不确定性动摇你。现在我知道这听起来很奇怪，我很快说清楚。基督徒们，如果你理解复活的教义，复活是初熟的果子，但只是初熟的果子。
+
+换句话说，神未来的希望已经降临，**这意味着有各种不可思议的力量可以改变许多事情，但这只是一个开始。**这只是初熟的果子。神还没有完全到来。仍然有很多很多的破碎和死亡。
+
+还有很多问题。那意味着什么呢？嗯，人们进入生活后，首先会遇到各种失望和悲剧，他们的心就会变硬。他们会说：“看这生活有多糟糕。
+
+”于是你就放弃了希望，变得愤世嫉俗，说：“那又能怎样？”你心生冷漠，因为你不想再受挫。但是基督徒不会这样做。基督徒对世界保持不耐烦的态度，对自己也保持不耐烦的态度，因为他们有希望。
+
+如果你有希望，你会不耐烦。如果你对朋友说：“你可以做得更好。”或者对自己说：“你可以做得更好。”或者对纽约市说：“你可以变得更好。
+
+” 你不是愤世嫉俗的人。你是不耐烦的，因为你充满了希望。但是基督徒也不应该寻求简单的答案。基督徒也意识到这里有很多破碎和缺陷。
+
+---
+
+## 荣耀的初熟果子 / First Fruits of Glory
 
 They'll say, look at how bad life is. So you give up hope, you get cynical, you say, well, what can you expect? You harden yourself because you don't want to be disappointed.
 
@@ -291,76 +379,6 @@ You can also stay connected with us on Facebook, Instagram, YouTube and X. Today
 Keller was senior pastor at Redeemer Presbyterian Church.
 
 ---
-
-你的内心充满了真实的、神圣的、未来的喜乐、爱和荣耀。当你拥有圣灵的恩赐时，**这意味着当你关心他人、辅导他人、见证他人、教导他人时，你正在把未来的生命带进他们的生活中。**这世界中的疏离感开始被治愈了：我们精神上与神隔绝，心理上与真正的自我隔绝，社会上与其他种族、阶层和国籍的人隔绝。这一切都通过圣灵的恩赐得到了治愈，因为未来已经来到了你的生命中。
-
-这个夏天你是否在寻找增长信仰的方法？或者你希望帮助新信徒或孩子理解基督教的核心教义吗？对于很多人来说，夏季可以提供更多的机会来深化我们的信仰，并理解跟随基督意味着什么。今年夏天的一个很好的资源就是新的城市 catechism 日课。
-
-神的话语滋养我们的心灵和思想。这个日课将基督教历史上经典的 catechism 带入生活，每周为你提供一个问题进行思考。在引言中，提摩太·凯勒阐述了 catechesis 的重要性——这一丰富而共同体的实践，通过学习和背诵问题与答案来塑造基督徒的基本信仰。每个星期包括一段圣经经文、一个祷告和一篇简短的沉思，这些都会挑战并激励你。
-
-附带的注释由当代牧者如约翰·派博、提摩太·凯勒和凯文·德容以及历史人物如奥古斯丁、约翰·加尔文和马丁·路德撰写。这个月，除了新城市小教理问答灵修材料之外，我们还将提供一个很好的配套资源——新的儿童版新城市小教理问答，作为您对福音和生命事工的支持的感谢。请访问 gospelonlife.com/give 获得您的副本。这就是 gospelonlife.com/give。
-
-现在，请听蒂姆·凯勒继续今天的教导。复活已经将未来带到了现在。复活已经使你们得到了称义。那么，什么超越了永远的定罪和审判？
-
-又有什么开始了呢？是国度。正如第20至24节所说。那么，第一果是什么？
-
-是国度。首先，也是最后，完整的国度。这就是15章20到24节的意思。现在让我们进入最后一个要点，因为保罗基本上是在说这一切只是为了达到这个结论。
-
-当到达这个结论时，他说：“好吧，这在我们的生活中有什么不同吗？”我特别喜欢第58或59节中的一句话：“所以，亲爱的弟兄们，请站立坚定，不要让任何东西动摇你们。” 总是全心全意地献身于主的工作。那么，“因此”后面指的是什么呢？
-
-让我花一分钟时间。你如何应对困难？你是如何变得坚强的？你如何面对生活中的困难？
-
-你是如何成为不动摇的人？这就是保罗在谈论的问题。你怎么做到这一点？你怎么应对生活的困难？
-
-你知道，只是咬紧牙关说：“我要坚强。” 你说：“我是基督徒，这不会影响我。” 这不是保罗的做法。保罗不建议你咬紧牙关，让任何东西动摇不了你。
-
-“因此”后面指的是什么呢？这里的“因此”涵盖了哥林多前书15章的全部神学内容。你看，当保罗说他希望你们成为坚强的人时，并不只是要与世界抗争。他说的是思考，是思考上帝所做的一切如何使你感到敬畏和荣耀。
-
-这非常全面。让心灵参与进来，直到情感激荡到极致，意志变得无比强大。所以当保罗说“因此”这个词时，他指的是前面所有的一 Corinthians 的内容，而他真正要做的，是我们大多数人在面对困境时所做的事情恰恰相反。我们只是硬抗。
-
-这是纯粹的斯多葛主义。我们直接与意志对抗，而不是像保罗那样。保罗说：“你们需要有盼望。” 希望只来自于一个理解：这个复活确实发生了，它做了什么。
-
-我的英雄之一是《魔戒》中的山姆·甘吉。在书中有一个地方，他几乎到了绝望的地步。他抬头望向星空，看到了一些东西。他说：“他从藏身之处爬出来，向外望去，只见土地满是吱吱嘎嘎、窸窸窣窣的声音。
-
-” 他陷入了绝境。你不需要知道具体情况。但他看到，“云层之上，黑暗的山峰中，有星星在闪烁。” 山姆被那光芒刺痛了心扉。
-
-当他从这片荒芜之地抬头望向天空时，希望重新回到了他的心中，就像一道清澈冰冷的思想穿透了他的心灵：“最终，阴影只是一场短暂而微不足道的事。” 光明和高远的美丽永远超越它的触及范围。那时，他不再只是为自己抗争，而是将自己置于一个更深、更无波澜的睡眠中。现在其中有很多微妙之处。
-
-你看，在过去，山姆变强大是因为他只是硬抗。他直接锻炼自己的意志力。但最终，你注意到它说这是自我中心的。“自我中心”就是说：“我不用担心，我不会出汗，我会没事的，我会坚强。
-
-” 但是突然间，他得到了希望。什么是希望？是一种刺痛心灵的思想。就像一道清澈冰冷的思想穿透了他的心扉：“最终，阴影只是一场短暂而微不足道的事；光明和高远的美丽永远超越它的触及范围。
-
-” 现在这不过是黑暗中的呼喊，除非耶稣基督真的复活了。如果祂真的复活了，那么我建议你像萨姆看着那颗星星一样去看它，直到箭头穿透你的心，然后你就站定了，没有什么能动摇你。让我快速给你列举一些不会让你困扰的事情。首先，你的罪和瑕疵不再会困扰你。
-
-你们相信耶稣的复活吗？你看？如果耶稣不在了，那么上帝看你时就会满意，并接受你，你的罪和瑕疵就不会再困扰你。你会问，这怎么可能呢？
-
-想象一下你在梅西百货购物的情景。梅西百货是个非常大的商店，假设你买了一件很大的东西，太大而无法装进袋子里。你需要从你现在的位置走到街上。当你到达街上时，一切都会好起来的。
-
-但路上有人会说，他们会要求你的收据。为什么呢？因为如果保安拦住你或销售人员或其他人问你拿着那个东西做什么，你可以挥舞着你的收据说：“不要打扰我。” 我已经付了款，一分钱也没欠。
-
-什么都没有欠。我是清白的。复活节是什么？这就是你的收据。
-
-因为你将要面对问题，很多问题。你会从这个世界得到问题，从肉体得到问题，还会从魔鬼那里得到问题。这些问题会这样问你：如果你知道你在西边五点钟礼拜时心里想的是些什么。我注意到那边有一个很吸引人的家伙，就开始胡思乱想，哇，我简直不敢相信自己在教堂里。
-
-天哪。你自己的心也会说：“上帝为什么爱你？”“上帝为什么要爱你？”当你心中开始下沉时，你可以拿出你的收据——耶稣基督的复活。
-
-不要打扰我。不要打扰我。我已经付了款。我是清白的。
-
-你看，你可别自欺。无论这是世界、肉体还是魔鬼的问题，你都可以这样说。不要你欺骗我，我也不会欺骗自己，因为复活了，这就是我的收据。**这意味着一切已经全部付清。**
-
-所以不要让你的罪和缺陷使你沮丧。不要让他们动摇你。不要让他们打倒你。你看，什么也不要动摇你。
-
-不要让他们动摇你。其次，不要让生活的不确定性动摇你。现在我知道这听起来很奇怪，我很快说清楚。基督徒们，如果你理解复活的教义，复活是初熟的果子，但只是初熟的果子。
-
-换句话说，神未来的希望已经降临，**这意味着有各种不可思议的力量可以改变许多事情，但这只是一个开始。**这只是初熟的果子。神还没有完全到来。仍然有很多很多的破碎和死亡。
-
-还有很多问题。那意味着什么呢？嗯，人们进入生活后，首先会遇到各种失望和悲剧，他们的心就会变硬。他们会说：“看这生活有多糟糕。
-
-”于是你就放弃了希望，变得愤世嫉俗，说：“那又能怎样？”你心生冷漠，因为你不想再受挫。但是基督徒不会这样做。基督徒对世界保持不耐烦的态度，对自己也保持不耐烦的态度，因为他们有希望。
-
-如果你有希望，你会不耐烦。如果你对朋友说：“你可以做得更好。”或者对自己说：“你可以做得更好。”或者对纽约市说：“你可以变得更好。
-
-” 你不是愤世嫉俗的人。你是不耐烦的，因为你充满了希望。但是基督徒也不应该寻求简单的答案。基督徒也意识到这里有很多破碎和缺陷。
 
 基督徒不应该天真无邪、充满活力地生活，也不应该愤世嫉俗。人们不应该到处说一切都是祝福，并且会有复兴。如果你只是相信耶稣基督，你的一生就会变得完整。这并不是复活的教义。
 

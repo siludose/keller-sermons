@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Scripture Reading and Introduction
+
 Welcome to Gospel in Life. This month on the podcast, we are featuring a series on the Sermon on the Mount, a collection of teachings where Jesus outlines what it really means to live the Christian life. In the series, Tim Keller explores a striking idea that Christianity is not just different from the world, it's also radically different from religion.
 
 He went down with them and stood on a level place. A large crowd of his disciples were there and a great number of people from all over Judea from Jerusalem and from the coast of Tyre and Sidon who had come to hear him and be healed of their diseases. Those troubled by evil spirits were cured and all the people, the people all tried to touch him because power was coming from him and healing them all.
@@ -11,6 +13,8 @@ Blessed are you who are poor for yours is the kingdom of God. Blessed are you wh
 Blessed are you when men hate you and when they exclude you and insult you and reject your name as evil because of the Son of Man. Rejoice in that day and leap for joy because great is your reward in heaven. For that is how their fathers treated the prophets.
 
 But woe to you who are rich for you who have already received your comfort. And woe to you who are well fed for you will go hungry and woe to you who laugh now for you will mourn in weep and woe to you when all men speak well of you. For that is how their fathers treated the false prophets as his God's word.
+
+### The Sermon on the Mount and Its Mountain Setting
 
 Now as Tim just said it's spring and it's traditional actually for centuries in the church to at the at spring time to turn our thoughts to what it means to live the Christian life. You see you get to Easter which is right around the corner and when you get to Easter and you celebrate the resurrection it's only natural to start to ask this question. How can we live a newness of life?
 
@@ -38,6 +42,8 @@ Why? Because he is bringing a revolution. He is a subversive.
 
 He actually says in the very first verse of his sermons, the verse 20, he says, I'm coming to bring a new administration. I'm coming to bring a kingdom. A new kingdom to replace the old kingdom.
 
+### Every Kingdom Has a Pattern, Power, and Product
+
 However, when you actually begin to understand what he says, this kingdom is. You begin to realize that every other revolutionary who ever lived was really only just trying to make small fine tuning to the old kingdom. Just trying to rework, re-shuffle the old kingdom.
 
 Now, Jesus Christ brings is a revolutionary that's the most radical because the values and the pattern and the power and the product of his kingdom is utterly different. Now, you see what's the kingdom I just told you? A kingdom always has three things.
@@ -63,6 +69,8 @@ The day is at hand, which means the light is coming, the night is far spent, the
 The day is coming, the night is leaving, but they're both there. And Paul says, what you have to make sure is you live is in the light. You better dress, you better put on your makeup as if the light's coming because it's coming.
 
 Don't be fooled by the darkness, and this means that even though you may be a citizen of the kingdom of Jesus Christ, you can still live under the influence of the old kingdom. And really when it comes, so therefore when it comes down to an understanding, not only the fact that there are two kingdoms, but the patterns of the two kingdoms is absolutely critical for living in this world if you want to live as a Christian. Now what are those two kingdoms?
+
+### The Right-Side-Up Kingdom: Worldly Values
 
 We're going to look briefly at the first one, the old kingdom, the kingdom of Christ is replacing, and we're going to look a little more extensively at the new one. And I'm going to call the old one, the right side up kingdom, and the new one, the upside down kingdom. Okay, here's why.
 
@@ -114,7 +122,9 @@ See, the right side up kingdom, I call it right side up because when you think a
 
 Who would value sacrifice? Who would value grief? Who would value exclusion and rejection?
 
-Forget it. But what's the product? Now, Jesus says, when you live according to these values, driven by the power of the now, because it results.
+Forget it. ### The Temporary Results of Living for the Now
+
+But what's the product? Now, Jesus says, when you live according to these values, driven by the power of the now, because it results.
 
 He says, it's temporary. You will only laugh now, but later you'll weep. It's temporary.
 
@@ -162,6 +172,8 @@ The whole right side of kingdom that seems absolutely to be the only way to go, 
 
 We're not talking about, how do we know if Jesus lived and died? I'm not going to give you the evidence, I'm not going to take you to the text. But if he did, if he lived the life, anything like what the Bible is saying, your days are numbered, Bill Shazzar, unless you were living a life which is upside down from the way the world thinks things should go.
 
+### The Upside-Down Kingdom: A Reversal of Values
+
 Now let's take a look at the upside down kingdom. That was the right side up kingdom. What is the upside down kingdom?
 
 Well, you know, I've already said so, but let me give you another quote by one of those commentators that helped me so much for this week. A guy named Michael Wilcock wrote a commentary on Luke and he says this about this passage. It perfectly, he says it perfectly.
@@ -185,6 +197,8 @@ In the introduction, Tim Keller lays out the case for catechesis, the rich and c
 Young, as well as historical figures such as Augustine, John Calvin and Martin Luther. This month, in addition to the new city catechism devotional, we are including a great companion resource, the new city catechism for kids, as our thank you for your gift to help Gospel and Life share the hope of Christ's love with people all over the world. So request your copies today at gospelandlife.com slash give.
 
 That's gospelandlife.com slash give. Now here's Tim Keller with the remainder of today's teaching. Now let me break this down.
+
+### The Pattern: Freedom from Worldly Control
 
 Let's look at the pattern, the power and the product of the upside down kingdom. Number one, the pattern. The pattern of the upside down kingdom is a reversal of values with regard to the world.
 
@@ -266,6 +280,8 @@ What's great about this is it really means that you no longer have to have these
 
 So that's the pattern. The pattern is I have a complete reversal because I'm free from the world's value. But secondly, okay, where do you get the power for this?
 
+### The Power: Christ's Substitution, Not Mere Example
+
 And somebody says, yeah, where do you get the power for it? I don't completely understand. Well, look, it says where you get the power.
 
 It right there in verse 19. Him. Jesus Christ's life is an example of the very way in which we're supposed to live.
@@ -339,6 +355,8 @@ When have you really come to get connected with God? It's not when you're rich, 
 And therefore Christians are willing to go out and sacrifice themselves and when I use the word reckless, I don't mean irresponsible. I mean, reckless as far as the world would understand. The world would say, anybody who gives that kind of money away, you should be saving up for a rainy day.
 
 You need to make sure anybody who gives your life like that. Of course people are going to kind of explore you occasionally, but a Christian will have such strength in Christ that by the world standards, a Christian is going to look reckless and is not afraid of weeping and is not afraid of emptiness and sacrifice. Because I know the Kingdom of God makes progress in my life and the lives of other people when it happens.
+
+### The Product: The Gospel Turns Hearts Toward the Poor
 
 Now lastly, one last thing and it's pretty important. The pattern of the upside down Kingdom is what? It's a total reversal of your attitude toward the things that the world thinks are so important, power and comfort and success and recognition.
 

@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel and Life. When someone you know is contemplating life's deepest questions, who am I? What's wrong with the world?
 
 What can truly make me whole? Jesus doesn't just give us answers. He gives us Himself.
@@ -22,7 +24,11 @@ You only say the things that are the most important that you've ever learned in 
 
 So let's ask what's that problem, what's the solution, how do you know if you have it and if you don't, how can you receive it? What's the problem, what's the solution, how do you know if you have it, if you don't, how can you receive it? Okay, don't fall off your chairs, four points, not five points.
 
-It's only about two hour sermons, so the ordinary hour and 45 minutes. What's the big problem? It's actually there in verses one to four.
+It's only about two hour sermons, so the ordinary hour and 45 minutes.
+
+### The Ultimate Human Problem
+
+What's the big problem? It's actually there in verses one to four.
 
 For weeks and months we have been looking at the book of Deuteronomy and basically the book of Deuteronomy is God's blueprint for how he wants human beings to live and it's an marvelous blueprint. It's a vision of a life of integrity and joyful unselfishness. And if we really live the way it says in the book to do, oh my, you know, if you were here on Labor Day, we looked at Deuteronomy 15 and there's a statement in Deuteronomy 15 that I've just been struck by for years.
 
@@ -53,6 +59,8 @@ And the professor, the whole class of shock said, well, that's not therapy. He s
 What he simply meant is he says, psychology is a science. We can't give you a new heart, which is what Neil Minnes trying to say. That's the biggest problem.
 
 We know what to do. We're powerless to do it. What's the solution?
+
+### The Solution: God Circumcises the Heart
 
 Verse six. Look at this. It's an amazing.
 
@@ -94,6 +102,8 @@ What if, however, God came in from the outside and fixed your heart so that the 
 
 The thing you most want to do, the thing you most is the thing you ought to do. And that's the reason why you've got this, you know, this, just John Newton, him that goes like this that I so often like to quote, our pleasure and our duty, though opposite before, since we have seen his beauty, are joined apart no more. That's a new heart.
 
+### When Duty Becomes Delight
+
 The moment you find your pleasure and your duty that are always different, I've got to do it, I ought to do it, you know, I believe in God. I know I've got to do it. You need to be good.
 
 But here's your passion. Here's the things that you most desire to do. Here's the things that you're attracted to, our pleasure and our duty, though opposite before, since we have seen his beauty, are joined.
@@ -105,6 +115,8 @@ Ezekiel and Jeremiah say, God will give you a new heart, not just a circumcised 
 And when Jesus talks to Nicodemus and John chapter 3, he quotes Ezekiel 37 and he says, you must be born again of the spirit. Same thing. To be born again, to be born of the spirit, to get a new heart, to have a circumcised heart is the same thing.
 
 And that is the solution to the ultimate human problem that we know how we ought to live, but we can't live it. Now thirdly, how do you know if you've got this thing? How do you know if you have a new heart or a circumcised heart?
+
+### Sign One: A New Spiritual Awareness
 
 There's actually three signs embedded in verses 6, 7, 8, 6, and 8 actually that I think are extremely important signs that you have received that you have the circumcised heart. Here's the first sign. Well, the three words, by the way, they tell us the three signs are love, obey, and live.
 
@@ -148,7 +160,11 @@ It's a powerful resource that explores how Christianity makes emotional, cultura
 
 To request your two copies of making sense of God, simply go to Gospel and Life.com-slash-give. Again, that's Gospel and Life.com-slash-give. Now, here's Dr.
 
-Keller with the remainder of today's teaching. Now, yes, listen, for those of you who have heard this illustration before, be patient, but a lot of you haven't. It's my favorite and best illustration on this subject.
+Keller with the remainder of today's teaching.
+
+### Edwards on True Faith: From Useful to Beautiful
+
+Now, yes, listen, for those of you who have heard this illustration before, be patient, but a lot of you haven't. It's my favorite and best illustration on this subject.
 
 When I was in college, I took a music appreciation course, and I had to listen to a lot of Mozart because they was on the test, and I had to be able to identify Mozart for the test. I listened to Mozart to get a passing grade in a class, so I get my degree, so I get out and get a good job. I listened to Mozart, in other words, to make money.
 
@@ -170,7 +186,11 @@ And as a result, people with this new heart may actually have been in the church
 
 You see the love of God, and before you just knew about it, you taste the power of God, but now before maybe you just believed in it. In other words, things that were just sort of abstractions become incredibly galvanizing and moving, and life changing, which brings me to the third point. Love, oh, the second point, pardon me, the second point.
 
-So the first sign of a changed heart, a circumcised heart, is that you love God for who he is in and of himself, and you begin to sense who he is, as opposed to just believe in a math straggly. But secondly, it changes your life. It changes you.
+So the first sign of a changed heart, a circumcised heart, is that you love God for who he is in and of himself, and you begin to sense who he is, as opposed to just believe in a math straggly.
+
+### Sign Two: A Changed Life
+
+But secondly, it changes your life. It changes you.
 
 You see the whole point of this whole passage, the whole thrust is, because you have this changed heart, now you obey, right? You don't obey to get the changed heart. The changed heart is not the result of obedience.
 
@@ -189,6 +209,8 @@ That's wonderful. And you feel, oh, I really feel God's spiritual reality. Well,
 Do the people who know you best, the people around you who really see you, are they saying you are becoming more and more unselfish, more and more generous, more and more kind, more and more self-controlled, more and more courageous as the weeks go by? If you're not changing in the way you actually live, then you don't have that new heart. You're just being stirred.
 
 Your emotions are being stirred. That's all. To have a new heart, you have a new sense of God's spiritual reality on you.
+
+### Sign Three: Organic Spiritual Growth
 
 Secondly, you have a change life, but thirdly, you start growing. I love, you know, you'd almost miss it, unless you're looking for it. Carefully.
 
@@ -232,7 +254,11 @@ But you can have an experience like that and have no idea that that was the begi
 
 You don't know it right away, you have to look back and find it. But you must be born again, you must get your heart circumcised, you must get a new heart. Do you have it?
 
-Do you see these things in yourself? Well if you don't, how do you get it? And here's my suggestion to you.
+Do you see these things in yourself?
+
+### How to Receive a New Heart: The Cross as Cosmic Circumcision
+
+Well if you don't, how do you get it? And here's my suggestion to you.
 
 Don't say, God, give me a new heart. You know, I need a new heart, why? Because I want to be a better person.
 

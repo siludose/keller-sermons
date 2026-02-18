@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel in Life. Are you longing to see real change in your life, in your habits, your relationships, your heart? Today, Tim Keller explores how lasting change actually happens in the life of a Christian and why the Gospel offers a radically different process of transformation than anything else.
 
 Today, Scripture reading is on page 9 in your bulletin and it comes from Romans 7 verses 1 through 9 and then 18 through 25. Or do you not know, brothers, for I am speaking to those who know the law, that the law is binding on a person only as long as he lives? Thus a married woman is bound by law to her husband while he lives, but if her husband dies, she is released from the law of marriage.
@@ -25,6 +27,8 @@ And when I began to grasp what was taught there, that's when change, real change
 Last week we looked at Romans 6 as a whole, and we saw some principles. This we look at Romans 7 as a whole, in which we have in very starkly, shockingly realistic terms, a depiction of the human heart, what we really have here. And then when we get to Romans 8, Romans 6 as the principles, Romans 7 as the heart that the principles have to be applied to, and Romans 8 will take two or three weeks looking at the more practical aspects of how do you apply the principles to the heart so as to bring about change.
 
 Now tonight I'm going to move from the beginning, the end of the beginning, we're going to look at the last part of the passage, the middle part of the passage, and then the first part of the passage. And when we look at Romans 7 like that, I think we'll learn three things. What our biggest problem is, what won't work against it, and what will.
+
+### The Deep Splitness of the Human Heart
 
 What our biggest problem is, what will not address or solve that problem, and what will. Number one, what's our biggest problem? And Paul very classically puts it in verse 18 and 19, when he says, I have the desire to do what is right, but not the ability to carry it out.
 
@@ -76,7 +80,11 @@ In fact, even the village voice was blown away by the music critic there because
 
 He says, look beneath the floorboards of my life and you will see the capacity to do terrible things. Do you believe that? Do you really, do you believe what Stevenson's saying, Sufjan Stevens is saying, Robert Louis Stevenson, what Paul is saying, that in you you've got a capacity for hideousness and selfishness and evil way beyond what you really think you're capable of.
 
-But at some point you might find some situation, bring it out and then you're dead. So if that's the case and it's important to understand and that is the case, what do we do about it? Point two, the main solution that most people try to bring to bear on it, Paul says doesn't work.
+But at some point you might find some situation, bring it out and then you're dead.
+
+### Why the Moral Law Cannot Fix Us
+
+So if that's the case and it's important to understand and that is the case, what do we do about it? Point two, the main solution that most people try to bring to bear on it, Paul says doesn't work.
 
 What is that? It has to do with the moral law. Now when we see in here Paul talking about turning to the law and turning to the moral law, he's thinking of the mosaic law, he's a Jew, he's thinking about the ten commandments in the mosaic law.
 
@@ -97,6 +105,8 @@ Now how could that be? He's saying that applying the law of God through willpowe
 This is what you have to do. It doesn't make you a better person. It makes you worse.
 
 It brings out. It aggravates what's wrong with you. How could that be?
+
+### Augustine's Pears and the Rebel Heart
 
 Well at one level, nobody talks about this better than St. Augustin, by the way, St. Augustin in his famous book The Confessions reflects on an incident in his youth.
 
@@ -123,6 +133,8 @@ The Psalms can profoundly shape the way you approach God, even Jesus relied on t
 And if you already spend time and study and prayer, then reading and praying through the Psalms can help you bring your deepest emotions and questions before God and discover a new level of intimacy with him. We'll send you Tim and Kathy Keller's devotional as our thanks for your gift to help Gospel and Life share the love of Jesus with more people. That's your copy today at gospelandlife.com slash give.
 
 That's gospelandlife.com slash give. Now here's Dr. Keller with the rest of today's teaching.
+
+### The Tenth Commandment Exposed Paul
 
 What's that mean? Now, here's what I think it means. Paul was saying, I was alive.
 
@@ -158,7 +170,11 @@ He was a mess. And he says, it slum me. And you know what that means?
 
 I realized I was spiritually dead as the lawless people that underneath all my morality and underneath all my goodness. I realized that the law was actually creating something inside. It was creating all of this insecurity, creating all of this problem, creating all this anger, creating all this envy.
 
-What is he talking about? Why would he say, I'm just as lost, I'm just as dead spiritually as the immoral people out there. Robert Lewis Stevenson in Jekyll Hyde has a fascinating passage.
+What is he talking about? Why would he say, I'm just as lost, I'm just as dead spiritually as the immoral people out there.
+
+### Goodness That Becomes Its Own Evil
+
+Robert Lewis Stevenson in Jekyll Hyde has a fascinating passage.
 
 When I read it, I was blown away by it. And I realized it never comes out in any of the kind of horror, you know, films and plays and things based on the story. When Dr.
 
@@ -191,6 +207,8 @@ One is by saying, I'm going to live my own life, nobody tells me how to live my 
 You're not letting God be your Savior. And even though there's all kinds of moral behavior in your life, inside you are filled with self-righteousness and cruelty and bigotry and you're miserable because you're always comparing yourself to other people and you never are sure you're good enough. See?
 
 And what does that mean? It means that you can't deal with your hideousness, you can't deal with that self-centeredness, you can't deal with that self-absorption by trying to be a good person and by just bringing the moral law to bear so that you can say, now I'm going to be a really, really good person that can just make you worse. You don't deal with your hideousness with an act of the will, you need a complete transformation of the very motives of your heart or you're dead.
+
+### Dying to the Law, Married to Christ
 
 So that's our problem and that's what will not solve our problem, but what will? Not just application of the will to the moral law, not just application of the moral law to your heart through an act of the will, what will, what will really solve it. And the answer is up in verses 1 to 7.
 
@@ -279,6 +297,8 @@ And it's quite a metaphor, is it not? For judgment? No matter how hard you hide,
 There will be a judgment day. Your hideousness will be revealed. And there's nothing you can do to stop it.
 
 Judgment day will come. Well, wait a minute. There is something.
+
+### The Hideous One Who Makes Us Beautiful
 
 Isaiah 52 and 53 talk about Jesus Christ, the suffering servant who comes to save us and this is what it says about him. They were appalled at him. His appearance was disfigured beyond that of a man and his form marred beyond human likeness.
 

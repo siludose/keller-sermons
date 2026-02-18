@@ -18,6 +18,8 @@ Can a mother forget the baby at her breast had had no compassion on the child sh
 
 Your walls are ever before me. Let's end there. This is God's Word.
 
+### The Despondent Heart
+
 Now, if you've been coming over the weeks, you know, this is the actually end of a series on what the Bible has to say about what's wrong with the human heart, what's wrong with the human race, what the Bible calls sin. And if you're part of this series, you need to know that if you've been following this series, this is the ultimate cure. Well, we actually have here, let me remind you this when we've been in Isaiah for a while, what we have here is something written to people who are going to face our facing exile.
 
 The Jews had Jerusalem destroyed. That's the reason why there's discussion about Zion's wall. Zion was the hill on which the temple was built.
@@ -77,6 +79,8 @@ It's very interesting. In verse 14, we see someone saying in spite of all these 
 I don't feel left by you. I don't feel that you're committed to me. And we see how God deals with a despondent heart.
 
 And that's pretty instructive. How does God deal with it? How does God deal with a person who's despondent in despair?
+
+### God Stops and God Argues
 
 First of all, let me show you two general principles and then three specific principles, two general ways in which God works with a despondent depressed person. And then three very specific things that he joins us to do. First, there's two real general principles and they go like this.
 
@@ -154,7 +158,11 @@ Look, well, I'll just say what the three things are. He says, think of who you. 
 
 Look at what I have done. And practice who you are, okay? Think of who I am.
 
-Look at what I've done and practice who you are. Now, here's the three. First of all, think of who I am.
+Look at what I've done and practice who you are. Now, here's the three.
+
+### Engraved on His Palms
+
+First of all, think of who I am.
 
 Who is he? Now, we have here a metaphor that God deliberately chooses to tell us something about who he is. Verse 15, can a mother forget the baby at her breast and have no compassion on the child?
 
@@ -341,6 +349,8 @@ A palm means appeal, a palm means welcome, a palm means receive. When my palms a
 That would be, if you're going to put a chisel, that's just terrible. That must have hurt terribly. It did.
 
 Many centuries later, somebody came to another doubter, another despondent person, his name was Thomas. And he said to Thomas, look at the palms of my hands. And when you look at Jesus Christ, look at the palms of his hands to see where your name is, and you will see nail prints.
+
+### The Cross Turns Wrath to Milk
 
 Why? This is the reason why we're a beauty to him. The reason we're such a beauty to God is because our names have been engraved in something more precious than stones, more precious than diamonds.
 

@@ -4,93 +4,7 @@
 
 ---
 
-Welcome to Gospel and Life. If you have a job, it's likely that you think about it a lot. But how much of you thought about the Biblical approach to your work?
-
-Today, on Gospel and Life, Tim Keller shows us that the Bible has incredibly helpful and practical wisdom we can apply to the work we do. Wisdom you may find surprising, even life-changing. I want to talk about two quotes, two things that John Coltrane said about the relationship between God and His music.
-
-And I think each of them tells us something very significant. The first one tells us something about the relationship of music and art to God. And the second one talks about our relationship of our work in general to God.
-
-Another way to put it is this. Coltrane's first quote points to music as evangelism. The second quote points to music as service.
-
-Now, when I use the word evangelism, I hope for a moment you can sort of shake free your mind from any association that word with politics, fundamentalism, and remember that evangelism means good news of hope. Here's the first quote. John Coltrane says overall, I think the main thing a musician would like to do is give a picture to the listener of the many wonderful things that he knows and senses in the universe.
-
-That's what I would like to do. I think that's one of the greatest things you can do in life, and we all try to do it in some way. The musician is through his music.
-
-Now, what Coltrane is saying is that music, not just the words to a song, but the music itself is a form of evangelism. Music can tell the most hopeless heart that there's hope, the most meaningless heart that there's meaning. No matter what you believe with your head, music tells you that your life is not a tale told by an idiot, full of sounded fury, signifying nothing.
-
-Music has a way of coming to you and saying in spite of how you feel, there is hope, there is meaning. Stephen J. Gould, the late Harvard paleontologist, wrote this, he says, we are here simply because one odd group of fish had a peculiar anatomy that just happened to be able to transform into legs for terrestrial creatures.
-
-We are here simply because common struck the earth at a particular time and wiped out dinosaurs giving mammals a chance. We yearn for a higher answer, but none exists. We are not here for any purpose at all.
-
-We have to construct any meaning to our lives ourselves. Now, what he's simply saying is this, we yearn to believe that we're here for purpose that there is meaning in life, that there is hope. But if there is no God, there's none.
-
-There isn't any. You can tell yourself that there is, but there really isn't. You can yearn for a higher answer, but there isn't.
-
-But Ashley Kahn, a person with Stephen J. Gould's exact same beliefs about the universe, wrote a book called A Love Supreme, the story of John Coltrane's signature album. And in it, he says this, as I listened to the album again and again, I felt impelled to address Coltrane's impassioned spirituality, though I consider myself a dedicated agnostic and diehard rationalist.
-
-I am ready to admit that there is much that can seem to be the handiwork of some eternal force under spiritual direction. Very begrudgingly, and by the way, John told me he knows this guy, knows Ashley Kahn, very begrudgingly, here's what Kahn says. I have the same view of the universe that Stephen J.
-
-Gould has. As far as I know, I'm a hard-nosed rationalist, we're not here for any purpose, we're not here. We weren't created.
-
-We're just here by accident. There is no meaning in life. There is no such thing as significance.
-
-But when he hears the music, his heart tells him something different. When he hears the music, he can't not know. He can't not know that there is a love that lasts forever, that there's truth, that there's meaning.
-
-The music evangelizes him. His head tells him these things don't exist. God doesn't exist.
-
-But his heart knows better, and the music reminds his heart of that, and the music confirms it. And actually, those of you who are artists in any form, art has the power to do that. And if you are an artist, whether you know it or not, you are using that power, but how much more fulfilling your life would be if you knew what you're doing.
-
-So first of all, I think the first thing that Coltrane shows us is that connection, spiritual connection between art and great music, especially, and how great music evangelized, secondly, though, Coltrane actually points to music as service, and this actually applies, not just to musicians and artists, but to us all. He says, in the liner notes of a love supreme, he says, during the year 1957, I experienced by the grace of God a spiritual awakening which was to lead me to a richer, fuller, more productive life. At that time, in gratitude, I humbly asked to be given the means and privilege to make others happy through music, to inspire them to realize more and more of their capacities for living meaningful lives.
-
-Because there certainly is meaning to life, and I feel this has been granted to me through his grace, all praise to God. Now, actually, you have both of the themes in that quote, but I want to point out what he says about his now-his-work in service. Stephen J.
-
-Gold was right when he said, if you think life is meaningless, what am I who you are? You've got to create a meaning for yourself. And one of the ways most of us, especially in a place like New York, one of the ways most of us find a way to make sure where you know we're significant is through our work.
-
-It's through our work by doing it well, and by moving ourselves ahead, through our work, we say, now I know I have significance. In other words, we take our work and we make that as we make it all about us. You see, if the way in which you know you've got meaning in life and the way in which you know you've got significance in worth is your music.
-
-Then the music, ironically, is about you. And the paradox is, when the music's about you, it's not usually very good music. You know, there's a place where CS Lewis, who was an artist, said, the artist who's trying desperately to be original will never be original.
-
-The artist who's trying desperately to make a good impression is not going to make a very good impression. If you use your work as a desperate search, a desperate effort to give yourself meaning in life, ironically you won't do a very good job with your work, but culture and something happened to change culture and changed all that for him, that one night he played his piece of love supreme, you know, 32-minute piece outpouring of praise and thanks. And he did an incredible night, and he stepped down, and he was heard to say when he was done, none could admit us.
-
-Now those are the first two words in the Latin, first two Latin words of something that Simeon said in Luke chapter 2 when he'd seen the baby Jesus, and he realized he'd seen the Messiah. Simeon says, now let thy servant depart in peace, according to thy word from my eyes have seen my salvation. And what culture he was actually saying is, I've done it.
-
-I've done everything I was put here on the earth to do. I'm ready to go if I have to. Now where does it get that contentment?
-
-If you have experienced a supreme love so that you know he loves you, regardless of how well you do out there on the stage, regardless of how well it claimed you are in your work, if you know he loves you in an unmerited free way, then the work is no longer about you. It's about the work, the music's about the music, it's about the listeners, it's about God, it's just the way of serving people, and ironically it becomes so much better. And this is true not just for musicians, but for all of us.
-
-And what culture he is saying is, if you experience a love supreme, then instead of using the claim of others to fill up your own emptiness, you can minister to others out of your fullness. Nunk demitus, what an amazing approach to work. You know, Ephesians chapter 2 verse 10, here's my translation, we are God's artwork created by God to do good works, which God has prepared in advance for us to do.
-
-And when you know that you or his artwork, your art becomes a way of evangelism and service. So there's some perspectives by John Coltrane on the relationship between God and spirituality and his music. And now, but I'm just a minister, I'm not a musician, but now we get to hear from Professor at City College, but also a musician himself, John Patatucci.
-
-Wow. Okay. Well, I guess I'd like to start first about having encountered Coltrane's music at a relatively early age.
-
-Actually even before I began my real spiritual journey, I was about 17 when I became very committed to Christianity. I heard Trane's music and I fell in love with it immediately. The urgency of it even before Love Supreme was always interesting in that the power and the beauty that he played with was overwhelming.
-
-The great jazz drummer Billy Hart said it very well when he said when Coltrane played, even if he was playing at his fever pitch, most intense he could be. It sounded like he was playing a ballad. There was an outpouring of love from his horn.
-
-All the people that I know that were close to him say that he was a very kind and deep man. He's one of the few jazz musicians I've ever heard, especially in the company that he kept, he played with miles and monk, great visionaries, very intense men. But a different thing happens when you hear Trane.
-
-Sometimes when you hear the others, they're kings of the craft, they're amazing artists. But there's a little bit of a dig me in there, if you know what I mean. When you hear Miles play, he's definitely laying out, this is me, I'm Miles, check this out.
-
-When Coltrane plays, it's amazing. There's just this outpouring of emotion and purity that I never really experienced before. And I believe me, I'm a complete jazz fanatic.
-
-I have a lot of records. I spent my life absorbed in this music. I started very early in the music.
-
-I started here in the music around eight years old. I'm 46. I spent a lot of years on the road playing and I've talked to a lot of people about it.
-
-The people that knew him said that going to the Vanguard was like going to church. When you walked in, there was something different. This just wasn't a gig at a club with a quartet.
-
-No, this was Coltrane's band, and I'm getting kind of emotional. I wish I had been there. The other thing about it was that the way he was with the people that he was with, I've spent some time with Wayne Shorter and many people that were around him.
-
-And he was very generous. In fact, it was him who recommended Wayne Shorter to Miles Davis. He said, there's a guy out there.
-
-He's better than me. You should hire him. Of course, Wayne was, as anybody would be, would be incredibly humbled and devastated by that comment.
-
-How would you like to have to follow Coltrane in a band with Miles? But that was the type of person he won. He actually lived the life of someone who was trying to be a holy person.
-
-He was a great example of it. And you can hear it whenever he plays. His music is gripping.
-
-It's always deep. There's never extraneous things to it, whether he's playing a million notes or just one note. He grabs you and shakes you at your core of your soul.
+## 上帝之手在艺术中 / The Hand of God in Art
 
 And that, to me, because of the way I believe, is the hand of God. When I hear him play, it's not just the person playing. It's the voice of God screaming out that horn.
 
@@ -184,6 +98,74 @@ That in between sets, he would go and practice with other musicians but just han
 
 And, and it sounds like from what I've heard you say, Coltrane moved past that to actually using the music as a form of worship being God or expression of his worship to God. And I'm not sure exactly where that balance is if you spend every waking hour of your whole life practicing to be able to produce something and this could go for any art form, then is that an idol in your life or is that a remarkable dedication that shows your worship to God? That's a great question.
 
+---
+
+他就是个很好的例子。无论何时你听他的音乐，都能感受到它的力量。它总是深刻的，无论是弹奏成千上万的音符还是仅仅一个音符。他会抓住你，震撼你的灵魂深处。
+
+对我来说，因为我的信仰，这就是上帝的手。当我听到他演奏时，这不仅仅是个人在演奏，而是上帝通过那支号在呐喊。我必须说，在听音乐的时候，我从未听过创作者的力量如此鲜明地体现在一个人身上。我认为很难找到这种深度。
+
+至少在爵士乐中，我不知道是否能找到这样的例子。我不知道它是否存在。当然，在爵士乐中，我不确定。我只是知道，聆听他的音乐对我的影响。
+
+他还坚持不懈地追求自己天赋的发展。他没有浪费自己的天赋。他得到了一个惊人的礼物，但他比任何人都更加努力。他不是18岁时就出道的天才，而是不断工作、练习，甚至撞墙也不放弃。
+
+并不是说他18岁就能做到一切。不。我认识一些在费城与他一起长大的人，他们问过吉米·希思。他记得科尔特兰在发展时的样子。
+
+如果你问他，我还和像本尼·古尔森这样的萨克斯手聊过，他们也认识科尔特兰。他告诉我一个有趣的故事，关于他和Coltrane一起逗Benny Goulson妈妈的事。Benny Goulson的妈妈经常在他家举办爵士乐聚会时请他去玩。你会说：“约翰，记得Duke Ellington演奏的那个Johnny Hodges的曲子吗？
+
+”然后John每次来都会被要求弹那个曲子。有一次他们在一个大乐队里演出，被告知这场演出取消了。但他们走遍社区，看到海报上写着那场演出还在进行中，而他们却被解雇了。于是他们回到家告诉Benny Goulson的妈妈这个消息。
+
+她问：“怎么了，孩子们？”他们说：“我们以为要参加的那个工作现在还在进行，但我们没被邀请。”她说：“别担心，总有一天人们会付很多钱听你们演奏。” 快进20年，在蒙特雷爵士音乐节或纽波特爵士音乐节上。
+
+当然，Benny Goulson当时正在和Art Blakey合作。有一次他们三人在一起，Train突然笑了起来。他说：“你还记得我们被解雇时你妈妈说的话吗？”然后他补充说：“他是一个非常美好的人。
+
+” 我有幸与他的儿子Ravi一起演奏过。但不幸的是，Ravi在John去世前并没有真正了解他的父亲。所以我可能可以一直讲下去。也许我应该停止了。
+
+但我只想感谢你们的到来。对我们所有人来说，这是一次非常感人的经历。我和Brian经常和Wayne一起旅行，我们常常谈论Train，因为Wayne曾经与他一起练习。Train会打电话给Wayne说：“今天你过来一趟。
+
+”然后他们会在钢琴前坐下来。有一次，Train走到钢琴前，用肘部按住尽可能多的键，问：“你能弹多少？”Wayne尽力跑出所有的音符。然后轮到Wayne来试试看，Train也会这样做。
+
+他们还把Alice的竖琴书拿出来练习竖琴曲目，试图获得更多的和声。他们在追求卓越上是不知疲倦的。在这一点上，我们所有人都能学到一个重要的教训，无论是精神上的、音乐上的、艺术上的还是生活中的。所以这就是今天我们聚集在这里的一部分原因。
+
+让我们来谈谈这些事情。现在，你知道的，这里有音乐家，有牧师。我不知道你们会提出什么样的问题。但我们总是这样做的，并且我们认为有些人可能会提问。
+
+但我们会建议不要问关于汽车修理或外星生命的问题。我记得有一次我的一个公开论坛上，有人问我对外星生命的看法。我担心约翰可能真的知道这个问题的答案。所以你们最好不要问这些问题。
+
+如果有问题的话，这里空间很大，你们可以去其中一个麦克风那里提问。好了，今晚的表演很棒。我想问的是关于后期音乐的表现。大概是66年、67年的样子。
+
+那种音乐是嘈杂且自由的风格。为什么今天没有演奏那样的音乐？但实际上，我很欣赏那首曲子，只是有点难以听懂。我想要你谈谈他对那个时期音乐的想法。
+
+你想让我谈谈他晚期的作品，比如星际空间之类的东西。好的。他在问关于后期爵士乐训练的作品。是的。
+
+那些作品非常激烈，有时对不习惯听爵士的人来说可能不太容易接受。你知道的，我认为有些音乐很难听，因为它很密集。但其中有很多美丽之处。实际上，我推荐星际空间。
+
+因为那是他和拉希德·阿里合作的作品，只有萨克斯风和打击乐器。那里面有一些令人惊叹的美丽音乐。而且这也是一种萨克斯风的见证。他在那张唱片上所做的作品简直难以置信。
+
+所以它以一种非常直接的方式吸引人。这是一首美丽的音乐。它很美，但也很有力量。与多菲合作的作品是另一种风格。
+
+与法罗·桑德斯的合作作品则非常密集，很多人在做很多事情。我坚持认为，在所有那些东西中，你都能听到他的愿景。其他人的实力有时确实令人怀疑，但当谈到他的演奏时，我相信拉希德·阿里在很多方面都表现得非常出色。你知道的，我认为他就是一个探索者。
+
+他在尝试寻找新的事物。所以我觉得这一切都有价值。有些试图模仿他的人我不总是很有耐心，因为他们往往缺乏他那种深度的音乐才能或灵魂。他们只是盲目跟风，以为只要演奏自由爵士乐就能像火车一样轰鸣前进。
+
+当然，这并不一定正确。但是确实，里面有很多值得探索的东西。我推荐你听听《星际空间》。继续提出这些问题吧。
+
+你们知道，他们问他的问题很多。你可以先回答这个问题，我不确定是哪位想回答。你说他是个探索者，我也很好奇，因为我最近一周读了一些关于他的资料，并试图更多地了解他的灵性。我想知道他对1957年之后的持续探寻基督教之外的东西的看法，特别是在他生命的后期阶段。
+
+这似乎与他所谈论的一些音乐有关。你知道的，他一直在探索很多不同的东西。我知道他曾花了很多时间研究东方哲学。我其实并不清楚具体情况，因为我从未有机会和他交谈过。
+
+如果能和他见上五分钟就好了，但我没有这个机会。你可能需要问他的家人来了解这些细节。甚至他的孩子们也无法更深入地回答你的问题，尤其是艾丽丝。但她确实一直在学习很多不同的东西。
+
+让我补充一点。我认为今晚我想给你们带来的见解有关他对神在灵性、音乐等方面的重要性的一些洞察。我不知道他会走到哪里，因为他还在不断探索其他宗教。我的英雄，我的事工英雄CS刘易斯也是一位非常坚定的基督徒，他也可能认为其他宗教中有一些比某些基督徒愿意相信的更多的恩典和洞察力。
+
+尽管如此，约翰·科尔特兰关于神与音乐、灵性之间关系的基本见解依然成立。但确实，他一直在探索。不幸的是，我认为他在弄清楚这些事情之前就去世了。我们得在这边来回讨论一下。
+
+感谢表演，真是太棒了。还有一道问题我想问你们俩。根据我对约翰·科尔特兰音乐生涯的了解，他是一个极其投入的人。在每组演出之间，他都会和其他音乐家一起练习，甚至只是闲聊。
+
+他的音乐之所以发生了如此大的变化，是因为他不断地练习并且全心投入到音乐中。我有一个关于音乐和艺术形式的问题，特别是当你们把生命中的大部分时间和精力都投入到音乐中时，音乐到什么程度可以成为一种崇拜的对象。从你刚才说的话来看，科尔特兰确实超越了这一点，开始用音乐作为一种崇拜的形式来表达他对神的敬拜。我不知道这种平衡在哪里，如果你把每一个清醒时刻都用来练习以创作出某种东西，这在任何艺术形式中都是如此，那么这种投入是偶像崇拜还是对神的一种卓越奉献？
+
+---
+
+## 专注与偶像崇拜 / Dedication and Idolatry
+
 He's saying, when does your dedication to your art, whether it's music, any kind of art, your practice of it, when does it kind of, when does the line blur and it become idols? An idol to you that you worship. This is a thing that we all struggle with.
 
 I believe if you're honest with yourself and you're passionate about music and your life, you have to deal with this issue. I can't speak for Trane how he dealt with it, I don't know. I know that he was known to be a serious practitioner.
@@ -276,6 +258,72 @@ It was never technique for technique sake. It was technique in the service of a 
 
 But in the beginning, I think almost anybody in a career in the very beginning, you are, it is a kind of works righteousness. You're working hard because you want to be accepted. But you often see with people who get the acceptance they want.
 
+---
+
+这是一个很好的问题。他说，你对艺术的投入，不论是音乐还是其他任何形式的艺术，当你练习它的时候，什么时候这条线开始模糊，变成一种偶像？对你来说，是你崇拜的东西。这是我们每个人都会面对的问题。
+
+我相信如果你对自己诚实，并且热爱音乐和生活，就必须面对这个问题。我不知道特雷恩是怎么处理的，但我知道他是个非常严肃的练习者。他会在独奏时离开麦克风，走进车上的厨房继续练琴，而麦科伊在演奏他的独奏。他总是不断地练习。
+
+我记得有人拜访过他家，无论何时他从门口进来，他脖子上总挂着萨克斯的肩带。我也知道他经常和家人在一起。很难说我没有在那里。对我来说，这是一项巨大的挑战，我有一个妻子和两个女儿。
+
+家庭时间非常重要，你必须安排时间。因为我是一个信徒，在我的情况下，我还必须安排时间与主相聚。我需要安静的时间，也需要学习的时间。我是神学学生，我喜欢阅读和研究，读了很多书。
+
+我希望我能说我已经找到了完美的平衡，并且从未越过那条线。但老实说，我也不能这么说，我认为我自己也在挣扎。幸运的是，我有一个非常棒的妻子，她总是在我需要的时候温柔地提醒我，帮助我保持对生活的更宽广的视角，而不是被那边的小提琴、电钢琴或者其他事情所吞没。不过我可以这样说，你也要小心这一点。
+
+有些人说，当你在做音乐时，它可能会变成一种偶像，并妨碍你与主的关系。实际上，有时候当我拿着那件乐器演奏时，我觉得自己离上帝最近，感受到他的同在，感觉到终于在自己的生活中退后一步，至少有一两个小时。> 你必须小心这一点。有时候，当我没有它在手中时，我会去抓方向盘。
+
+所以有时情况可能正好相反。此外，这也是一个上帝通过音乐来说“你知道吗？”的时候。退一步，让我来工作。
+
+因此，两者兼而有之。我想你可能会挣扎，但有时他会施予怜悯，帮助你在追求音乐的同时成长。不错，约翰的话确实很完美地平衡了这一点。实际上，我能说的唯一一件事是，这不仅仅是一个关于音乐的问题。
+
+我有一段很好的婚姻，并且对约翰·牛顿的信件非常感兴趣，他就是写了《奇妙恩典》的人。他的婚姻也很美满，但他一直挣扎着把妻子当作偶像。你们的婚姻糟糕吗？那是一种痛苦。
+
+那是一个问题。这是一个巨大的灵性挑战。如果你有一段美好的婚姻，那也是一种痛苦。这是一项巨大的灵性挑战，因为你总是将你妻子的话和她对你的爱看得比上帝的爱更重要。
+
+所以实际上，这不仅仅是一个关于音乐的问题。我只是想让你们都知道这一点。塞伦·克尔凯郭尔曾经说过，罪的本质是建立我们的身份在除了上帝之外的任何事物上。因此，罪的本质不是做坏事，而是将好的东西变成终极的东西。
+
+无论你多么擅长音乐、讲道或婚姻，你总是会不知不觉地陷入偶像崇拜的陷阱，然后不得不重新找回。我认为这几乎适用于每一个人。这就是你要生活的处境。这就是你需要面对的张力。
+
+据估计，我们大约一半清醒的时间都在工作上。圣经中的智慧如何应用于我们的职业生涯？换句话说，我们的工作如何与上帝的工作相连接，我们的职业如何更具情感性？在《每一份好工作》一书中，蒂姆·凯勒从数十年的职业和呼召教学中汲取灵感，向你展示如何通过服务上帝和他人，在工作中找到真正的快乐。
+
+这本书提供了关于基督徒视角下的工作如何成为事业成功和个人生活平衡的基础的惊人见解。Every Good Thing 和 Devar 是我们对你们捐赠的感谢，这些捐款帮助福音与生命向世界各地更多的人分享基督的爱。请访问 gospelandlife.com/give。那就是 gospelandlife.com/give。
+
+现在让我们听 Dr. Keller 继续今天的教导。好的，让我们回到右边这里。你提到约翰·科尔特雷恩如何很多音乐都是他灵性的一种溢出。我很好奇，作为一名基督徒和艺术家，在你不觉得上帝同在或没有灵感的时候，你会怎么处理？
+
+是的，就是那种感觉不到的状态。我想说，作为一名基督徒和艺术家，你需要自律。那么你怎么保持自律而不让它变成一种教条主义或者只是枯燥的工作呢？对不起，最后一部分，我更想问的是你如何保持自律而不让其变成一种教条或枯燥？
+
+对于音乐和练习来说是这样。我总是告诉我的学生，我认为**这是真的真理**。首先，你知道我在 Wayne Shorter 的乐队里度过了很多时间。今晚我们还听到了 Brian，鼓手，他是我的右臂左腿。
+
+他真的很亲近。我可以告诉你当我觉得自己进入那种状态时会发生什么——我们知道要演出，坐了两趟飞机，又坐车，累坏了。到达目的地后，唯一的办法就是对抗那种枯燥或感到疲惫的感觉，无论是精神上的还是音乐上的干燥感，或者只是缺乏灵感。走出这种困境的方法是让你自己脱离出来，停止内省，而是睁开眼睛看看周围。
+
+那里有其他人和你在一起，有人会做一些鼓舞人心的事情。有人会演奏一些会让你思考不同的东西，只要你愿意接受它。突然间，你常常在忙碌中煎熬，30秒前还在想不出要做什么，但有人一播放音乐，你就豁然开朗了。如果你愿意接受这一点，当我们在纠结于“我必须这样做”或“那个调子呢？
+
+”或“这些和弦呢？”时，这就像一个沉重的铅块，让你逐渐沉沦。但如果我们将目光从自我转移到外界，你会发现不可思议的事情会发生。这也是对你生活的隐喻，对你的灵性生活也是如此。
+
+上帝总是那个向上看、接受祂恩典的象征，而不是试图自己掌控一切，自己创造一切，自己的工作和成就。只要这样去做，就会很好。所以这就是要跳出那种狭隘的视野，那种孤立无援的感觉，让自己不再自我封闭。在几年前的音乐之旅中，我曾看到你们与Brecker、Hargrove和Herbie Hancock等人一起演出。
+
+就在Michael Brecker演奏Naima之前，他给了一个大约两到三分钟关于他第一次听到Coltrane专辑的故事。他说当时大概13岁左右，他对那张专辑进行了深入的描述：当他第一次听时，完全不懂其中的意思。但后来他觉得那些歌词充满了情感和智慧。我希望你能更早些解释这一点，你之前提到过你在九或十岁时的经历。
+
+但你的第一次Coltrane体验是怎样的？它立刻吸引了你吗？还是你觉得他在做各种音阶呢？对于很多人来说，初听Coltrane时确实难以理解。
+
+我是爵士钢琴家，但当我第一次听到Coltrane时，我也觉得有很多音符，我决定先听听Witten Kelley的演奏。但是，你知道，它会慢慢吸引你。我在想，你们第一次接触他是什么样的体验？是通过另一位音乐家吗？
+
+还是不小心买到了，以为是别的东西？我记得第一次接触到他的唱片可能是《巨步》，这张专辑里也有《Equinox》。当时这张唱片是在大西洋唱片发行的。不得不说的是，每次听他的音乐，那种情感总是会立刻抓住我，即使在我还不理解他和声与节奏上的处理之前。
+
+同样地，当我八岁的时候听到韦恩·肖特的第一张音乐作品时，《Mosaic》里的《Children of the Night》，布莱克利的专辑。我不明白他们在做什么，但萨克斯的声音有一种刺痛的感觉，在我心里发出了强烈的灵魂呼唤。《巨步》这张唱片对我也有同样的影响，即使那是他和声理念中一个高度复杂的宣言。他把一直在研究的东西展现了出来。
+
+就像比莉·哈乐戴所说的一样，无论他弹奏一音还是三十万音，听起来都像是在演奏一首摇篮曲。其中充满了美丽与精神的力量。所以，在我完全理解之前，巨步这张唱片就是一个很好的例子，《Equinox》也在那张专辑里，速度较慢且充满蓝调元素。我能听到那种来自他的祖父——一个牧师的语调，这种吟唱般的音色和中音萨克斯的声音非常接近人的声音。
+
+这总是吸引着我，即使我不明白他们在做什么。所以它在我年轻的时候就抓住了我。这里的问题触及了很多之前有人问过我的问题，比如“火车迷”崇拜，他对练习有着非凡的承诺，关于他连续11个小时演奏大调音阶的故事。我对这种现象感到好奇，你认为这如何影响了他的工作观与信仰观？
+
+他在美学上的严格训练和后来对精神生活的承诺之间有何联系？哇，真是令人惊叹。大家听清楚了吗？关于他如何通过练习来追求艺术，练习对他艺术的影响，是否影响了他的审美观、音乐美学。
+
+是什么因素影响了这些呢？是这种不断练习的态度吗？就像这样练下去，你就会变得更好？说实话，当我重新定义我的乐器，并成为像特纳一样经过严格训练的杰出演奏家时，我认为他需要这样的训练来表达自己深刻的精神感受。
+
+---
+
+## 超越成功 / Beyond Success
+
 They get successful and they still go on. And I think it's because they realize at a certain point now I've got a vision. I want to get it out.
 
 And obviously, my concern is more rhetoric and narrative. And I'm always frustrated now because I know what I want to say but I never feel like I quite get there to say it. In the earlier days of being a preacher, I worked by crazy because I wanted people to accept me.
@@ -367,6 +415,74 @@ And bring him on. Okay. I will.
 Yeah. I've got tears in my eyes and I thank you all so much. Yeah.
 
 It just means so much. And there are so many people out there who need hope and future. And God has blessed me to do what I love doing and to reach out and this just inspires me so.
+
+---
+
+我经常和学生们开玩笑说，我不喜欢学生说：“我只是凭感觉演奏，不需要学这么多东西。” 所以当你们有这些情感，却因为无法将其表现出来而感到沮丧时。一个经典的例子是，有些人试图在音乐中提升天真无邪或甚至不成熟的状态，并且有时甚至崇拜这种状态。如果你知道太多，那你就不能好。
+
+如果你知道太多，就不能真正地用感情去演奏。但是科尔特兰打破了这一点。他是这个星球上最富有情感的人之一，同时他也是那个时代对乐器掌握得最好的人。所以这完全颠覆了“作品”观念。
+
+换句话说，他必须具备那种灵活性来表达需要传达的东西，并且这种表达从没有失去比例。它从未被滥用。它从来不是为了技术而技术，而是服务于一种精湛的情感音乐表达。甚至现在萨克斯演奏家们还在试图理解他是如何做到这一点的。
+
+他已经离开这个世界40年了。问迈克·布雷克和其他今天的乐坛偶像，他们仍然会告诉你特纳是他们的英雄。我能补充的一点是，令人惊讶的是，在其他一切事情上都有住处的人，却在音乐上有住处。但在最初的时候，我认为几乎每个人在职业生涯的开始阶段都是出于一种“作品正直”的心态。
+
+你努力工作是因为你想被接受。但你会发现，当人们得到了他们想要的成功和认可后，他们仍然继续前进。我想这是因为他们在某个时刻意识到：我现在有了一个愿景，我想要把它表达出来。显然，我更关心的是修辞和叙事。
+
+现在我总是感到沮丧，因为我知道自己想说什么，但总觉得表达不出来。早些年当牧师的时候，我是靠激情来吸引人们的。而现在，我已经被人接受了。我真的想说一些东西，但除非用激情去表达，否则无法做到。
+
+我认为约翰说得完全正确。有些人需要证明自己，这种需求永远不会消失。你可以在一些音乐家身上听到这一点，一切都关于“我”。今晚我们简短的交谈中提到，因为有了灵性的觉醒，科尔特兰超越了那种自我证明的心态。
+
+那已经不是关于他自己的事情了，不再是功利主义。现在他有了一种愿景和使命，只想尽可能地做好。这才是我们应该追求的目标。事实上，迈尔斯曾经说过：“你为什么拉得这么长？
+
+你怎么不把号拿出来？” 科尔特兰真是太美了。他并不急躁或自大。我只是想找到这种感觉，而我还在努力。
+
+他非常谦逊。他总是觉得自己还没有达到那种境界，花了很长时间。当我演奏我的灵魂乐时，也需要花些时间。我在寻找这种东西。
+
+与此同时，我们其他人也希望能像科尔特兰那样去追寻。我也希望自己能找到那样的东西。因为他的探索和挣扎比我们所有人所能想象或梦想的要美好上数亿倍。好的，让我们继续来回讨论这个问题。
+
+我知道现在有很多深刻的情感和灵性音乐。但我总觉得如果能反思一下主流态度对音乐的看法，我总是觉得我在回顾过去并捕捉到比今天更伟大的东西。但这确实存在。今晚我们听到了这一点，真是太棒了。
+
+我个人希望更多地听到这样的音乐。也许你对自己的成长位置有一些想法？哇哦。基本上你是说有时候感觉音乐中的深层连接更多一些吧。
+
+当我们听老唱片，听到那种纯粹的声音吸引我们时，那是因为它与营销、华尔街和律师谈判合同毫无关系。坦率地说。是的，我生活在这样的世界里，我们都生活在这样的世界里。关于这一点，我和布莱恩经常讨论。
+
+这就是韦恩·肖特所说的。我们经常谈论这个话题。我们觉得自己有使命在身。很多时候像是逆流而上。
+
+但无论如何，我们都被迫继续前行。这有时需要勇气，因为唱片公司，即使是对于韦恩的乐队来说，他们有时候似乎不太重视我们在做的事情。他们试图追逐最新的流行趋势。如果能有个流行歌手卖几百万张唱片的话。
+
+嘿，这就是他们的优先事项。所以你不能让这些事情让你变得愤世嫉俗。你必须继续你的使命。你必须自律。
+
+因为如果你放任不管，它会让你停下来。对我来说，还有一件额外的事情，我觉得上帝给了我一件重要的事情需要我不断追求。无论商业人士是否喜欢我的作品。我真的不会去想这个。
+
+是的，我确实要养家糊口，这让我很努力地工作。但当涉及到我的艺术、我创作和演奏的音乐以及我自己制作的唱片时，我觉得有责任对上帝和人们来说，我必须尽我所能去做。用我所拥有的所有东西来做出最真诚的音乐，以诚恳的方式去触动人心，而不是试图成为今年的流行趋势，这个趋势每个月都在变化。这就是为什么像韦恩·肖特这样的人如此重要。
+
+他从不妥协，从未停止。这也是为什么火车喜欢他。谢谢。你们之前提到过，定义我们的一件事是我们的工作。
+
+确实，我觉得我的时间花在上面很多。也许是因为我不是**真正的音乐家，我有时觉得我的工作让我远离了我的精神层面。所以你能否分享一些经验？当感觉与自己脱节时，你是**如何回到现在的状态的？
+
+如何找回你的灵性？是的，我会简短地说。这里面有微观意义和宏观意义。微观意义在于你个人的身份认同，即你是谁。
+
+微观身份是指你要认识自己的天赋，找到自己擅长的地方，并为之努力。就像埃里克·利特尔所说的“快跑”，他说上帝赋予了我速度，在奔跑时我能感受到这种快乐。所以如果你速度快，就去跑步；如果你是艺术家，就去做艺术创作；如果你能做成大生意，那就去做吧。当你使用上帝赐予你的天赋时，你会觉得自己融入了这个世界。
+
+这就是电影中那句话的含义。从基督教的角度来看，我们认为你的天赋和才能不是偶然的，而是上帝希望你成为的样子。这就是微观意义。如果没有宏观意义，那么宏观意义就是你是上帝的孩子，与祂有关系。
+
+当我说“孩子”这个词时，这是指一种基督教的理解方式——你是上帝的孩子。我有自己的孩子，如果我的一个孩子表现得很好，我会为他们感到骄傲；如果他们做得很糟糕，甚至犯了很多错误，我也会更加关心他们。作为父亲意味着我爱你的孩子，无论他们做得好还是不好，他们的行为都会触动我的心。同样地，成为上帝的孩子意味着我知道自己在祂的恩典中，体验过祂的恩典，祂无条件地爱着我。
+
+知道这一点就是你的宏观意义。如果没有宏观意义，那么微观意义就变成了你生活的全部。这就是《治愈之光》中的那种病态——当你的工作和天赋成了你生活的全部时，就像托尔金无法完成他想写的书，或者提摩西·凯勒觉得无法完全传达他想要表达的信息一样；约翰·帕塔图奇也无法完全实现他的创作愿望。如果你的生活就是如此，那你总是会感到不快乐，总是觉得自己做得不够好。
+
+所以你们要把自己的天赋、使命、艺术和工作放在更大的背景中，这个背景就是我知道自己是上帝的孩子。如果没有这一点，那么工作就会变成偶像，会将你拖垮。因此我认为这两者之间必须保持平衡。这也是让人们感到苦涩的原因之一吧。
+
+人们在挣扎，只能看到眼前的那一点，不断伸手去够却总是抓不到。如果这就是全部的话，那么作为艺术家的生活确实很艰难。除非有希望。虽然我来来回回的，但我觉得这些人等得更久一些，你们可以继续了。
+
+大家好，我是两个爵士音乐家的母亲，一个演奏，另一个推广，我自己也做牧师，经常晚上三、四点才坐火车回家。我看到了你们的热情，我也在乐手中看到同样的热情，包括我的儿子们，我们都在一起事工。他们都是很好的灵魂，但我希望你们能理解的是，其中一个对我说过：“我们作为基督徒、信徒，彼此之间并没有伸手相助。” 我现在想问的是，有没有什么方法呢？
+
+因为我真的很希望能把布莱恩介绍给你们，布莱恩，我想让你认识一个信耶稣的音乐家。这是你儿子的名字吗，布莱恩？哦，好的。还有安德鲁也是。
+
+好的。请带他们来吧。我马上去。是的。
+
+---
+
+## 恩典与感恩 / Grace and Gratitude
 
 Oh, thank you. Thank you. Thank you.
 
@@ -463,253 +579,6 @@ We invite you to help others discover this podcast by rating and reviewing it. A
 The sermons and talks you hear on the Gospel and Life Podcast were recorded between 1989 and 2017, while Dr.
 
 ---
-
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《福音与生命》。如果你有工作，你很可能经常思考它。但你是否想过圣经对工作的看法？今天，在《福音与生命》节目中，提姆·凯勒向我们展示了圣经中关于我们工作的极其有帮助和实用的智慧。
-
-这些智慧可能让你感到惊讶，甚至改变你的生活。我想谈谈约翰·科尔特兰说过的两句话，关于上帝和他的音乐之间的关系。我认为这两句话都告诉我们一些非常重要的东西。第一句告诉我们音乐和艺术与上帝之间关系的一些东西。
-
-第二句则谈论我们一般的工作与上帝的关系。换句话说，科尔特兰的第一句话指向了音乐作为一种传福音的方式。第二句话则将音乐视为一种服务。当我使用“传福音”这个词时，我希望你暂时可以摆脱任何与政治、原教旨主义相关的联想，记住传福音的意思是带来希望的好消息。
-
-现在，让我们来看第一句引语。约翰·科尔特兰说：“总体而言，我认为一个音乐家的主要目标之一就是给听众描绘出他所知道和感受到的宇宙中许多美好的事物。” 这就是我想做的。我认为这是生活中最伟大的事情之一，我们都在以某种方式尝试做到这一点。
-
-音乐家通过他的音乐做到了这一点。现在，科尔特兰的意思是说，音乐——不仅仅是歌词，而是音乐本身——是一种传福音的方式。音乐可以告诉最绝望的心灵有希望，最无意义的心灵有意义。无论你用头脑相信什么，音乐都会告诉你你的生活不是一场由傻子讲述的荒谬故事，毫无意义。
-
-音乐有一种方式会来到你身边，告诉你尽管你感觉如何，但仍有希望，有目的。史蒂芬·J·古尔德，已故哈佛大学古生物学家曾写道：“我们之所以存在，仅仅是因为一种奇特的鱼群具有某种特殊的解剖结构，恰好能够转变为陆地生物的腿。” 我们之所以存在，仅仅是因为一次普通的地球撞击事件在特定的时间消灭了恐龙，给了哺乳动物生存的机会。我们渴望一个更高的答案，但这样的答案并不存在。
-
-我们在这里没有任何目的。我们必须自己构建生活的意义。现在他所说的只是：我们渴望相信我们有存在的意义，生活中有意义和希望。但如果上帝不存在，那就不存在了。
-
-你可以说存在，但实际上并不存在。你可以渴望一个更高的答案，但这并不存在。但是，Ashley Kahn 与 Stephen J. Gould 完全相同的宇宙观，写了一本书叫做《至高之爱》，讲述了约翰·科尔特兰的标志性专辑的故事。在这本书中，他这样写道：当我一遍又一遍地聆听这张专辑时，我被激发去回应科尔特兰炽热的精神追求，尽管我自己认为自己是一个坚定的无神论者和彻底的理性主义者。
-
-我很愿意承认，在很多方面似乎有某种永恒力量在精神指导下所为。虽然非常勉强，顺便说一句，约翰告诉我他认识 Ashley Kahn 这个人，他说：我与 Stephen J. Gould 对宇宙的看法相同。就我所知，我是一个坚定的理性主义者，我们并不是为了任何目的而存在，我们不是被创造出来的。我们只是偶然地在这里。
-
-生活中没有意义。没有什么是重要的。但是当他听到音乐时，他的心灵告诉他不同的东西。当他听到音乐时，他无法不知道。
-
-他无法否认有一种永恒的爱，有真理，有意义。音乐在传道。他的头脑告诉他说这些不存在。上帝并不存在。
-
-但他的心灵知道得更清楚，音乐提醒他的心灵这一点，并确认了这一点。实际上，你们中的任何一位艺术家，无论以何种形式，艺术都有这样的力量。如果你是一个艺术家，不管你是否意识到这一点，你都在使用这种力量，但是如果你知道自己在做什么，你的生活会更加充实。首先，我认为科尔特兰给我们的第一个启示是艺术与伟大音乐之间的灵性联系，尤其是如何通过伟大音乐来传道。
-
-其次，尽管科尔特兰实际上将音乐视为服务，这一点不仅适用于音乐家和艺术家，也适用于我们所有人。他在《爱的至上》的唱片封套上说：“1957年，在上帝恩典中，我经历了一次精神觉醒，这使我的生活更加丰富、充实和富有成效。那时，怀着感激之情，我谦卑地祈求能够通过音乐给予他人快乐，激发他们实现更多有意义的生活。” 因为生命确实是有意义的，我觉得这是上帝赐予我的恩典，一切荣耀归于神。
-
-现在，实际上在这段话中你已经看到了两个主题，但我想要指出他关于他的工作的服务性质。正如斯蒂芬·J.戈德所说，如果你认为生活是无意义的，那么你是谁？你必须为自己创造一种意义。对于我们大多数人来说，尤其是在像纽约这样的地方，我们找到自己重要性的方式之一就是通过我们的工作。
-
-通过做好工作，并通过工作使自己进步，我们可以说：“现在我知道我有重要意义。”换句话说，我们将工作视为一切的核心。你看，如果你认为生命的意义和价值在于你的音乐，那么音乐实际上就变成了关于你自己的东西。而悖论是，当音乐变成关于你自己时，它通常不是很好听的音乐。
-
-正如C.S.刘易斯所说，那些拼命想成为原创的人永远不会真正原创。艺术家拼命想给人留下好印象，反而不会给人留下很好的印象。如果你把工作当作一种绝望的追求、一种绝望的努力来赋予自己生命的意义，那么你很可能不会做得很好。然而，文化发生了变化，一切都变了。
-
-那天晚上他演奏了《爱之最高》，一首长达32分钟的赞美和感谢的作品。他表现得极为出色，然后走下舞台，他说：“无人能接纳我们。” 现在，这是路加福音第二章西门所说的拉丁文中的前两个词，当他看到婴儿耶稣时，意识到自己看到了弥赛亚。西门说：“现在让我离开吧，根据你的言语，我的眼睛已经看见我的救赎。
-
-”实际上，他是在说他已经做到了。我已经完成了我在地球上的一切使命。如果我必须走，我也准备好了。那么，我们从哪里获得这种满足感呢？
-
-如果你体验到了至高的爱，并知道祂爱你，无论你在舞台上的表现如何，无论你的工作做得多好或不好，如果你知道祂是无条件地、无偿地爱你，那么你的工作就不再是为了自己了。它是为了作品本身，音乐是为了音乐，是为了听众，是为了上帝，只是为了服务他人的一种方式。讽刺的是，这样反而会变得更好。这不仅适用于音乐家，也适用于我们所有人。
-
-如果体验到了至高的爱，那么你就不需要用别人的认可来填补自己的空虚，而是可以出于满溢的心去服侍别人。“Nunk demitus”，这是一种多么了不起的工作态度啊！以弗所书第二章第十节，我的翻译是：我们是上帝的杰作，被上帝创造出来去做善工，这些善工都是上帝在我们之前为我们预备好的。当你知道你的艺术或他的艺术品，可以成为一种传道和服侍的方式时，这就变得有意义了。
-
-约翰·科尔特兰关于上帝与灵性及音乐之间的关系有一些见解。而我只是一个牧师，并非音乐家，但现在我们有机会聆听来自城市学院的教授兼音乐家约翰·帕塔图奇的观点。哇。好吧，我想首先谈谈自己较早接触科尔特兰音乐的经历。
-
-实际上，在我的真正灵性之旅开始之前很久，我就已经对基督教产生了浓厚的兴趣。大约17岁时，我听到了科尔特兰的音乐，并立刻被它深深吸引。甚至在《爱之上》发行之前，他演奏的那种紧迫感就一直让我着迷。他的演奏中所展现的力量和美丽令人震撼。
-
-伟大的爵士鼓手比莉·哈特曾说得很到位：当科尔特兰演奏时，即使是在他最狂热、最激烈的时刻，听起来也像是一首抒情曲。从他的喇叭里涌出了无尽的爱意。我认识的许多与他亲近的人都说他是一个非常善良且深刻的人。他是我所听到的少数几位爵士音乐家中的一位，在他所在的圈子里，他和迈尔斯·戴维斯、蒙克这样的伟大先知一起演奏过，他们都是极其严肃的人物。
-
-但当你听到科尔特兰时，会发现不同的东西。有时候当你听其他人的演奏，他们会是技艺的大师，令人惊叹的艺术家。但在某些方面，你会觉得他们在炫耀自己，如果你明白我的意思的话。比如当迈尔斯演奏时，他显然在展示自我：“我是迈尔斯，看看这个！
-
-” 而当科尔特兰演奏时，一切都是那么神奇。那种情感和纯洁是我从未体验过的。我相信我是一个彻头彻尾的爵士乐迷。我有很多唱片。
-
-我一生都沉浸在音乐中。我在八岁左右就开始接触音乐了。我现在46岁。我在外面巡演了很多年，并与很多人讨论过这个问题。
-
-认识科尔特兰的人说，去瓦格纳剧院就像是去教堂一样。当你走进那里时，你会感觉到不同之处。这不仅仅是一场在俱乐部里的四重奏演出。不，这是科尔特兰的乐队，我有点激动了。
-
-我当时真希望能在那里。另外，他对待周围的人的方式也很特别。我花了一些时间与韦恩·肖特尔以及他周围的许多人在一起。而且他非常慷慨。
-
-事实上，就是他向迈尔斯·戴维斯推荐了韦恩·肖特尔。他说：“那边有个家伙。”“比我还强。你应该雇用他。
-
-” 当然，对于任何人来说，听到这样的话都会感到谦卑和震惊。你愿意在迈尔斯的乐队里跟随科尔特兰演奏吗？但这就是他的为人方式。实际上，他是那种努力成为圣人的人。
-
-他就是个很好的例子。无论何时你听他的音乐，都能感受到它的力量。它总是深刻的，无论是弹奏成千上万的音符还是仅仅一个音符。他会抓住你，震撼你的灵魂深处。
-
-对我来说，因为我的信仰，这就是上帝的手。当我听到他演奏时，这不仅仅是个人在演奏，而是上帝通过那支号在呐喊。我必须说，在听音乐的时候，我从未听过创作者的力量如此鲜明地体现在一个人身上。我认为很难找到这种深度。
-
-至少在爵士乐中，我不知道是否能找到这样的例子。我不知道它是否存在。当然，在爵士乐中，我不确定。我只是知道，聆听他的音乐对我的影响。
-
-他还坚持不懈地追求自己天赋的发展。他没有浪费自己的天赋。他得到了一个惊人的礼物，但他比任何人都更加努力。他不是18岁时就出道的天才，而是不断工作、练习，甚至撞墙也不放弃。
-
-并不是说他18岁就能做到一切。不。我认识一些在费城与他一起长大的人，他们问过吉米·希思。他记得科尔特兰在发展时的样子。
-
-如果你问他，我还和像本尼·古尔森这样的萨克斯手聊过，他们也认识科尔特兰。他告诉我一个有趣的故事，关于他和Coltrane一起逗Benny Goulson妈妈的事。Benny Goulson的妈妈经常在他家举办爵士乐聚会时请他去玩。你会说：“约翰，记得Duke Ellington演奏的那个Johnny Hodges的曲子吗？
-
-”然后John每次来都会被要求弹那个曲子。有一次他们在一个大乐队里演出，被告知这场演出取消了。但他们走遍社区，看到海报上写着那场演出还在进行中，而他们却被解雇了。于是他们回到家告诉Benny Goulson的妈妈这个消息。
-
-她问：“怎么了，孩子们？”他们说：“我们以为要参加的那个工作现在还在进行，但我们没被邀请。”她说：“别担心，总有一天人们会付很多钱听你们演奏。” 快进20年，在蒙特雷爵士音乐节或纽波特爵士音乐节上。
-
-当然，Benny Goulson当时正在和Art Blakey合作。有一次他们三人在一起，Train突然笑了起来。他说：“你还记得我们被解雇时你妈妈说的话吗？”然后他补充说：“他是一个非常美好的人。
-
-” 我有幸与他的儿子Ravi一起演奏过。但不幸的是，Ravi在John去世前并没有真正了解他的父亲。所以我可能可以一直讲下去。也许我应该停止了。
-
-但我只想感谢你们的到来。对我们所有人来说，这是一次非常感人的经历。我和Brian经常和Wayne一起旅行，我们常常谈论Train，因为Wayne曾经与他一起练习。Train会打电话给Wayne说：“今天你过来一趟。
-
-”然后他们会在钢琴前坐下来。有一次，Train走到钢琴前，用肘部按住尽可能多的键，问：“你能弹多少？”Wayne尽力跑出所有的音符。然后轮到Wayne来试试看，Train也会这样做。
-
-他们还把Alice的竖琴书拿出来练习竖琴曲目，试图获得更多的和声。他们在追求卓越上是不知疲倦的。在这一点上，我们所有人都能学到一个重要的教训，无论是精神上的、音乐上的、艺术上的还是生活中的。所以这就是今天我们聚集在这里的一部分原因。
-
-让我们来谈谈这些事情。现在，你知道的，这里有音乐家，有牧师。我不知道你们会提出什么样的问题。但我们总是这样做的，并且我们认为有些人可能会提问。
-
-但我们会建议不要问关于汽车修理或外星生命的问题。我记得有一次我的一个公开论坛上，有人问我对外星生命的看法。我担心约翰可能真的知道这个问题的答案。所以你们最好不要问这些问题。
-
-如果有问题的话，这里空间很大，你们可以去其中一个麦克风那里提问。好了，今晚的表演很棒。我想问的是关于后期音乐的表现。大概是66年、67年的样子。
-
-那种音乐是嘈杂且自由的风格。为什么今天没有演奏那样的音乐？但实际上，我很欣赏那首曲子，只是有点难以听懂。我想要你谈谈他对那个时期音乐的想法。
-
-你想让我谈谈他晚期的作品，比如星际空间之类的东西。好的。他在问关于后期爵士乐训练的作品。是的。
-
-那些作品非常激烈，有时对不习惯听爵士的人来说可能不太容易接受。你知道的，我认为有些音乐很难听，因为它很密集。但其中有很多美丽之处。实际上，我推荐星际空间。
-
-因为那是他和拉希德·阿里合作的作品，只有萨克斯风和打击乐器。那里面有一些令人惊叹的美丽音乐。而且这也是一种萨克斯风的见证。他在那张唱片上所做的作品简直难以置信。
-
-所以它以一种非常直接的方式吸引人。这是一首美丽的音乐。它很美，但也很有力量。与多菲合作的作品是另一种风格。
-
-与法罗·桑德斯的合作作品则非常密集，很多人在做很多事情。我坚持认为，在所有那些东西中，你都能听到他的愿景。其他人的实力有时确实令人怀疑，但当谈到他的演奏时，我相信拉希德·阿里在很多方面都表现得非常出色。你知道的，我认为他就是一个探索者。
-
-他在尝试寻找新的事物。所以我觉得这一切都有价值。有些试图模仿他的人我不总是很有耐心，因为他们往往缺乏他那种深度的音乐才能或灵魂。他们只是盲目跟风，以为只要演奏自由爵士乐就能像火车一样轰鸣前进。
-
-当然，这并不一定正确。但是确实，里面有很多值得探索的东西。我推荐你听听《星际空间》。继续提出这些问题吧。
-
-你们知道，他们问他的问题很多。你可以先回答这个问题，我不确定是哪位想回答。你说他是个探索者，我也很好奇，因为我最近一周读了一些关于他的资料，并试图更多地了解他的灵性。我想知道他对1957年之后的持续探寻基督教之外的东西的看法，特别是在他生命的后期阶段。
-
-这似乎与他所谈论的一些音乐有关。你知道的，他一直在探索很多不同的东西。我知道他曾花了很多时间研究东方哲学。我其实并不清楚具体情况，因为我从未有机会和他交谈过。
-
-如果能和他见上五分钟就好了，但我没有这个机会。你可能需要问他的家人来了解这些细节。甚至他的孩子们也无法更深入地回答你的问题，尤其是艾丽丝。但她确实一直在学习很多不同的东西。
-
-让我补充一点。我认为今晚我想给你们带来的见解有关他对神在灵性、音乐等方面的重要性的一些洞察。我不知道他会走到哪里，因为他还在不断探索其他宗教。我的英雄，我的事工英雄CS刘易斯也是一位非常坚定的基督徒，他也可能认为其他宗教中有一些比某些基督徒愿意相信的更多的恩典和洞察力。
-
-尽管如此，约翰·科尔特兰关于神与音乐、灵性之间关系的基本见解依然成立。但确实，他一直在探索。不幸的是，我认为他在弄清楚这些事情之前就去世了。我们得在这边来回讨论一下。
-
-感谢表演，真是太棒了。还有一道问题我想问你们俩。根据我对约翰·科尔特兰音乐生涯的了解，他是一个极其投入的人。在每组演出之间，他都会和其他音乐家一起练习，甚至只是闲聊。
-
-他的音乐之所以发生了如此大的变化，是因为他不断地练习并且全心投入到音乐中。我有一个关于音乐和艺术形式的问题，特别是当你们把生命中的大部分时间和精力都投入到音乐中时，音乐到什么程度可以成为一种崇拜的对象。从你刚才说的话来看，科尔特兰确实超越了这一点，开始用音乐作为一种崇拜的形式来表达他对神的敬拜。我不知道这种平衡在哪里，如果你把每一个清醒时刻都用来练习以创作出某种东西，这在任何艺术形式中都是如此，那么这种投入是偶像崇拜还是对神的一种卓越奉献？
-
-这是一个很好的问题。他说，你对艺术的投入，不论是音乐还是其他任何形式的艺术，当你练习它的时候，什么时候这条线开始模糊，变成一种偶像？对你来说，是你崇拜的东西。这是我们每个人都会面对的问题。
-
-我相信如果你对自己诚实，并且热爱音乐和生活，就必须面对这个问题。我不知道特雷恩是怎么处理的，但我知道他是个非常严肃的练习者。他会在独奏时离开麦克风，走进车上的厨房继续练琴，而麦科伊在演奏他的独奏。他总是不断地练习。
-
-我记得有人拜访过他家，无论何时他从门口进来，他脖子上总挂着萨克斯的肩带。我也知道他经常和家人在一起。很难说我没有在那里。对我来说，这是一项巨大的挑战，我有一个妻子和两个女儿。
-
-家庭时间非常重要，你必须安排时间。因为我是一个信徒，在我的情况下，我还必须安排时间与主相聚。我需要安静的时间，也需要学习的时间。我是神学学生，我喜欢阅读和研究，读了很多书。
-
-我希望我能说我已经找到了完美的平衡，并且从未越过那条线。但老实说，我也不能这么说，我认为我自己也在挣扎。幸运的是，我有一个非常棒的妻子，她总是在我需要的时候温柔地提醒我，帮助我保持对生活的更宽广的视角，而不是被那边的小提琴、电钢琴或者其他事情所吞没。不过我可以这样说，你也要小心这一点。
-
-有些人说，当你在做音乐时，它可能会变成一种偶像，并妨碍你与主的关系。实际上，有时候当我拿着那件乐器演奏时，我觉得自己离上帝最近，感受到他的同在，感觉到终于在自己的生活中退后一步，至少有一两个小时。> 你必须小心这一点。有时候，当我没有它在手中时，我会去抓方向盘。
-
-所以有时情况可能正好相反。此外，这也是一个上帝通过音乐来说“你知道吗？”的时候。退一步，让我来工作。
-
-因此，两者兼而有之。我想你可能会挣扎，但有时他会施予怜悯，帮助你在追求音乐的同时成长。不错，约翰的话确实很完美地平衡了这一点。实际上，我能说的唯一一件事是，这不仅仅是一个关于音乐的问题。
-
-我有一段很好的婚姻，并且对约翰·牛顿的信件非常感兴趣，他就是写了《奇妙恩典》的人。他的婚姻也很美满，但他一直挣扎着把妻子当作偶像。你们的婚姻糟糕吗？那是一种痛苦。
-
-那是一个问题。这是一个巨大的灵性挑战。如果你有一段美好的婚姻，那也是一种痛苦。这是一项巨大的灵性挑战，因为你总是将你妻子的话和她对你的爱看得比上帝的爱更重要。
-
-所以实际上，这不仅仅是一个关于音乐的问题。我只是想让你们都知道这一点。塞伦·克尔凯郭尔曾经说过，罪的本质是建立我们的身份在除了上帝之外的任何事物上。因此，罪的本质不是做坏事，而是将好的东西变成终极的东西。
-
-无论你多么擅长音乐、讲道或婚姻，你总是会不知不觉地陷入偶像崇拜的陷阱，然后不得不重新找回。我认为这几乎适用于每一个人。这就是你要生活的处境。这就是你需要面对的张力。
-
-据估计，我们大约一半清醒的时间都在工作上。圣经中的智慧如何应用于我们的职业生涯？换句话说，我们的工作如何与上帝的工作相连接，我们的职业如何更具情感性？在《每一份好工作》一书中，蒂姆·凯勒从数十年的职业和呼召教学中汲取灵感，向你展示如何通过服务上帝和他人，在工作中找到真正的快乐。
-
-这本书提供了关于基督徒视角下的工作如何成为事业成功和个人生活平衡的基础的惊人见解。Every Good Thing 和 Devar 是我们对你们捐赠的感谢，这些捐款帮助福音与生命向世界各地更多的人分享基督的爱。请访问 gospelandlife.com/give。那就是 gospelandlife.com/give。
-
-现在让我们听 Dr. Keller 继续今天的教导。好的，让我们回到右边这里。你提到约翰·科尔特雷恩如何很多音乐都是他灵性的一种溢出。我很好奇，作为一名基督徒和艺术家，在你不觉得上帝同在或没有灵感的时候，你会怎么处理？
-
-是的，就是那种感觉不到的状态。我想说，作为一名基督徒和艺术家，你需要自律。那么你怎么保持自律而不让它变成一种教条主义或者只是枯燥的工作呢？对不起，最后一部分，我更想问的是你如何保持自律而不让其变成一种教条或枯燥？
-
-对于音乐和练习来说是这样。我总是告诉我的学生，我认为**这是真的真理**。首先，你知道我在 Wayne Shorter 的乐队里度过了很多时间。今晚我们还听到了 Brian，鼓手，他是我的右臂左腿。
-
-他真的很亲近。我可以告诉你当我觉得自己进入那种状态时会发生什么——我们知道要演出，坐了两趟飞机，又坐车，累坏了。到达目的地后，唯一的办法就是对抗那种枯燥或感到疲惫的感觉，无论是精神上的还是音乐上的干燥感，或者只是缺乏灵感。走出这种困境的方法是让你自己脱离出来，停止内省，而是睁开眼睛看看周围。
-
-那里有其他人和你在一起，有人会做一些鼓舞人心的事情。有人会演奏一些会让你思考不同的东西，只要你愿意接受它。突然间，你常常在忙碌中煎熬，30秒前还在想不出要做什么，但有人一播放音乐，你就豁然开朗了。如果你愿意接受这一点，当我们在纠结于“我必须这样做”或“那个调子呢？
-
-”或“这些和弦呢？”时，这就像一个沉重的铅块，让你逐渐沉沦。但如果我们将目光从自我转移到外界，你会发现不可思议的事情会发生。这也是对你生活的隐喻，对你的灵性生活也是如此。
-
-上帝总是那个向上看、接受祂恩典的象征，而不是试图自己掌控一切，自己创造一切，自己的工作和成就。只要这样去做，就会很好。所以这就是要跳出那种狭隘的视野，那种孤立无援的感觉，让自己不再自我封闭。在几年前的音乐之旅中，我曾看到你们与Brecker、Hargrove和Herbie Hancock等人一起演出。
-
-就在Michael Brecker演奏Naima之前，他给了一个大约两到三分钟关于他第一次听到Coltrane专辑的故事。他说当时大概13岁左右，他对那张专辑进行了深入的描述：当他第一次听时，完全不懂其中的意思。但后来他觉得那些歌词充满了情感和智慧。我希望你能更早些解释这一点，你之前提到过你在九或十岁时的经历。
-
-但你的第一次Coltrane体验是怎样的？它立刻吸引了你吗？还是你觉得他在做各种音阶呢？对于很多人来说，初听Coltrane时确实难以理解。
-
-我是爵士钢琴家，但当我第一次听到Coltrane时，我也觉得有很多音符，我决定先听听Witten Kelley的演奏。但是，你知道，它会慢慢吸引你。我在想，你们第一次接触他是什么样的体验？是通过另一位音乐家吗？
-
-还是不小心买到了，以为是别的东西？我记得第一次接触到他的唱片可能是《巨步》，这张专辑里也有《Equinox》。当时这张唱片是在大西洋唱片发行的。不得不说的是，每次听他的音乐，那种情感总是会立刻抓住我，即使在我还不理解他和声与节奏上的处理之前。
-
-同样地，当我八岁的时候听到韦恩·肖特的第一张音乐作品时，《Mosaic》里的《Children of the Night》，布莱克利的专辑。我不明白他们在做什么，但萨克斯的声音有一种刺痛的感觉，在我心里发出了强烈的灵魂呼唤。《巨步》这张唱片对我也有同样的影响，即使那是他和声理念中一个高度复杂的宣言。他把一直在研究的东西展现了出来。
-
-就像比莉·哈乐戴所说的一样，无论他弹奏一音还是三十万音，听起来都像是在演奏一首摇篮曲。其中充满了美丽与精神的力量。所以，在我完全理解之前，巨步这张唱片就是一个很好的例子，《Equinox》也在那张专辑里，速度较慢且充满蓝调元素。我能听到那种来自他的祖父——一个牧师的语调，这种吟唱般的音色和中音萨克斯的声音非常接近人的声音。
-
-这总是吸引着我，即使我不明白他们在做什么。所以它在我年轻的时候就抓住了我。这里的问题触及了很多之前有人问过我的问题，比如“火车迷”崇拜，他对练习有着非凡的承诺，关于他连续11个小时演奏大调音阶的故事。我对这种现象感到好奇，你认为这如何影响了他的工作观与信仰观？
-
-他在美学上的严格训练和后来对精神生活的承诺之间有何联系？哇，真是令人惊叹。大家听清楚了吗？关于他如何通过练习来追求艺术，练习对他艺术的影响，是否影响了他的审美观、音乐美学。
-
-是什么因素影响了这些呢？是这种不断练习的态度吗？就像这样练下去，你就会变得更好？说实话，当我重新定义我的乐器，并成为像特纳一样经过严格训练的杰出演奏家时，我认为他需要这样的训练来表达自己深刻的精神感受。
-
-我经常和学生们开玩笑说，我不喜欢学生说：“我只是凭感觉演奏，不需要学这么多东西。” 所以当你们有这些情感，却因为无法将其表现出来而感到沮丧时。一个经典的例子是，有些人试图在音乐中提升天真无邪或甚至不成熟的状态，并且有时甚至崇拜这种状态。如果你知道太多，那你就不能好。
-
-如果你知道太多，就不能真正地用感情去演奏。但是科尔特兰打破了这一点。他是这个星球上最富有情感的人之一，同时他也是那个时代对乐器掌握得最好的人。所以这完全颠覆了“作品”观念。
-
-换句话说，他必须具备那种灵活性来表达需要传达的东西，并且这种表达从没有失去比例。它从未被滥用。它从来不是为了技术而技术，而是服务于一种精湛的情感音乐表达。甚至现在萨克斯演奏家们还在试图理解他是如何做到这一点的。
-
-他已经离开这个世界40年了。问迈克·布雷克和其他今天的乐坛偶像，他们仍然会告诉你特纳是他们的英雄。我能补充的一点是，令人惊讶的是，在其他一切事情上都有住处的人，却在音乐上有住处。但在最初的时候，我认为几乎每个人在职业生涯的开始阶段都是出于一种“作品正直”的心态。
-
-你努力工作是因为你想被接受。但你会发现，当人们得到了他们想要的成功和认可后，他们仍然继续前进。我想这是因为他们在某个时刻意识到：我现在有了一个愿景，我想要把它表达出来。显然，我更关心的是修辞和叙事。
-
-现在我总是感到沮丧，因为我知道自己想说什么，但总觉得表达不出来。早些年当牧师的时候，我是靠激情来吸引人们的。而现在，我已经被人接受了。我真的想说一些东西，但除非用激情去表达，否则无法做到。
-
-我认为约翰说得完全正确。有些人需要证明自己，这种需求永远不会消失。你可以在一些音乐家身上听到这一点，一切都关于“我”。今晚我们简短的交谈中提到，因为有了灵性的觉醒，科尔特兰超越了那种自我证明的心态。
-
-那已经不是关于他自己的事情了，不再是功利主义。现在他有了一种愿景和使命，只想尽可能地做好。这才是我们应该追求的目标。事实上，迈尔斯曾经说过：“你为什么拉得这么长？
-
-你怎么不把号拿出来？” 科尔特兰真是太美了。他并不急躁或自大。我只是想找到这种感觉，而我还在努力。
-
-他非常谦逊。他总是觉得自己还没有达到那种境界，花了很长时间。当我演奏我的灵魂乐时，也需要花些时间。我在寻找这种东西。
-
-与此同时，我们其他人也希望能像科尔特兰那样去追寻。我也希望自己能找到那样的东西。因为他的探索和挣扎比我们所有人所能想象或梦想的要美好上数亿倍。好的，让我们继续来回讨论这个问题。
-
-我知道现在有很多深刻的情感和灵性音乐。但我总觉得如果能反思一下主流态度对音乐的看法，我总是觉得我在回顾过去并捕捉到比今天更伟大的东西。但这确实存在。今晚我们听到了这一点，真是太棒了。
-
-我个人希望更多地听到这样的音乐。也许你对自己的成长位置有一些想法？哇哦。基本上你是说有时候感觉音乐中的深层连接更多一些吧。
-
-当我们听老唱片，听到那种纯粹的声音吸引我们时，那是因为它与营销、华尔街和律师谈判合同毫无关系。坦率地说。是的，我生活在这样的世界里，我们都生活在这样的世界里。关于这一点，我和布莱恩经常讨论。
-
-这就是韦恩·肖特所说的。我们经常谈论这个话题。我们觉得自己有使命在身。很多时候像是逆流而上。
-
-但无论如何，我们都被迫继续前行。这有时需要勇气，因为唱片公司，即使是对于韦恩的乐队来说，他们有时候似乎不太重视我们在做的事情。他们试图追逐最新的流行趋势。如果能有个流行歌手卖几百万张唱片的话。
-
-嘿，这就是他们的优先事项。所以你不能让这些事情让你变得愤世嫉俗。你必须继续你的使命。你必须自律。
-
-因为如果你放任不管，它会让你停下来。对我来说，还有一件额外的事情，我觉得上帝给了我一件重要的事情需要我不断追求。无论商业人士是否喜欢我的作品。我真的不会去想这个。
-
-是的，我确实要养家糊口，这让我很努力地工作。但当涉及到我的艺术、我创作和演奏的音乐以及我自己制作的唱片时，我觉得有责任对上帝和人们来说，我必须尽我所能去做。用我所拥有的所有东西来做出最真诚的音乐，以诚恳的方式去触动人心，而不是试图成为今年的流行趋势，这个趋势每个月都在变化。这就是为什么像韦恩·肖特这样的人如此重要。
-
-他从不妥协，从未停止。这也是为什么火车喜欢他。谢谢。你们之前提到过，定义我们的一件事是我们的工作。
-
-确实，我觉得我的时间花在上面很多。也许是因为我不是**真正的音乐家，我有时觉得我的工作让我远离了我的精神层面。所以你能否分享一些经验？当感觉与自己脱节时，你是**如何回到现在的状态的？
-
-如何找回你的灵性？是的，我会简短地说。这里面有微观意义和宏观意义。微观意义在于你个人的身份认同，即你是谁。
-
-微观身份是指你要认识自己的天赋，找到自己擅长的地方，并为之努力。就像埃里克·利特尔所说的“快跑”，他说上帝赋予了我速度，在奔跑时我能感受到这种快乐。所以如果你速度快，就去跑步；如果你是艺术家，就去做艺术创作；如果你能做成大生意，那就去做吧。当你使用上帝赐予你的天赋时，你会觉得自己融入了这个世界。
-
-这就是电影中那句话的含义。从基督教的角度来看，我们认为你的天赋和才能不是偶然的，而是上帝希望你成为的样子。这就是微观意义。如果没有宏观意义，那么宏观意义就是你是上帝的孩子，与祂有关系。
-
-当我说“孩子”这个词时，这是指一种基督教的理解方式——你是上帝的孩子。我有自己的孩子，如果我的一个孩子表现得很好，我会为他们感到骄傲；如果他们做得很糟糕，甚至犯了很多错误，我也会更加关心他们。作为父亲意味着我爱你的孩子，无论他们做得好还是不好，他们的行为都会触动我的心。同样地，成为上帝的孩子意味着我知道自己在祂的恩典中，体验过祂的恩典，祂无条件地爱着我。
-
-知道这一点就是你的宏观意义。如果没有宏观意义，那么微观意义就变成了你生活的全部。这就是《治愈之光》中的那种病态——当你的工作和天赋成了你生活的全部时，就像托尔金无法完成他想写的书，或者提摩西·凯勒觉得无法完全传达他想要表达的信息一样；约翰·帕塔图奇也无法完全实现他的创作愿望。如果你的生活就是如此，那你总是会感到不快乐，总是觉得自己做得不够好。
-
-所以你们要把自己的天赋、使命、艺术和工作放在更大的背景中，这个背景就是我知道自己是上帝的孩子。如果没有这一点，那么工作就会变成偶像，会将你拖垮。因此我认为这两者之间必须保持平衡。这也是让人们感到苦涩的原因之一吧。
-
-人们在挣扎，只能看到眼前的那一点，不断伸手去够却总是抓不到。如果这就是全部的话，那么作为艺术家的生活确实很艰难。除非有希望。虽然我来来回回的，但我觉得这些人等得更久一些，你们可以继续了。
-
-大家好，我是两个爵士音乐家的母亲，一个演奏，另一个推广，我自己也做牧师，经常晚上三、四点才坐火车回家。我看到了你们的热情，我也在乐手中看到同样的热情，包括我的儿子们，我们都在一起事工。他们都是很好的灵魂，但我希望你们能理解的是，其中一个对我说过：“我们作为基督徒、信徒，彼此之间并没有伸手相助。” 我现在想问的是，有没有什么方法呢？
-
-因为我真的很希望能把布莱恩介绍给你们，布莱恩，我想让你认识一个信耶稣的音乐家。这是你儿子的名字吗，布莱恩？哦，好的。还有安德鲁也是。
-
-好的。请带他们来吧。我马上去。是的。
 
 我眼里含着泪，非常感谢大家。这对我来说意义重大。外面还有很多需要希望和未来的人。上帝赐福于我去做我喜欢做的事，并且去帮助别人，这也激励了我。
 

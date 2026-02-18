@@ -6,7 +6,7 @@
 
 ---
 
-## 施洗约翰的自我认知
+## 施洗约翰的自我认知 / John the Baptist's Self-Understanding
 
 Welcome to Gospel in Life. Today, Tim Keller is looking at a passage from the opening chapter of the Gospel of John. John begins his account of Christ's birth not with shepherds or angels, but with the mystery of the Word becoming flesh, God Himself entering the world as a person in Jesus Christ. Join us as Tim Keller explores the meaning of Jesus' birth. Tonight's scripture reading is from John chapter 1, verses 19 to 28.
 
@@ -31,6 +31,10 @@ And yet it does. And here's the reason why. We begin to see in John the Baptist 
 And yet, even though he knows a lot less than you and I know, I want to show you, some kind of major change has happened to him. Some kind of inner change has happened to him. And if he's had that change with what little knowledge he had of the meaning of Christmas, how much more should we be exhibiting that change?
 
 So let's start here by looking at, put it this way, John's self-image. Because this whole passage is about something, about that. Verse 19. This was John's testimony when the Jewish leaders in Jerusalem, sent priests and Levites to ask him who he was.
+
+So this is all about, who is John the Baptist? What is his self-image?
+
+What is his identity? What does he understand his identity to be?
 
 ---
 
@@ -65,11 +69,7 @@ So let's start here by looking at, put it this way, John's self-image. Because t
 
 ---
 
-## 耶稣论施洗约翰的伟大
-
-So this is all about, who is John the Baptist? What is his self-image?
-
-What is his identity? What does he understand his identity to be?
+## 耶稣论施洗约翰的伟大 / Jesus' Testimony About John's Greatness
 
 Let's take a look at John's view of himself, John's view of Jesus, the resulting character change, and how we might know it as well. Okay, first of all, John's view of Jesus. John the Baptist was the leading religious figure in the country, but he'd not come up through the channels. He didn't come up through accredited religious institutions or anything like that.
 
@@ -90,6 +90,14 @@ And so somebody before a Messiah comes, the forerunner, someone like Elijah, the
 He says, no. Then it says, are you the prophet?
 
 That's actually from Deuteronomy 18. In Deuteronomy 18, Moses says, someday a prophet will arise and he'll lead our people. And some people thought the prophet was Elijah. Some people thought the prophet was the Messiah. It doesn't matter. Because basically, what he's being asked, are you the Messiah?
+
+No. Are you Elijah, the forerunner of the Messiah?
+
+He says, no. Was John right?
+
+No, it wasn't. He got himself wrong. He did not understand who he was. Because in Matthew, in the gospel of Matthew, there's a couple of places where people ask Jesus what he thinks of John the Baptist. When John the Baptist, is beheaded, funk, he was beheaded. We'll get back to bit. Somebody came to Jesus after that and said, you know, what do you think of John the Baptist?
+
+And this is what Jesus says. This is in Matthew 17. He says, Elijah has come and they have done to him whatever they wished, even as it was written of him.
 
 ---
 
@@ -125,15 +133,7 @@ That's actually from Deuteronomy 18. In Deuteronomy 18, Moses says, someday a pr
 
 ---
 
-## 约翰对耶稣的极高认识
-
-No. Are you Elijah, the forerunner of the Messiah?
-
-He says, no. Was John right?
-
-No, it wasn't. He got himself wrong. He did not understand who he was. Because in Matthew, in the gospel of Matthew, there's a couple of places where people ask Jesus what he thinks of John the Baptist. When John the Baptist, is beheaded, funk, he was beheaded. We'll get back to bit. Somebody came to Jesus after that and said, you know, what do you think of John the Baptist?
-
-And this is what Jesus says. This is in Matthew 17. He says, Elijah has come and they have done to him whatever they wished, even as it was written of him.
+## 约翰对耶稣的极高认识 / John's Exalted View of Jesus
 
 So that's Jesus saying, John was the Elijah who was to come. He was the one that the Bible wrote about, that the Bible, the prophet spoke about. But even more amazing is in Matthew 11, when Jesus speaks to his listeners about John the Baptist, and this is what he says. He says, what did you go out into the wilderness to see when you went out to see John the Baptist?
 
@@ -152,6 +152,14 @@ Here's Jesus saying, John the Baptist is the greatest person ever born, up to no
 So the first point here is that Elijah had no idea, pardon me, that John had no idea about his own greatness. He couldn't see it. He couldn't see how great he was. Uh, and he got it wrong.
 
 Now, by the way, when you see somebody who really just does not have any real concept of how great he uh, doesn't seem to see how talented, how great, what a tremendous person he there's only two possibilities. The one is that person is so self-absorbed, is spending so much time examining him or herself all the time, that every little flaw looks big. So you got some people who are just, you know, they're just so, you know, you're so absorbed on themselves. They're just down on themselves.
+
+So one reason some people just can't see how great they are is because they're, you know, they're just looking at themselves so much. They're, they're, they're always examining themselves. The other possibility, and it's more rare, but the other possibility is he's actually just not looking at himself much at all. He's not assessing himself. He's not looking at himself. You know why?
+
+Because he's, he's looking at someone else and that's where John's going, but let's keep going here. Uh, so John's view, himself very, very low and actually mistakenly low. Then secondly, what's Jesus, John's view of Jesus?
+
+Well, it's like nosebleed high when they begin to ask Jesus about Jesus. He's, uh, well, they begin to ask him about who is this person who is to come in verse 40, uh, pardon me in verse 23. Uh, John quotes Isaiah chapter 40. And he says, John replied in the word of God, Isaiah, the prophet, I am the voice of one calling in the wilderness, make straight the way for the Lord.
+
+Now, when he says, I'm all about helping this one who is to come. And John says, Isaiah prophesied about him in Isaiah 40, when he said, prepare the way of the Lord. Now, if you go back to Isaiah 40, you'll see that Isaiah had predicted that someday things would get so bad that God himself would come. To put things right.
 
 ---
 
@@ -184,17 +192,15 @@ Now, by the way, when you see somebody who really just does not have any real co
 
 ---
 
-## 解鞋带的比喻与基督的超越
-
-So one reason some people just can't see how great they are is because they're, you know, they're just looking at themselves so much. They're, they're, they're always examining themselves. The other possibility, and it's more rare, but the other possibility is he's actually just not looking at himself much at all. He's not assessing himself. He's not looking at himself. You know why?
-
-Because he's, he's looking at someone else and that's where John's going, but let's keep going here. Uh, so John's view, himself very, very low and actually mistakenly low. Then secondly, what's Jesus, John's view of Jesus?
-
-Well, it's like nosebleed high when they begin to ask Jesus about Jesus. He's, uh, well, they begin to ask him about who is this person who is to come in verse 40, uh, pardon me in verse 23. Uh, John quotes Isaiah chapter 40. And he says, John replied in the word of God, Isaiah, the prophet, I am the voice of one calling in the wilderness, make straight the way for the Lord.
-
-Now, when he says, I'm all about helping this one who is to come. And John says, Isaiah prophesied about him in Isaiah 40, when he said, prepare the way of the Lord. Now, if you go back to Isaiah 40, you'll see that Isaiah had predicted that someday things would get so bad that God himself would come. To put things right.
+## 解鞋带的比喻与基督的超越 / The Sandal-Strap Metaphor and Christ's Transcendence
 
 And that we would build a highway for him through the desert. So basically it's, uh, it's, it's Isaiah predicting that God himself would come. And the word that I, uh, that Isaiah uses there is the word Yahweh will come. And Yahweh is the divine name. The, the name that God gave to Moses and the burning bushes, his personal name.
+
+But John is applying this to Jesus. You see that by quoting Isaiah 40 and applying it to Jesus, John is saying that the one who is to come that I'm talking about is God himself. And then he actually does a little rhetorical flourish that really drives us home near the end. Verse 26. He says, um, among you stands one. You do not know.
+
+You see this verse 26 and 27. Now that's why that's, that's, that's remarkably, uh, dramatic. John, uh, John says he's out there. He hasn't appeared yet.
+
+But he's out there. He's with us. He might be standing there right now himself. He might actually be in the crowd right now. That's very dramatic.
 
 ---
 
@@ -208,13 +214,7 @@ And that we would build a highway for him through the desert. So basically it's,
 
 ---
 
-## 谦卑与刚勇并存的品格
-
-But John is applying this to Jesus. You see that by quoting Isaiah 40 and applying it to Jesus, John is saying that the one who is to come that I'm talking about is God himself. And then he actually does a little rhetorical flourish that really drives us home near the end. Verse 26. He says, um, among you stands one. You do not know.
-
-You see this verse 26 and 27. Now that's why that's, that's, that's remarkably, uh, dramatic. John, uh, John says he's out there. He hasn't appeared yet.
-
-But he's out there. He's with us. He might be standing there right now himself. He might actually be in the crowd right now. That's very dramatic.
+## 谦卑与刚勇并存的品格 / Humility and Boldness Combined
 
 But he's John knew that Jesus was about that he wasn't coming in 20 or 30 or 40 years. He was already here. But then he says, he is the one who comes after me. The straps of whose sandals I am not worthy to untie.
 
@@ -255,6 +255,12 @@ That is enormous boldness. That's innovation. That's revolution. He, he's challe
 Where do you get this authority? Who do you think you are?
 
 See back up in verse 19, who do you think you are? Do you think you're the Messiah?
+
+No. The prophet?
+
+No. Elijah?
+
+No. Well then, where does all this boldness come from?
 
 ---
 
@@ -306,13 +312,7 @@ See back up in verse 19, who do you think you are? Do you think you're the Messi
 
 ---
 
-## 超越表现主义的身份认同
-
-No. The prophet?
-
-No. Elijah?
-
-No. Well then, where does all this boldness come from?
+## 超越表现主义的身份认同 / Beyond Performance-Based Identity
 
 How dare you baptize? Who gives you the right to baptize?
 
@@ -341,6 +341,10 @@ Now, the reason why that shocks us, or at least we have trouble explaining it, i
 Who do you think you are? What's your identity?
 
 We don't know of any identities that aren't basically performance-based. A performance-based identity is an achieved identity. You have to achieve it. And you know, it really doesn't matter what part of the world you come from.
+
+See, here in Western culture, you decide who you want to be. Now, there's many traditional cultures, and lots of you are from those traditional cultures, where your family decides who you should be, right?
+
+So here in the West, the question is, who do you want to be? In other parts of the world, the answer is, my mother and father say, this is who you should be, and this is who we want you to be. And in many parts of the world, your identity is rooted in pleasing your parents, living up to their standards, right?
 
 ---
 
@@ -376,11 +380,7 @@ We don't know of any identities that aren't basically performance-based. A perfo
 
 ---
 
-## 道成肉身如何赐给我们新身份
-
-See, here in Western culture, you decide who you want to be. Now, there's many traditional cultures, and lots of you are from those traditional cultures, where your family decides who you should be, right?
-
-So here in the West, the question is, who do you want to be? In other parts of the world, the answer is, my mother and father say, this is who you should be, and this is who we want you to be. And in many parts of the world, your identity is rooted in pleasing your parents, living up to their standards, right?
+## 道成肉身如何赐给我们新身份 / How the Incarnation Gives Us a New Identity
 
 Okay? So a lot of you know that, because you've been in both cultures. But here in this culture, it's living up to your own standards.
 
@@ -407,6 +407,14 @@ But John the Baptist doesn't know he was prophesying something. Because the nigh
 Now, here's the person, no one in the world is even worthy to untie his sandals. Yet this person, so high, comes down so low, and not only goes around to his disciples and unties their sandals, but then washes their feet too. And they're all shocked. Wait a minute, you know, this is not seemly, this is not right. On your knees to us, and Peter says, you must not wash my feet. And of course, Jesus says, Peter, if I don't wash your feet, you're not going to be saved.
 
 And that's Jesus' way of saying, this is just a symbol, Peter, of what I have done and what I'm about to do. See, if Jesus Christ had come down from heaven in great majesty only, and he landed here, and he called to us all, and he said, those of you who want God's blessing, follow me and imitate me. And, you know, I don't know, I don't know, I don't know, and live lives like I'm living, and summons up your strength, and be good, and then you will be blessed. If he had done that, he would have been just giving us one more identity like everybody else's identity, based on performance. Up and down, depending on our performance. You know, bold or humble, but never both at once. You getting this?
+
+But he didn't come down in majesty, he came down in humility. He emptied himself of his glory. He had no beauty that we should desire him. He looked unbelievably ordinary.
+
+And then he went to the cross, and what he did there was he performed for us. See, he lived a perfect life, and he earned the blessing of eternal life, but then he died a death in our place. He took our penalty. That means that when I believe in God through Jesus Christ, it's his performance that's the basis for my relationship with God, and God loves me infallibly and unconditionally. Regardless of whether I'm up or down, and you know what that means?
+
+On the one hand, it means, what does it mean? It means you're humbled into the dust. See, everyone has to be baptized. Everyone has to repent. It doesn't matter what you've accomplished. Everybody's the same. You are absolutely lost if it wasn't for what Jesus Christ did.
+
+That humbles you, and it never stops humbling you. Never. You never get off the floor, in a sense, for that.
 
 ---
 
@@ -446,15 +454,7 @@ And that's Jesus' way of saying, this is just a symbol, Peter, of what I have do
 
 ---
 
-## 身份认同的试金石
-
-But he didn't come down in majesty, he came down in humility. He emptied himself of his glory. He had no beauty that we should desire him. He looked unbelievably ordinary.
-
-And then he went to the cross, and what he did there was he performed for us. See, he lived a perfect life, and he earned the blessing of eternal life, but then he died a death in our place. He took our penalty. That means that when I believe in God through Jesus Christ, it's his performance that's the basis for my relationship with God, and God loves me infallibly and unconditionally. Regardless of whether I'm up or down, and you know what that means?
-
-On the one hand, it means, what does it mean? It means you're humbled into the dust. See, everyone has to be baptized. Everyone has to repent. It doesn't matter what you've accomplished. Everybody's the same. You are absolutely lost if it wasn't for what Jesus Christ did.
-
-That humbles you, and it never stops humbling you. Never. You never get off the floor, in a sense, for that.
+## 身份认同的试金石 / The Litmus Test of Identity
 
 But on the other hand, you're affirmed to the sky. You've got love that can't be lost. It can't be lost. It doesn't go up and down depending on how you're performing.
 
@@ -477,10 +477,6 @@ See what she's saying? She's saying apart from this new identity you get in Jesu
 In other words, if you're proud of being smart, you're really not proud of being smart. You're proud of being smarter than other people. So when you're around people that you're, that are, you think are dumber than you love just to, to bolster your self-image by thinking, look how stupid they are. You know, you're not proud of having money. You're proud of having more money than other people.
 
 And so you, look, I've got this and these people don't, they can't even afford this. You see, there's the world's identity always is unstable for you. And the world's identities are always lead you to exclude and demonize other people.
-
-But in Jesus Christ, when your identity is not, is absolutely stable, there's no fragility to it. It's absolutely certain. So you can be bold. You don't care what people think, but at the same time, there's no one you feel superior to. You're humbled enough to not feel superior to anybody and bold enough, not to care what anybody thinks. Don't you want that?
-
-I do. And of course it, nobody, no Christian, it's a Christian gift, but nobody's living. We're not living into it as we should. And here's how we're going to end.
 
 ---
 
@@ -508,7 +504,11 @@ I do. And of course it, nobody, no Christian, it's a Christian gift, but nobody'
 
 ---
 
-## 你是否敢于做一个声音
+## 你是否敢于做一个声音 / Do You Dare to Be a Voice?
+
+But in Jesus Christ, when your identity is not, is absolutely stable, there's no fragility to it. It's absolutely certain. So you can be bold. You don't care what people think, but at the same time, there's no one you feel superior to. You're humbled enough to not feel superior to anybody and bold enough, not to care what anybody thinks. Don't you want that?
+
+I do. And of course it, nobody, no Christian, it's a Christian gift, but nobody's living. We're not living into it as we should. And here's how we're going to end.
 
 Here's a test. Maybe it's a little bit of weird of a test to be talking to you about at Christmas, uh, service, but here's the test. If you have one of these wonderful identities that you've lived into your Christian identity, Oh, Christian, like John the Baptist, humble enough, not to actually really be superior to anybody, but bold enough, not to care what anybody thinks. One of the tests that you've got an identity like that is actually, you're pretty good at talking to other people about Jesus, even in New York city, where everybody gets so upset. If you talk about your faith and you're afraid of people not liking you, if you talk about your faith, well, see, that means you're not bold. You do. You care what people think you are taking yourself at the quotation of the day.
 
@@ -537,8 +537,6 @@ But of course, it all happens when you're still, the camera's on Herod. And then
 I remember the first time I watched this and I was like 19 years old. The first time I watched it, I was thinking, what?
 
 He's dead. Why is he still here and repent?
-
-We'll see. He's a voice. He couldn't, you can't kill the voice. Uh, all he's there is to point the way to Jesus. And when you point the way to Jesus, that can't, that can't be stopped. You're not pointing at yourself.
 
 ---
 
@@ -575,7 +573,9 @@ We'll see. He's a voice. He couldn't, you can't kill the voice. Uh, all he's the
 
 ---
 
-## 结束祷告
+## 结束祷告 / Closing Prayer
+
+We'll see. He's a voice. He couldn't, you can't kill the voice. Uh, all he's there is to point the way to Jesus. And when you point the way to Jesus, that can't, that can't be stopped. You're not pointing at yourself.
 
 See, if you, do you feel weak? Do you feel too weak to point people to Jesus?
 

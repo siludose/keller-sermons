@@ -4,6 +4,8 @@
 
 ---
 
+## 引言与经文诵读 / Introduction and Scripture Reading
+
 Welcome to Gospel in Life. How comfortable are you when it comes to being open about your faith? This month on the podcast, Tim Keller looks at what the Bible says about having a public faith.
 
 He shows us what it looks like to be open about our faith in a pluralistic society in a way that creates civility and peace and meaningful dialogue with our neighbors. It is very common for a lot of people, even people who want to live the Christian life to feel that they've got to check their brains at the door. A lot of people will say to me, I know that probably Christianity isn't really true, but I want it to be true or I live a general Christian life, but I know that there's all sorts of problems with the historical accounts.
@@ -24,6 +26,20 @@ We will take questions up here. You might want to be questioning the left brain,
 
 You need some more? We have a few more, yeah. Here we go.
 
+---
+
+欢迎来到《福音与生活》。人们常常问一个问题："我怎么知道圣经是真的？"在这个开放论坛中，蒂姆·凯勒回答了关于圣经真理、信心和信心基础的问题。这是一个非常好的问题，我想我们应该讨论。
+
+许多人有关于圣经的问题。许多人想知道圣经是否可信。许多人想知道为什么相信圣经。现在，有很多方法可以接近这个问题。
+
+有些人说："圣经说它是上帝的话，所以它一定是真的。"有些人说："圣经必须是真的，因为它有预言。"有些人说："圣经必须是真的，因为它改变了人们的生活。" 现在，这些都有一定的有效性。
+
+但我认为最好的方法是看看圣经本身向我们展示的内容。
+
+---
+
+## 历史证据的考察 / The Case Outline: Three Stages of Evidence
+
 If you look at this, let me give you a case. Tonight I am not making a case on this sheet for the authority of the Bible. I'm not trying to say, I'm not saying, here's the argument for why we have to believe everything the Bible teaches.
 
 I'm sure on here you have a case that the Bible is historically reliable, that the Jesus that shows you really happened, he really existed. Here's the argument outline, three stages, and then I'll try to break it down. Number one, if you honestly look at what the gospels claim, you will see they're not written as legends or fiction, they are either historical accounts or a deliberate hoax that's right on the front versus argument outline.
@@ -38,6 +54,18 @@ Now let me just quickly run through what I just mentioned as how do you judge an
 
 As basically reliable. We're not saying that they're inherent, but it's basically reliable. Why do you trust them?
 
+---
+
+首先，让我们看看历史证据。圣经中有许多事件发生在历史中。有真实的地方。
+
+有真实的人。有真实的事件。现在，当考古学家和历史学家研究这些地方和事件时，他们常常发现圣经是准确的。例如，圣经提到了许多被考古学家后来发现的城市。
+
+圣经提到了许多被历史记录证实的统治者。圣经对地理、习俗和文化的描述通常是准确的。所以从历史的角度来看，圣经显示了可信性。
+
+---
+
+## 圣经的内部一致性 / The Bibliographic Test
+
 There's several rules, and if you, several tests that you give to historical documents, and if you give those tests to the Bible, it comes out as a reliable historical document too. Here are the tests. Number one, and this one I won't even read through, the bibliographic test.
 
 If somebody, pardon me, he's got one. You don't have one. How did you not get one?
@@ -47,6 +75,20 @@ Did you save one? The bibliographic test, you can always get more. When it comes
 It'll come down every day, it'll just appear. The bibliographic test, I won't mention unless somebody brings it up later. Some people say, well, we don't have the originals, so how do we know?
 
 The fact is that we don't have the originals, but we have hundreds of documents within a few decades, hundreds of copies within a few decades of the originals, and so nobody really denies that we have essentially what originally was written by the gospel writers. If anybody's got a problem with that, I'll go into that. That's number one.
+
+---
+
+其次，让我们看看圣经的内部一致性。
+
+现在，圣经是由许多不同的作者在数百年间写成的。但尽管有这一点，有一个贯穿始终的故事。从创造到救赎的故事。一个关于上帝和人类之间关系的故事。
+
+现在，如果圣经是由许多不同的人虚构的，你会期望有很多矛盾。但实际上，有一个令人惊人的一致性。不同的书相互匹配。不同的故事相互支持。
+
+这表明圣经是由一个智慧的作者指导而写成的，即使是通过许多不同的人。
+
+---
+
+## 圣经对人性的诚实描述 / The Genre Test: History Not Legend
 
 Number two, this is important. The genre test. If you want to know whether historical documents are historical, an ancient document that is, you have to ask yourself, was it written to be a history?
 
@@ -92,6 +134,20 @@ That the gospels were certainly not legends, in one sense, they're not good enou
 
 He says, if they are not history, they are realistic prose fiction of a kind that actually never existed before the 18th century. Little episodes like Jesus writing in the dust when they brought him the woman taken an adultery, which have no doctrinal significance at all are the mark of it. So what do you see the second point you've got here is either the gospels or total hoaxes deliberate lies or else they're historical documents, but the one thing you can't say is well, they're legends.
 
+---
+
+第三，让我们看看圣经对人性的看法。圣经对人类的描述深刻诚实。圣经不会把人描写成纯粹的英雄。
+
+圣经显示人们有缺陷。圣经显示人们犯错。圣经显示甚至上帝最伟大的仆人也有罪和失败。例如，大卫是一个"按照上帝的心的人"。
+
+但大卫与女人通奸。大卫谋杀了一个人。大卫不完美。现在，如果有人在虚构圣经，他们会使伟人看起来更好。
+
+他们会隐藏缺陷。但圣经不这样做。圣经是诚实的关于人的罪和失败。这表明圣经是真实的，来自真实的人讲述真实的事件。
+
+---
+
+## 圣经的核心信息：基督 / The Corroboration Test
+
 You can't say that. The third historic test of historiography would be the corroboration test. If you have a historical document, the question that comes up is, is there any way to know that other witnesses, other authorities corroborate the testimony?
 
 And we have a lot of corroboration. We have some historical witnesses we still have, and then we have some witnesses we don't have. Now, look, the witnesses we still have, here, Tacitus, who was a Roman historian, wrote in 1815, writes that in 64 AD, Nero punished the Christians, and then he says, Christ was executed when Tiberius was emperor by the order of the procurator, Pontius Pilate.
@@ -117,6 +173,18 @@ Because when was the Battle of Gettysburg, 1863, 50th anniversary. Do you know h
 It was incredible. They all came together and they talked about things, and could somebody really have written a book within those 50 years that talked about battles or talked about things that happened, that hundreds and thousands of the people on the battlefield had seen within the lifetime of those people. Unless they'd happened, you see?
 
 There must have been corroboration within that time frame. The gospel's written too soon after the events. And so we know that there must have been eyewitnessed corroboration as well.
+
+---
+
+第四，让我们看看圣经的中心消息——那就是基督。圣经充满了关于救世主来临的预言。旧约充满了关于即将来临的一个人的预言，他将拯救世界。然后耶稣来了。
+
+耶稣应验了关于他的许多预言。关于他的出生地的预言。关于他的血统的预言。关于他将受苦的预言。
+
+关于他将复活的预言。现在，概率有多大，一个人会碰巧应验所有这些预言？它是天文的。这表明耶稣确实是预言中说的那个人。
+
+---
+
+## 基督教的转变能力 / The Problem of Miracles
 
 Over the end, we are now at the end. The problem of miracles, now see where we are, bibliographically, we know we have the originals basically. Number two, the genre, they are historical documents or hoaxes.
 
@@ -155,6 +223,22 @@ That's why here at Gospel and Life, August is Go and Share Month. Throughout Aug
 It's a powerful resource that explores how Christianity makes emotional, cultural, and rational sense in today's world. It's our thanks for your gift, and provides a way you can do a small act to share the gospel by reading the book with a friend giving one to a coworker or passing on both copies to people who are exploring the Christian faith. It's a simple way to start a Gospel conversation or continue it.
 
 To request your two copies of Making Sense of God, simply go to Gospel and Life.com-slash-give. Again, that's Gospel and Life.com-slash-give. Now, here's Dr.
+
+---
+
+第五，让我们看看基督教的转变能力。如果圣经只是一本书，只有一些好想法，为什么它如此转变？为什么它改变了人的生活？为什么它启动了一个运动，数十亿人现在跟随？
+
+历史上许多伟大的思想家和哲学家都提出了好想法。但他们的想法通常停留在知识领域。他们改变了人们的思考方式，但不一定改变了他们的生活。但基督教不仅改变了人们的思考方式。
+
+基督教改变了人们的生活。它赋予人们力量改变。它给人们希望。它给人们爱。
+
+为什么？因为基督教不仅仅是关于思想的。基督教是关于一个人——耶稣。基督教是关于一段关系。
+
+当人们与耶稣建立关系时，他们被改变。
+
+---
+
+## 信仰的本质与选择 / Open Forum: Questions and Answers
 
 Keller with the remainder of today's teaching. So let's get started, first hand. That's a good question.
 
@@ -364,48 +448,7 @@ Today's sermon was recorded in 1994. The sermons and talks you here on the Gospe
 
 ---
 
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《福音与生活》。人们常常问一个问题："我怎么知道圣经是真的？"在这个开放论坛中，蒂姆·凯勒回答了关于圣经真理、信心和信心基础的问题。这是一个非常好的问题，我想我们应该讨论。
-
-许多人有关于圣经的问题。许多人想知道圣经是否可信。许多人想知道为什么相信圣经。现在，有很多方法可以接近这个问题。
-
-有些人说："圣经说它是上帝的话，所以它一定是真的。"有些人说："圣经必须是真的，因为它有预言。"有些人说："圣经必须是真的，因为它改变了人们的生活。" 现在，这些都有一定的有效性。
-
-但我认为最好的方法是看看圣经本身向我们展示的内容。首先，让我们看看历史证据。圣经中有许多事件发生在历史中。有真实的地方。
-
-有真实的人。有真实的事件。现在，当考古学家和历史学家研究这些地方和事件时，他们常常发现圣经是准确的。例如，圣经提到了许多被考古学家后来发现的城市。
-
-圣经提到了许多被历史记录证实的统治者。圣经对地理、习俗和文化的描述通常是准确的。所以从历史的角度来看，圣经显示了可信性。其次，让我们看看圣经的内部一致性。
-
-现在，圣经是由许多不同的作者在数百年间写成的。但尽管有这一点，有一个贯穿始终的故事。从创造到救赎的故事。一个关于上帝和人类之间关系的故事。
-
-现在，如果圣经是由许多不同的人虚构的，你会期望有很多矛盾。但实际上，有一个令人惊人的一致性。不同的书相互匹配。不同的故事相互支持。
-
-这表明圣经是由一个智慧的作者指导而写成的，即使是通过许多不同的人。第三，让我们看看圣经对人性的看法。圣经对人类的描述深刻诚实。圣经不会把人描写成纯粹的英雄。
-
-圣经显示人们有缺陷。圣经显示人们犯错。圣经显示甚至上帝最伟大的仆人也有罪和失败。例如，大卫是一个"按照上帝的心的人"。
-
-但大卫与女人通奸。大卫谋杀了一个人。大卫不完美。现在，如果有人在虚构圣经，他们会使伟人看起来更好。
-
-他们会隐藏缺陷。但圣经不这样做。圣经是诚实的关于人的罪和失败。这表明圣经是真实的，来自真实的人讲述真实的事件。
-
-第四，让我们看看圣经的中心消息——那就是基督。圣经充满了关于救世主来临的预言。旧约充满了关于即将来临的一个人的预言，他将拯救世界。然后耶稣来了。
-
-耶稣应验了关于他的许多预言。关于他的出生地的预言。关于他的血统的预言。关于他将受苦的预言。
-
-关于他将复活的预言。现在，概率有多大，一个人会碰巧应验所有这些预言？它是天文的。这表明耶稣确实是预言中说的那个人。
-
-第五，让我们看看基督教的转变能力。如果圣经只是一本书，只有一些好想法，为什么它如此转变？为什么它改变了人的生活？为什么它启动了一个运动，数十亿人现在跟随？
-
-历史上许多伟大的思想家和哲学家都提出了好想法。但他们的想法通常停留在知识领域。他们改变了人们的思考方式，但不一定改变了他们的生活。但基督教不仅改变了人们的思考方式。
-
-基督教改变了人们的生活。它赋予人们力量改变。它给人们希望。它给人们爱。
-
-为什么？因为基督教不仅仅是关于思想的。基督教是关于一个人——耶稣。基督教是关于一段关系。
-
-当人们与耶稣建立关系时，他们被改变。现在，这对我们关于信仰的问题意味着什么？我认为**关键是信仰不是盲目的。**信仰有理由。
+现在，这对我们关于信仰的问题意味着什么？我认为**关键是信仰不是盲目的。**信仰有理由。
 
 有证据。有理由相信圣经。有理由相信耶稣。但信仰也超越了证据。
 

@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel in Life. You don't have to look far to see that something's deeply wrong with our world and with us. But is there an answer that gets to the root of why?
 
 In today's message, Tim Keller explores the human condition through stories in the Bible, uncovering what Scripture says about sin and why it's the only explanation deep enough to face the truth about ourselves. The teaching this morning is based on this passage in Jeremiah. I'm going to read chapter 2, and what's printed there, verses 2 to 13 and verse 19.
@@ -18,7 +20,11 @@ Those who deal with the law did not know me, the leaders rebelled against me, th
 
 Be appalled at this, O heavens, and shudder with great horror declares the Lord, my people have committed two sins, they have forsaken me, the springs of living water, and have dug their own sisters, broken sisters that cannot hold water. Your wickedness will punish you, your backsliding will repute you, consider then and realize how evil and bitter it is for you when you forsake the Lord, your God, and have no awe of me, declares the Lord, the Lord Almighty. This is God's Word.
 
+### Sin Is Denial by Its Very Nature
+
 Starting today, stretching on for about three months, all the way up to Easter, Easter is about three months away, we are going to be doing a series of teachings on the subject of sin, what it is, how it operates, what its effects are, what kinds, what types there are, and we start this week and you will see us again next week with this first sermon by Jeremiah to the people of Israel, because they were saying to themselves, and they were saying they were calling out and saying, what is wrong with us, why are things falling apart, what is wrong, you know, that is interesting that it seems like after every election nowadays, everybody has been thrown out, new people have been brought in, and the papers are saying, why is everybody so unhappy, what is wrong with us, and actually everybody is saying, what is wrong, what is going on, well the people of Israel were asking that question, and God came through and said, let me tell you what is wrong with you, and he gives them a sermon on sin, the nature of sin, the character, the characteristics of sin, and as we look at this, it is interesting, I feel like it is a huge sermon, it is last 37 verses, but it is really summarized in verse 19, sort of the summarization of its in verse 19, there is several summarizations, but I am going to look at that mainly. There is three things that we learn from this passage about the nature of sin, the definition you might say, the characteristics, the character of sin, and here is what they are, first of all we learn from this passage and from the Lord, therefore, that sin is by essence denial, sin is denial, look, look at the language he uses, consider then and realize how evil and bitter it is for you, see that, consider then and realize how evil and bitter it is for you, you know what this language is, this is intervention language, you know you have a friend who calls you up, let's say, the wife of a friend calls you up and she says you know for years he has been covering something up, there is a self, there is destructive behavior in his life, he has been covering it up, he has been hiding it, but it has come out, but he still won't see it, please come over here, tell him what he is doing, so you go on over and you sit down and you hear the story, and how do you start to talk, what do you say, what's your language, you say can't you see, don't you see what you are doing to yourself, it's clear everybody else can say it, you are killing yourself, how can you do this, you don't get it, you have to get it, you have to see, that's how you talk, that's the language of intervention for a deluded loved one, don't you see, this is the language that God uses on us, he assumes by this language, consider then and realize, what's that mean, consider, you are not thinking, realize, you don't get it, you don't see what your problem is, you don't realize what the source of the evil and bitterness of your life is, you don't see it, you don't get it, you have to see it, this is the language of intervention, the language of pleading, in other words, what we learn from this verse, what we learn from this passage, what we learn from the Bible, the root of our problems is the force field of denial that sin always entails, let me put it a couple of different ways, it is not fatal to be a sinner, it's not being a sinner that's fatal according to the Bible, it's the denial that you're a sinner that's fatal, I mean let's look at the at the most obvious, it's just, you know, it's crying out and I've already in a sense alluded to the most obvious parallel here, it's not, it's not fatal to be an alcoholic, is it plenty of alcoholics are leading productive lives, what is fatal, it's a fatal to be an alcoholic and to deny that you are, that's fatal, and we also know that there's something about the evil of alcoholism which is what it is, it's an evil, there's something about the very nature of it that puts out a force field of denial, isn't that right? Well that in a sense, that's just a metaphor, in many ways a very small metaphor, just a dim reflection of what God is talking about here, God is saying if there's evil and bitterness in your life and if there's not evil and bitterness in your life, you're just very young, in other words if you have evil and bitterness and you just wait, you know, wait, right, you know, I saw the Adam's family values last night and, you know, there's little preppy girls looking at Wednesday and saying, why are you dressed as if there's a funeral, why are you dressed as if someone's died and she looks at you as just wait, well, the same idea, God says your life is evil and bitter, you say my life isn't evil and bitter, God says just wait, when you see the evil and the bitterness of your life, God says the root problem of our society and of humanity is that we will not admit that we're sinners, there's nothing fatal about being sinners, God says there's lots you can do about that, what's fatal is to deny that you are, that's why it is evil and bitterness, because you don't consider, because you don't realize, consider that and realize, that's the thing you've got to do, that's the thing you've got to see, if I could, if I could, there's a force field that comes out from sin, you know, the old radio shows based on the shadow that a character that had learned over in the east to cloud the minds of people around him so they couldn't see him and it became a movie that nobody went to see this last summer as well, that's the, but the whole idea is the shadow is someone who clouds people's minds, that's what sin is, sin is the shadow, the real shadow, by its nature sin entails denial and you will not see the extent and the magnitude, oh yes, we, of course, I'm a human being, I air, I'm flawed, that's not to admit you're a sinner, that's not to admit you're a helpless sinner, that there's, as, as Dorothy Sayers says, there's a radical interior dislocation in the heart that we're way off-center, because we center on ourselves, that we're capable of tremendous evil, I wish, if I could do it, I would make everybody read the poets and the philosophers and the great thinkers of the end of the 19th century, both sides of the Atlantic, you know, in Europe and here, what they said, they were getting rid of Christianity, they were getting rid of religion, they were getting rid of what they considered superstition, and they said, oh yes, we are finally bringing in a rational approach to government, a rational approach to poverty, a rational approach to human beings, we've gotten rid of superstition, and we are going to see incredible things happen, we're going to see an end, you ought to read the stuff, you're going to see an end to poverty in the 20th century, we're going to see the end of war in the 20th century, the end of war, they almost all said this, and now where are we?
+
+### Historical Examples of Denial
 
 What was their problem, denial? They, look, I mean, here are two great two terrific examples, I mean, there's just zillions of examples, you know, the HG Wells and WHO, and I love to quote them, you know, I hate to see the pain, but you see, years of, you know, they start off with this idea, we're not sinners, and by the end of their lives, after years of disillusionment, and years of brokenness, why? Because of the denial that we are sinners, filing the end there, brought kicking and screaming to the place where the Bible could have pointed to start with, years wasted over it.
 
@@ -43,6 +49,8 @@ It's always the other way around. At the end of their lives they're saying I've 
 What was the problem? What was the problem? It's not the economy stupid.
 
 It's sin. It's sin. We gotta move on.
+
+### Practical Applications: Are You in Denial?
 
 The first point is this. Sin by its nature entails denial of itself. Sin puts out a force field.
 
@@ -96,7 +104,11 @@ Drawing from a series of teachings given at Redeemer, Dr. Keller shows how the r
 
 This newly released book, What Is Wrong with the World, is our thanks for your gift this month to help gospel in life share the good news of Jesus. Request your copy today at gospelonlife.com slash give. That's gospelonlife.com slash give.
 
-Now here's Dr. Keller with the rest of today's teaching. Sin is denial, but secondly and mainly sin is not just denial in general.
+Now here's Dr. Keller with the rest of today's teaching.
+
+### The Essence of Sin: No Awe of God
+
+Sin is denial, but secondly and mainly sin is not just denial in general.
 
 What is sin denial of? We said sin is a denial, but in particular, pardon me, God here tells us what the essence of sin is, what the nub of it is, what the heart of sin is. What is it?
 
@@ -105,6 +117,8 @@ Well he says consider and realize how bitter, evil and bitter it is when you for
 If you ask somebody what you know defines sin for me and they'll say well sins are breaking the rules, sins are breaking God's laws, if you believe in God, sins, that's what sins are. That's right, that's what sins are, but sin is a disposition, it's an attitude, it's a stance, it's a posture of the heart and Paul, and here I keep saying Paul, that's because I'm remembering other times. God in this passage says the heart of why you forsake him, the heart of why you sin, the reason you break the rules, the essence of it all, no awe.
 
 You have no awe of me. Let me show you why this is the whole thing, this is the heart of it all. The new international version that we're reading, this translation, the NIV translation, says you have no awe of me, but the word that's here is the word that's used throughout the Bible, and it's been most translations, it says you have no fear of me.
+
+### Two Kinds of Fear: Torment vs. Awe
 
 Now one of the central themes of the Bible is the fear of the Lord, and all through the Bible there's all this talk about the fear of the Lord, and that's what God is saying, is the essence of sin. You do not have the fear of the Lord, well what does fear mean? Now here's the problem, in the Bible the word fear is used in two different ways, and we in our modern common use of the word only use it in one of those two ways.
 
@@ -142,6 +156,8 @@ And that, at that point, is the reason why you sin. Let me apply this as we star
 
 Do you understand? First of all, let me apply it in a couple different ways. There's a number of ways.
 
+### No Halfway Measures with God
+
 First of all, do you see, therefore, that there is no way, no way, that there can be halfway measures when it comes to God. God says, the essence of sin is to not have me smack center in the middle of your life, smack center in the middle of your thoughts. If you are a little religious, if you are a little moral, if you are kind of religious, in other words, you can't have a God at times, you can't have a God as a vitamin supplement.
 
 Years ago, a lady was teaching, I've never forgotten what she said. A lady was teaching at a Christian conference and she said, if the distance from the earth to the sun, that 93 million miles was just the thickness of one sheet of paper. Do you know that the distance from the earth to the nearest star would be a stack of paper 70 feet high?
@@ -157,6 +173,8 @@ Sin is irrational. Either there's a God, but if there is a God, we'll get to thi
 You have to do everything with reference to him, everything. There's never an area of your life where you can say, well, you know, you don't even think about what would God say about that. What does God say about that?
 
 Never. Do you understand that? Oh, your problem, the reason your life is so evil and bitter, there's no awe.
+
+### Without Awe of God, Nothing Has Meaning
 
 Let me give you another application, intellectually, intellectually. You know, when the Bible says that a lack of centrality of God is not only the cause of all of our personal problems, but it's the cause of all our intellectual problems. In a place like Manhattan, I ought to say something about this.
 
@@ -196,6 +214,8 @@ You're kidding me? If you don't have the doctrine of sin, there's despair, there
 
 All your personal problems come because God is not central in your life. All of our intellectual problems come because God is not central in our thinking. And here, lastly, dear friends, Christian friends, I want you to think about this.
 
+### The Fear of the Lord Cleanses Everything
+
 All of your self-control problems are coming because God is not central. You say, how could that be? Well, it's pretty simple.
 
 Are you having trouble with worry? Are you having trouble with self-pity? Are you having trouble with guilt?
@@ -217,6 +237,8 @@ You need to wrestle until you see him, until you feel it's possible. The Bible s
 Whatever your problem is tonight, today, whatever your problem is this week, whatever your problem is, it can be cleaned with the fear of the Lord. No matter how defiled your ark can be cleaned. If you go to him and you say it has been evil and bitter for me, I've denied you and I've denied your centrality.
 
 Do you know what he'll say? He'll say, of course I'll have you. Of course I'll have you.
+
+### The Solution: Stand in Awe of His Grace
 
 And if you don't do that, if you come out of this saying, well, I'm so wicked and I'm so evil and I'm so bad, that why would God have me? Here's the one thing that you're not in awe enough about, his grace. Up in verse 6, and over and over and over again throughout the whole passage, he says, nobody says where is the Lord who brought us up out of Egypt?
 

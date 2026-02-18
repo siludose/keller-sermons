@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Scripture Reading and Introduction
+
 Welcome to the Gospel Unliked Podcast. Many of the questions we face in life are complex and aren't always answered by simply following rules. Do I speak up now or do I wait?
 
 Should I take that job or say where I am? That's why wisdom is so crucial. But how do we develop it?
@@ -24,7 +26,11 @@ If you make a bad choice because you're out of touch with reality, out of touch 
 
 Competence with regard to the realities of life, how life really works, well how do you get wisdom? That's what we're here for tonight because here in chapter three is very well-known chapter. We learn where wisdom develops, the vehicle through which wisdom develops, and the catalyst that sparks them all and fuels them all.
 
-So there's a place where wisdom occurs, where you learn it, there's vehicles through which you learn it, and then there's a catalyst for those vehicles. Let's take a look at that. First of all, brief but important is where does wisdom actually happen?
+So there's a place where wisdom occurs, where you learn it, there's vehicles through which you learn it, and then there's a catalyst for those vehicles. Let's take a look at that.
+
+### Wisdom Grows on the Path of Daily Life
+
+First of all, brief but important is where does wisdom actually happen?
 
 It doesn't happen in a classroom, it doesn't happen in a seminar, I could give you a seminar with the Bible says about wisdom, but I would just be telling what I'm about to tell you now, and that is you can't get wise in a seminar, where does it happen? There's a metaphor all through the book of Proverbs, actually all through the Bible, but all through the book of Proverbs. You see it in verse six, it says, do this, do this, do this, and he will make your path straight.
 
@@ -37,6 +43,8 @@ Even the greatest athletes can still walk further than they can run. The best wa
 Here's what it means. So actions you take repeatedly, day after day, in your ordinary daily life make you something. You can't stay the same.
 
 The way in which you behave, the actions, the choices you make in just ordinary daily life is turning you into something. It's actually take turning you into a wise person or a foolish person, you know why? Because it's character that is forged in the small parts of daily life.
+
+### Character Forged in Small Daily Choices
 
 Nobody brings this out better than C. S. Lewis.
 
@@ -88,6 +96,8 @@ Point two, all right, how can you set things up so that you are making those goo
 
 It's the small choices that create the character on the basis of which you make the wise big choices because you're in touch with reality. How do you get that character? If in daily life you do four things, and here's what they are, I'll list them and then go through them.
 
+### Knowing God: The Foundation of Wisdom
+
 Knowing God, this is how wisdom comes through knowing God, trusting God, submitting to His Word and living in community. First of all, knowing God. Look at verse three, but love and faithfulness never leave you.
 
 Bind them around your neck and write them on the tablet of your heart. Now, this is not an easy text to understand immediately because when we read it in English, it looks like it's saying be a loving, faithful person, right, but love and faithfulness never leave you. That's not exactly, you probably think be a loving and faithful person, but look at the way it's talking about.
@@ -102,7 +112,11 @@ If you really had that deep, if you knew, knew, knew, your heart of heart of hea
 
 Binding them around your neck, write them on the tablet of your heart? Actually, there's a lot of things I'm sure you can do. But mainly, the very least it means having a prayer life.
 
-At the very least it means taking an abstract idea, making it real to your heart to prayer, at least daily, maybe a couple of times a day, through, you have to at least have a very vigorous life in which you are walking with God that you're praying and reading and talking to Him that you're practicing His presence and reminding yourself of what He's done for you. So, first of all, knowing God, daily knowing God, enables you to make the choices that will turn you, push you toward wisdom and not foolishness. Secondly, though, look at this, verse 5, trust in the Lord with all your heart.
+At the very least it means taking an abstract idea, making it real to your heart to prayer, at least daily, maybe a couple of times a day, through, you have to at least have a very vigorous life in which you are walking with God that you're praying and reading and talking to Him that you're practicing His presence and reminding yourself of what He's done for you. So, first of all, knowing God, daily knowing God, enables you to make the choices that will turn you, push you toward wisdom and not foolishness.
+
+### Trusting God vs. Functional Idols
+
+Secondly, though, look at this, verse 5, trust in the Lord with all your heart.
 
 Now, I'm afraid when you hear that right away, you just start to feel inspired. Trust in the Lord with all your heart. It sounds like a hallmark reading card and, you know, oh, how nice.
 
@@ -135,6 +149,8 @@ You know, and you're wrestling, we'll see another Bible can really help you with
 You don't have to sit around, you don't have to think it out, you don't, and there's a lot of things the Bible says. As I said, you know, 20, 25% of your life decisions, the Bible's got some nice, clear, you know, tracks to run on, and so in some ways, you know, you might, now listen, we don't always like what the Bible says, so here you are in this marriage, but I don't understand, lean not on your own understanding. Say, maybe you don't like it, or maybe you find it difficult to understand, but there it is, and so how do you let God's understanding trump yours?
 
 How do you do that? So that you become wiser as time goes on, then you would be otherwise, it's one way is through submitting to the Word of God. That's the simple way, but there's a more complex way, I do need to tell you about this.
+
+### God's Word Renarrates Your World
 
 The more complex way is important. Are you looking for ways to grow in your faith this summer? Or are you hoping to help new believers or kids grasp the heart of the Christian faith?
 
@@ -190,6 +206,8 @@ And therefore, how you live is different and the wisdom grows out of that. And i
 
 You see that? Because everything looks different in the story that the Bible tells us about the world. And there's one more thing that one more vehicle that you need in order to develop wisdom and daily life.
 
+### Community: Don't Be Wise in Your Own Eyes
+
 And that is community. It says here in verse 7, do not be wise in your own eyes. Do not be wise in your own eyes.
 
 Now, the definition of a fool is a person who's wise in his or her own eyes. The definition of a fool is someone who only cares to see things from their own perspective. Now, I'm in this room and I can see some things from this perspective that none of the rest of you can because I have this unique perspective.
@@ -216,7 +234,11 @@ You're inside here and you hear yourself through the bones in years or something
 
 Do I? And all your friends say, yes, that's you. See, their eyes see better.
 
-And only if you are deeply involved in community, are you going to be wise, and in the Word, and in trusting God, and in knowing God. But not done, not quite. Because actually, in this text we're told, there's a catalyst, a kind of spark that makes all the vehicles run turbocharged.
+And only if you are deeply involved in community, are you going to be wise, and in the Word, and in trusting God, and in knowing God.
+
+### The Catalyst: Suffering and God's Discipline
+
+But not done, not quite. Because actually, in this text we're told, there's a catalyst, a kind of spark that makes all the vehicles run turbocharged.
 
 There is something that when it happens it makes all these things produce wisdom at 10 times the normal rate. Do you know what that is? Well, it's kind of a shock when we get to it.
 

@@ -42,7 +42,11 @@ We're looking at the themes of the book of Proverbs. We've been looking at what 
 
 We've been looking at how you develop wisdom. Today we're looking at this famous passage where we learn three things that characterize a wise life. If you want to lead a life of wisdom, that life will be characterized by three things.
 
-A glorious fight, a guarded heart, a living word. Let's take a look. First of all, the way of wisdom is the way of our life of wisdom is basically, it could be characterized as a glorious fight.
+A glorious fight, a guarded heart, a living word. Let's take a look.
+
+### A Glorious Fight
+
+First of all, the way of wisdom is the way of our life of wisdom is basically, it could be characterized as a glorious fight.
 
 This is five to nine I'm thinking of. Get wisdom, get understanding. Do not forsake wisdom, though it cost you all you have, get understanding, cherish her, embrace her, and she will give you a garland to grace your head and present you with a glorious crown.
 
@@ -108,6 +112,8 @@ And more and more you do that, the more you become conversant with the Bible, th
 
 And yet, it has an immense impact on the way in which you do how you spend your money daily depending on the story. It's a fight to be wise. It takes years and years and years, but it's a glorious fight.
 
+### A Guarded Heart
+
 Second thing, a wise life is not just characterized by a glorious fight, but by a guarded heart. What do we mean by a guarded heart? That's the second thing.
 
 Before it considering that the book of Proverbs is all about Proverbs is all about wisdom and getting wisdom, verse 23 is pretty amazing because essentially it's saying, and there's nothing more important than this if you're going to be wise. Above all else, verse 23, guard your heart for everything you do flows from it. Now that is not the modern understanding of the heart.
@@ -139,6 +145,8 @@ According to the Bible, no, you haven't. Because look what it says here, and the
 You go through the rest of the book of the Bible, and even just the Proverbs. You'll see often it talks about thinking with the heart, or acting with the heart, not just feeling with the heart. This does not say, the heart is the seed of the emotion, the emotions flow from the heart, but the brain has a reason to think what it says.
 
 Everything flows from the heart. And afterwards it actually says, what your mouth says, what your eyes perceive, and what your body does, is all flowing from the heart. Why?
+
+### The Heart's Deepest Commitments
 
 Because the Bible believes that the heart is actually the seed of your most fundamental commitments, your most fundamental hopes and trusts. It is the things, let me say this carefully, I'll try to say twice, just so it sinks in. It is where you hold the beliefs about the things you think you must have in order to receive life joyfully.
 
@@ -197,6 +205,8 @@ And therefore, it's right. You know, when somebody says, sticks and sells me, br
 To a great degree, our self-imagine, what we believe in our heart, is to a great degree, accepted by words that people have said that we can't forget. Sometimes a good counselor can tease them out a little bit and say, so your father said that, and you never forgot that, no, so that's in there. So at one level, yes, if you want to guard your heart, take these words and put them in there.
 
 But does it really make sense that, for example, that man who really needed a major redo of his inner heart and was bitter against women and had such a view of himself, that if he just memorized the scripture, for example, just took biblical principles, even relevant ones, and just memorized them and thought about them that that would do it, no. No, you need a living word. You need a word of life, but let me tell you where you get it.
+
+### Jesus: The Living Word
 
 You have to put the book of Proverbs into the context of the whole Bible, and here's what you see. In John chapter 539, Jesus talks to the scribes and Pharisees, and he says, you study the scriptures diligently because you think that in them you have eternal life, okay? You read the words of the Torah because you think that they give you the words of life.
 

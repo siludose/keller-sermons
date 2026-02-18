@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel and Life! Who is the Holy Spirit? And why is the Spirit's work so vital to the Christian life?
 
 The Bible tells us the Holy Spirit is not just a vague force, but a person who works in the lives of Christians in profound ways. Today Tim Keller is exploring how the Spirit calls us to faith, unites us together, equips us with gifts and shapes us to be more like Christ. Tonight's scripture is from the Book of Romans, chapter 8, verses 15 through 27.
@@ -16,7 +18,11 @@ We are in this hope we were saved, but hope that is seen is no hope at all. Who 
 
 In the same way, the Spirit helps us in our weakness. We do not know what we ought to pray for, but the Spirit Himself intercedes for us with groans that words cannot express. And He who searches our hearts knows the mind of the Spirit because the Spirit intercedes for the saints and accordance with God's will.
 
-This is the Word of the Lord. We've been doing a series on the Holy Spirit and tonight we come to the end of the series. And we've looked at a number of pretty well known things that the Holy Spirit does in us and for us.
+This is the Word of the Lord.
+
+### The Spirit's Future Work of Glorification
+
+We've been doing a series on the Holy Spirit and tonight we come to the end of the series. And we've looked at a number of pretty well known things that the Holy Spirit does in us and for us.
 
 He calls us and enables us to believe. He regenerates us and creates Christ-like character in us. He unites us one to another inside the church.
 
@@ -50,7 +56,11 @@ You are absolutely as justified in His sight, the first moment you believe and a
 
 They're still bondage. We have been redeemed, but we need to be redeemed, and we will be. Because we're told in verse 17, though we're in suffering, though we're in bondage, we will be glorified, which means all the effects of sin, all the bonds will be over, and in particular, it's verse 23, we will have our bodies redeemed.
 
-We await eagerly the redemption, the final adoption, the final salvation, the redemption of our bodies. Now, the Greeks, the old Greek philosophers, believe the body was bad, and the ultimate salvation was for the soul to be freed from the body. The body is bad, the body is broken, the body is weak, and the ultimate salvation is to be freed from the body.
+We await eagerly the redemption, the final adoption, the final salvation, the redemption of our bodies.
+
+### The Resurrected Body: Ours, Beautiful, Powerful
+
+Now, the Greeks, the old Greek philosophers, believe the body was bad, and the ultimate salvation was for the soul to be freed from the body. The body is bad, the body is broken, the body is weak, and the ultimate salvation is to be freed from the body.
 
 And I must tell you, the older I get, the more I sympathize with that idea, the more you see me. Because if you're chronically ill or if you're just getting older and you're just, and you just sense more and more the weakness of your body, you can start to say, this is, this isn't, the body is my enemy. It's a prison house.
 
@@ -110,6 +120,8 @@ But do you think about your future, resurrected, perfect bodies and glory cells?
 
 We need to be good stewards of our body, be as good a steward as you possibly can but don't put your hopes there. The power you want, the glory you want, you know, there's a you in there that will never come out till this moment, till the spirit gives life to your mortal body, to the redemption we wait and eat your longing for the redemption of our bodies. But that's not all by the way, that is not all.
 
+### A Renewed Natural World
+
 The world in which we're going to live when the spirit does its work is a renewed natural world. Verse 19, just for a minute, just to point out that along with the resurrection of our bodies comes verses 19, 20 and 21, which is absolutely astonishing. Tomorrow is giving Tuesday and we want you to know about a special opportunity we have this year.
 
 As you may know, gospel and life supports Redeemer City to City, a ministry dedicated to growing gospel movements in cities around the world through church planting. City to City was co-founded by Tim Keller and he cared deeply about this mission. And this coming year at a 2026 training event in Kenya, City to City will help train, coach and support two cohorts of 20 pastors planting churches all over Africa.
@@ -158,6 +170,8 @@ It's nature that actually comes in on our co-tales, what that means is this. It'
 
 And yet we are going to be more glorious than the future, renewed nature. And that's what the Holy Spirit will do. Because the Holy Spirit's job is to get rid of the suffering, get rid of the bondage, get rid of the brokenness, get rid of the groaning.
 
+### The Spirit Helps Us Now
+
 That's what it's going to do in the future, so you say, ah, does that mean that's it? We just have to wait for that. We're groaning now, we're suffering now.
 
 Notice that? We in really groan, nature is groaning. And the word groaning, by the way, that comes up three or four times in here is a word that means to be in pain.
@@ -186,6 +200,8 @@ But the first day, you gather the corn or the wheat that's coming, you gather so
 
 It's a real piece of the future. And what we're told is, with the Holy Spirit, this wonderful person and power who in the future is going to deal with our groanings and suffering completely is in our lives now. We get a foretaste of that glory that enables us to handle the groanings and suffering of life now.
 
+### Sailing and Rowing Through Suffering
+
 That's what this text is telling us. And in two ways, I'll use the image of sailing and rowing. You know, sailing, you move through because the wind is to your back.
 
 In rowing, you've got no wind or maybe the wind in your face, but with exertion, you can still get home. So when you're in the midst of groaning and suffering, there's two ways that the Holy Spirit helps you, but He does. The first one is at the top versus 15, 16, 17.
@@ -212,7 +228,11 @@ Things are terrible. Oh, Lord, why are you letting all this happen? But the very
 
 And I think what he's, what happens is he just knows in his soul in spite of the fact that everything else seems to be saying there is no God or God doesn't care or who cares about God in his soul, he says, no, no, no, no, no, I know, I know, I know he's there, I know he's not going to leave me like this, I'm going to do the next thing, I'm going to pray, I'm going to read my Bible even though I'm not getting anything out of it. You're rowing, and it's because of the Spirit's there helping you. The Spirit cares about your groaning and your suffering, that's his job.
 
-Some day to end it all, but even now to help you. Now let's not, we're not done, and here's the reason why. If you're a New Yorker is your practical, and New Yorkers say, this is all very inspiring, but how do I really, how do I actually do this?
+Some day to end it all, but even now to help you.
+
+### Assured Hope Changes Everything
+
+Now let's not, we're not done, and here's the reason why. If you're a New Yorker is your practical, and New Yorkers say, this is all very inspiring, but how do I really, how do I actually do this?
 
 How do I do this? You talk about this wonderful future and this wonderful future, but it's supposed to be somehow helping me now. I don't see how.
 
@@ -231,6 +251,8 @@ And the other woman is in total despair. Do you know why? Same circumstances, wh
 Because what you know about the future completely determines how you process the present. What you know about the future, your understanding of your own future completely determines how you process the present. How can you know that the redemption of your body is coming?
 
 How can you know that that's your future? If you knew it, if you were sure of it, you could face anything because a whole lot better than $10 million is coming into your bank account. How can you be sure?
+
+### The Groaning of Christ Our Assurance
 
 Here's how you can be sure. Many people, commentators have been wondering, so over the years, how could the Spirit groan? You notice in verse 26, it says that when the Spirit is with us and all of our trouble, it says, the Spirit intercedes for us with groans, which means the Spirit is suffering.
 

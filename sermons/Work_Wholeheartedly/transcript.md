@@ -66,6 +66,9 @@ You see the heart and the head are put against one another. In the Bible, the wo
 
 The heart is the seat of the mind, the will and the emotions and the way you know that the spirit of God is really affecting you in the heart is that your religion is not just emotional. We talked about this a couple of weeks ago in the morning service, not just emotional and not just volitional and not just intellectual. There's a very, very important thing to consider.
 
+### Conversion and Vocation
+
+
 Some of you know, some of you have been converted since you started coming to this church and yet you were very religious before. Now, you're an interesting kind of person and very often sitting down, you can look back and say, you know, my parents aren't going to believe this. A lot of people aren't going to believe this because I've been in church for years and yet I was never a Christian until I came here.
 
 And very often if you sit down and talk and you think about it, you'll be able to identify that you didn't understand the gospel, but there was some signs. You should have been aware of it because in some cases your religion was nothing but intellectual. That means you thought about the Bible and you knew a lot and you argued about it and you got your thinking straight.
@@ -136,6 +139,9 @@ You can laugh about being poorly paid and never worked, but these people are mor
 
 If it works for these folks, it should work for you, okay? It's estimated that most of us spend half of our waking hours at work. How does the wisdom of the Bible apply to our careers?
 
+### Connecting Work to God
+
+
 In other words, how can our work connect with God's work? And how can our vocations be more emotional? In his book, every good endeavor, Tim Keller draws from decades of teaching on vocation and calling to show you how to find true joy in your work as you serve God and others.
 
 The book offers surprising insights into how a Christian perspective on work can serve as the foundation for a thriving career and a balanced personal life. Every good endeavor is our thank you for your gift to help Gospel and Life share Christ's love with more people around the world. Visit gospelandlife.com-slash-give.
@@ -203,6 +209,9 @@ And you see what's interesting is the temptation of dishonesty and the temptatio
 They both stem from a basically getting God out of the picture. Now let's talk about these two things briefly. And you see, on the one hand, the passage goes against the idea of work as a curse, it says, do your work as the will of God.
 
 It gets rid of the view of work as self fulfillment, you see, because it's saying you're working for God. See, this person over here says, I'm working for the master. I'm just putting my time in.
+
+### Beyond Working for Money
+
 
 I'm working, you know, I've got the ball and chain on me, I'm just working for the money. Over here it says, I'm working for myself to fulfill myself, to know that I'm a great person, to know that I really can accomplish something. And the Bible says, if you work for either for money or for yourself, the whole society will go down and you yourself will eventually break apart.
 
@@ -273,6 +282,9 @@ Is that what I've done? More secondly, am I burning myself out and that gets us 
 If you say, hey, I don't think I'm doing that either, then thirdly, maybe you just haven't really found the place that fits your gifts. You talk to people and find it. Well now, let me just talk briefly about that other side of things.
 
 As I said, the work is a curse, leisure is the meaning of life. You've got to begin to realize you're not going to find yourself that way. You have to say, I am working as a steward of what God's given me, my gifts in the world.
+
+### Working as Stewardship
+
 
 I am to be useful to people. That's what you work for, to be useful to people, to be a steward of the things that God's given you, the world that He's given you, and the gifts that He's given you. That's a calling.
 

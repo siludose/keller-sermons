@@ -60,6 +60,9 @@ And then they proceeded, some of you historians know, to lose 10 in a row. 10 ga
 
 Now when you're a 13-year-old boy and that's your team, those 10 games, I lived through every pitch, every at bat, every out. I was dying a thousand deaths. I was experiencing an agony that no 13-year-old boy believed was possible.
 
+### The Pursuit of Happiness
+
+
 And when it was done, and my heart was literally broken, and you know what, okay, we're laughing, but you know, it was awful. What I said was, never again. I am never giving my heart to, okay, fill in the blank because you see, all of us have something like that.
 
 Now, you know, there are people who to this day are not past the emotional level of a 13-year-old boy and it's still sports teams that are breaking their hearts. But for most of the rest of it, it's what? I'm never going to, you know, it's a man or a woman or it's love or it's career, it's success or something like that.
@@ -132,6 +135,9 @@ So get the basics, food, shelter, good health. Do you realize how ridiculous tha
 
 Sure, you need all that to be happy. Sure, you need that to be happy. Most people, most places, most centuries have never had that.
 
+### Joy Beyond Circumstances
+
+
 What are we going to do about all the people who could never get enough food, shelter, good health, and safety today? They'll never will have it. You talk about engaging and interesting work.
 
 In other words, what this is saying, and this is what the world believes, happiness is getting my circumstances in the right place. I'm happy if things are going well. Circumstances are favorable.
@@ -201,6 +207,9 @@ Sometimes that glory that we're going to have in the future, sometimes you exper
 Some of the old people, I mean some of the old British pastors like Richard Sibs and William Guthrie write about it like this. Listen, this is 17th century English but so work with it. Here he says, Richard Sibs says, sometimes our spirits cannot stand in trials.
 
 So the immediate testimony of the Spirit comes to us saying, I am thy salvation and our hearts are stirred up and comforted with joy inexpressible. This joy has degrees. Sometimes it's so clear and strong that we question nothing and other times doubts come in soon.
+
+### Foretastes of Glory
+
 
 William Guthrie says, it's not an audible voice. We don't hear an audible voice. Rather, what we're talking about here is a ray of glory filling the soul.
 
@@ -273,6 +282,9 @@ And by the way, there's plenty of people who preach five or six sermons on these
 That we might be saved from God's wrath. Now God's wrath is it's not just crankiness. God's wrath is his judicial opposition to evil.
 
 His settled judicial opposition to injustice and evil. And the human race deserves punishment because we have participated in evil and injustice. But Jesus Christ, while we were still sinners, that's grace.
+
+### The Gospel Brings Joy
+
 
 Not because we cleaned up our life. While we're still sinners, Jesus Christ took the wrath. He took the condemnation.
 

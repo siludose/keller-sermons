@@ -4,6 +4,8 @@
 
 ---
 
+## 引言与经文宣读 / Introduction and Scripture Reading
+
 Welcome to Gospel in Life. Some people say the fundamental problem of the world is poverty. Others say it's bad systems, poor education or biology, but what if none of these can fully explain the brokenness we see, both in the headlines and in our own hearts?
 
 In today's teaching, Tim Keller looks at how the Bible's teaching on sin gives us a deeply honest and yet incredibly hopeful view of the world. I'd like to read to you our text on which the teaching is based this morning. It's Jeremiah chapter 2.
@@ -44,6 +46,32 @@ The soul should be centered on God. If there is a God, we saw last week, if ther
 
 That's sin, a dislocation of the soul and all of our problems come from our unwillingness to center on him because we do not want to lose control. Whatever we center on controls us. So we say, we have no awe of him, we don't center on him now.
 
+---
+
+欢迎来到《福音与生活》。有些人说世界的根本问题是贫困。其他人说这是坏制度、教育不足或生物学，但如果这些都不能充分解释我们看到的破碎，无论是在头条新闻还是在我们自己的心中呢？在今天的教学中，提摩太·凯勒观察圣经关于罪的教导如何给我们一个深刻诚实的，但令人难以置信的充满希望的世界观。
+
+我想为你读我们今天上午教学基于的文本。这是耶利米书第 2 章。我们上周开始查看这一章。这是耶利米对犹大人民的第一个讲道。
+
+它关于罪的主题，我们查看了这一章和讲道的第一部分，最后我们这周查看其余的。耶利米书 2 第 19 到 32 节。你的邪恶会惩罚你。你的背弃会指责你。
+
+然后想想并意识到当你抛弃耶和华你的神并对我没有敬畏时，对你来说是多么邪恶和痛苦，耶和华宣称，万军之耶和华。很久以前你打破了你的轭，撕裂了你的债券。你说，我不会侍奉你。实际上，在每一个高山和每一棵树下，你像妓女一样躺下。
+
+我把你种植成优质葡萄酒的选择，坚实可靠的库存。那么你怎样背叛我变成腐败的野生葡萄藤？虽然你用苏打洗自己，使用大量肥皂，你的内疚污渍仍然摆在我面前，宣称耶和华，主权主。你怎样能说，我不是档案，我没有跑过贝尔。
+
+看看你在山谷中的行为，想想你做了什么。你是一只迅速的母骆驼跑来跑去，一只习惯沙漠的野驴，嗅着风，在她的渴望中，在她的热中谁能限制她，以及追求她的电子邮件不需要使自己感到疲劳，他们会找到她。不要跑到你的脚光秃秃的，你的喉咙干燥，但你说，没有用，我爱外国神，我必须追随他们。当被抓住时，小偷被耻辱，以色列人被耻辱。
+
+他们，他们的国王和他们的官员，他们的祭司和他们的先知，他们对木头说，你是我的父亲，对石头说，你给了我出生。他们已经转身背对我，而不是他们的脸，然而，当他们有麻烦时，他们说，来救我们。那么你为自己制作的神在哪里？如果他们能在你有麻烦时救你，就让他们来。
+
+因为你有多少个神，就像你有多少个城镇，哦犹大。为什么你对我提出指控？你们都反叛了我，去清理主。我徒劳地惩罚你的人民，他们没有回应纠正。
+
+你的剑吞噬了你的先知，像一只贪婪的狮子。你这一代考虑主的话。我对以色列来说一直是沙漠还是黑暗之地？为什么我的人民说我们可以自由漫游？
+
+我们不会再来找你。一个少女忘记她的珠宝，一个新娘，她的婚礼装饰品吗？然而我的人民有罪。现在这第 19 节之前，就在它之前，如果你更仔细地看，我们会通过讲道进行分页。
+
+---
+
+## 罪的后果 / The Consequences of Sin
+
 That was last week, the character sin, today we're going to look at the consequences. What actually happens? What are the effects?
 
 What are the things that actually happen when we do that? And the effects, of course, are terribly drastic. You see, right here in the beginning of this marvelous passage, it says, God says, your wickedness will punish you.
@@ -70,6 +98,26 @@ How do we break things? How does everything fall apart? Things fall apart.
 
 Says the novel. That's right. Because it's sin.
 
+---
+
+圣经讲道通常会再次回顾他们所说的内容。上周我说，第一，罪是否认。第二，罪特别是否认对神的敬畏。这周我要进行第三点。
+
+第三，罪是一种欲望。让我看看经文说什么。看第 25 节，你说，没有用，我爱外国神，我必须追随他们。这也在第 23 节。
+
+看看你在山谷里的行为。你是一只快速的母骆驼。然后在第 24 节说，一只野驴习惯沙漠，嗅风在她的渴望中，在她的热中谁能限制她。然后在第 33 节，圣经使用了什么动物？
+
+牲畜。母骆驼，母驴。为什么动物？因为他在说什么？
+
+他说，你本质上是由本能和欲望驱动的。你就像一只发烧的动物。你被渴望所控制。你被本能所控制。
+
+一个非常有力的东西，而且非常诚实。他说，罪本质上是什么？罪本质上是由欲望驱动的。现在，我想让你看到这有多么激进。
+
+这与我们现代的想法背道而驰。现代想法是什么？
+
+---
+
+## 偶像神：奴役与掏空我们 / Lover Gods: Idols That Enslave and Empty Us
+
 Now, what are the consequences? There are actually two in this particular passage. There's two that are mentioned.
 
 And they're mentioned under a wonderful image, a wonderful new metaphor. And that metaphor is this. God in a penetrating way says that sin leads us to fall in love with other gods.
@@ -93,6 +141,34 @@ I must go after them. What do we learn here? It is an image that God uses to the
 They lived with the animals. Their livelihood depended on their animals. Their lives depended on the animals.
 
 And here's one thing they knew, that when an animal got into the mating season, there was no stopping that animal. The picture is of an animal in the grip of craving, in the grip of a foundational instinct. No stopping that animal.
+
+---
+
+现代想法是你的问题？你太被压制了。
+
+你太克制了。你有太多的禁忌。你有太多的规则。你被强加给你的限制所压制。
+
+如果你能自由地追求你的欲望，你会很好。你会很快乐。你会实现自己。你会自由。
+
+但是圣经说什么？圣经说，不，罪本质上是由欲望所驱动的。不是抑制和禁忌使你被压制。是你的欲望。
+
+这就是压迫你的东西。让我给你一些例子。如果你有一个朋友，这个朋友陷入了毒品滥用的陷阱。现在，如果你问我们现代社会，我们会说，好吧，他或她一定受到了某种社会压力。
+
+也许他们没有足够的自由。他们没有足够的自主权。社会必然压制他们。但通常情况下，毒品滥用者会告诉你，我一点都不自由。
+
+我完全被我对药物的渴望所奴役。我完全被我的上瘾所控制。我不是在表达自我。我被我的欲望奴役。
+
+圣经是对的。不是他们太被压制。他们是欲望的受害者。让我给你另一个例子。
+
+有人，一个有权有势的人，陷入了色情成瘾。他或她是一个权力人。但他们被色情成瘾完全奴役。这个人会告诉你，我不自由。
+
+我完全被欲望所控制。我完全被对色情的渴望奴役。或者考虑一个人，一个聪明的人，可能是一个成功的人，他们沉迷于赌博。他们正在破坏他们的生活，他们的家庭，他们的业务。
+
+他们不是太被压制。他们完全被他们的欲望奴役。
+
+---
+
+## 罪的奴役力量 / The Enslaving Power of Sin
 
 What are we learning here? The first thing we learn is it's sort of a general thing, under this subject of slavery. First of all, sin has a power to enslave that we hide from ourselves.
 
@@ -143,6 +219,22 @@ Are you more of a self-sense, a self-sacrifice than Paul? Are you a better perso
 Can't you see it? If you start out denying it, I'm not defiled, you'll end up saying it's no use. Eventually you'll see that there is a power in you that is beyond you.
 
 You can spend a lot of time rationalizing it. You can take courses in both psychology and sociology to do everything to redefine sin in such a way that we're able to say we're not defiled, but in the end we'll say it's no use. But here's what's so interesting about these three verses.
+
+---
+
+所以圣经说，虽然我们的现代思维说，释放你的欲望，你会自由，圣经说不，被欲望驱动，被欲望所奴役。那是罪。
+
+现在，这是最有力的部分。读第 24 和 25 节。一只野驴习惯沙漠，在她的热中嗅着风，谁能限制她？他们追求她不需要使自己疲劳。
+
+她会找到他们。但你说，没有用，我爱外国神，我必须追随他们。现在看看这是怎样的。动物会迷失在欲望的热情中，但最后她寻找它的男性。
+
+但是你，你不仅仅被欲望所驱动，你在某种程度上使自己被奴役。你说，我爱，我必须。这里有什么东西在说，你已经给了你的心，你已经承诺了你的灵魂。这不仅仅是一个鲁莽的冲动。
+
+这是一个特定的承诺。这是一个特定的忠诚。这是对其他神灵的热情。现在这很重要，因为这里圣经说，罪不仅仅是由欲望所驱动。
+
+---
+
+## 罪是致命的吸引力：人人有底线 / Sin as Fatal Attraction: Everyone Has a Bottom Line
 
 It doesn't just tell us that sin is an enslaving power, but it tells us why. And the reason it tells us, this is fascinating. God tells us that the reason that we are under the power of sin is because, listen, sin is a fatal attraction.
 
@@ -210,7 +302,33 @@ Drawing from a series of teachings given at Redeemer, Dr. Keller shows how the r
 
 This newly released book, What Is Wrong with the World, is our thanks for your gift this month to help gospel and life share the good news of Jesus. Request your copy today at gospelandlife.com slash give. That's gospelandlife.com slash give.
 
-Now here's Dr. Keller with the rest of today's teaching. Test yourself for a minute.
+Now here's Dr. Keller with the rest of today's teaching.
+
+---
+
+罪是一种你有目的地做出的选择的欲望。罪是你心甘情愿地放弃对某个东西的真实委托。这就是为什么圣经在这里说，罪不仅仅是一个行为或一个欲望。它是一个誓言，一个承诺，一个背叛。
+
+现在看看第 32 节和 33 节。有多少婚礼誓言呢？就在这个范围内。你说，我爱外国神。
+
+这里，圣经在说，你已经为你自己设定了一个誓言。你给了你的心。你已经真正地致力于另一个。你是不忠的。
+
+但现在圣经变得更加无情。看这个，这个经文现在看起来非常令人震惊。看这个，一个少女忘记她的珠宝，一个新娘，她的婚礼装饰品吗？婚礼珠宝是什么代表？
+
+这代表承诺。这代表爱。这代表背叛。这代表承诺。
+
+这是最亲密、最圣洁、最具约束力的关系。神在这里说什么？神在说，不可能，一个新娘，一个深深相爱的新娘，陷入狂热的承诺，穿着婚礼珠宝，代表她的忠诚，她的诺言，她对她丈夫的承诺。不，她没有忘记。
+
+但你，我的人民，你已经为我做了那个，你已经为我穿上了那个珠宝，你已经为我发誓，你已经承诺了我你的爱，你的忠诚，你的心。但现在你背叛了我。你已经背弃我而去其他神灵。这就是为什么经文这么痛苦。
+
+这就是为什么圣经使用背叛和成人的隐喻。它在说的是，罪不仅仅是一个错误。罪不仅仅是弱点。罪是背叛。
+
+罪是不忠。罪是对一份圣约的破裂。现在，这就是为什么当我们说罪是一种欲望时，我们的意思是欲望，但这是一种自愿承诺的欲望。让我向你解释这如何应用。
+
+---
+
+## 自我检验：你的偶像是什么？ / Test Yourself: What Are Your Lover Gods?
+
+Test yourself for a minute.
 
 For example, is there anything that if you would lose it, you would say, I actually talked about this under a different guys two weeks ago, did we know? Anything that you look at, you say, if I don't have this or if I lose this or if I fail to get it, I die, I have nothing to live for. I must have it.
 
@@ -221,6 +339,46 @@ What would you say if God does this to me, if God lets this happen, then I want 
 The word must. If you use it about anything but God, you're under the power of that thing. Right, look at the bottom, look at your depression, look at your disappointments, look at your anger, look at your worry.
 
 And instead of saying, how can I change my circumstances, you have to say, look, the reason I'm so worried, the reason I'm petrified, the reason I'm so discouraged, is because there's something about which I am saying, I must have it. That's why having these emotions. It's at the bottom of everything.
+
+---
+
+这非常实用。这将改变你如何看待罪。首先，如果罪是一种你自愿致力的欲望，那么当你犯罪时，在某种程度上，你要对此负责。你正在做出选择。
+
+你说，但等等，我被我的欲望所奴役。是的，但你首先志愿放弃对那个欲望的你的心。你不是受害者。你是参与者。
+
+你不是一个无辜的旁观者。你主动搭建了你把自己放入的陷阱。现在，这真的很冒犯，特别是在我们的现代文化中。现代文化想说，你不要为你的事负责。
+
+你是受害者。这是社会压力的问题。但圣经说，不，罪是一种你自愿致力的欲望。你是参与者。
+
+你负责任的。但现在，这也是非常有希望的。这就是为什么。如果你是受害者，如果这一切都不在你的控制之下，那么什么都做不了。
+
+但如果你是参与者，如果你负责任，那么你可以做什么？你可以转身。你可以让你的心回到别的地方。你可以悔改。
+
+你可以做一个新的誓言。你可以把你的忠诚转移到别人身上。第二，如果罪是一种欲望，那就意味着什么。**这意味着你的问题不仅仅在你的行为。**
+
+你的问题不仅仅是你在做什么。你的问题在你的心。你的问题是你希望什么。你的问题是你所爱的。
+
+你的问题是你设置的誓言。你的问题是你的忠诚。现在，这改变了一切。例如，让我们说有人来找我，他们说，我有一个问题。
+
+我是一个谎言者。我一直在说谎。我想停止说谎。如果你只是关注该行为，你会说好吧，停止说谎。
+
+但如果你按照圣经的理解行事，你会说，不，你的问题是你想什么。你的问题是什么事对你有价值。你在说谎，因为有什么东西比真理更对你有价值。可能是你的形象。
+
+可能是你的自我尊重。可能是别人的认可。可能是安全。可能是金钱。
+
+但有一些你爱比你爱真理更多的东西。那是你真正的问题。或者说有人说，我有一个问题，我沉迷于性。如果你只关注该行为，你会说停止看色情。
+
+但圣经说，不，你的问题是什么对你有价值。你想要什么。现在你用来开心的东西对你也有权力。当你追求什么你渴望的东西时，它承诺你快乐，但它所能给予的却要少得多。
+
+所以圣经说，你的问题不仅仅是你的行为。这一切都关乎你的心。你爱什么。你的忠诚在哪里。
+
+现在这给了我们第三个应用。圣经说，在这一章中，耶利米告诉以色列人民，你在你已经做的事情中找不到快乐，你的偶像不能拯救你。在第 28 节，他说，这些神在哪里你为自己制作的？他说，你已经承诺了你的忠诚，你已经给了你的心，但你承诺了什么无法传递的东西。
+
+你对虚假的承诺忠诚。你对无法帮助你的东西忠诚。如果你将你的核心忠诚、你的核心承诺、你的核心爱给任何东西，除了真正的神，你永远不会得到满足。你永远不会被拯救。
+
+---
+
+## 偶像永远让你空虚 / Lover Gods Always Leave You Empty
 
 The bondage of sin, your idle gods, your lover gods will always leave you and slay, but secondly, they will always leave you empty. Look at this passage. Secondly, they will always leave you empty.
 
@@ -298,6 +456,14 @@ How can they help you then? You see, an awful lot of you still are out there say
 
 I don't feel, I don't see any fatal attraction in my life. You see, wait till the trouble comes. Call on your gods then.
 
+---
+
+你所有的替代品，所有你的虚假的神，当事情变得困难时，他们会离开你。所以罪给你承诺的快乐，但所有这一切都是一个谎言。现在，让我就此结束。好消息是什么。
+
+---
+
+## 患难中呼求你的偶像 / When Trouble Comes, Call on Your Gods
+
 I'm going to give you three examples. False gods will never help you. These lover gods will never help you in three situations.
 
 Three, okay? Really bad sickness. Bereavement and death and failure, they'll never do it.
@@ -359,6 +525,22 @@ Because they don't exist. They're an extension of yourself. They're an extension
 You see they have no life in them. They're just stuck. They're just stone.
 
 They'll never help you when your heart is broken. And if you cannot find any comfort when your heart is broken, it's because there's something more God than God in your life. Now lastly, all right.
+
+---
+
+好消息是，除非有人有权来改变你的心，除非有人有权来改变你的忠诚，除非有人有权来改变你的誓言，否则你被困。但是等等。有一个，历史上有一个。有一个他来改变人民的心。
+
+有一个他来给予人民新的誓言。有一个他来扭转人民的忠诚，一个他来买回人民。那个人就是耶稣。耶稣，那是一个男人没有给他的心给除神以外的其他东西的人。
+
+耶稣，那是一个他唯一的欲望是取悦父亲的人。耶稣，那是一个他把他所有的忠诚，他把他所有的承诺都给了他父亲的人。现在，耶稣，那个人来到十字架，他付出了背叛的代价。他支付了不忠的代价。
+
+他支付了罪的代价。他来赎回他的人民，他来改变他们的心。当你通过信仰来到耶稣，当你说，耶稣，我想让你改变我的心，当你说，我想你用你的忠诚来代替我的不忠，当你说，我希望你与你的欲望和你的承诺来代替我的欲望和我的承诺。然后你有一个新的誓言。
+
+你有新的承诺。你有一个新的忠诚。你有一个能够拯救你的，真的，永远爱你的，真的关心你的。你有一个真正的神。
+
+---
+
+## 新妇的妆饰：基督是我们的美 / The Bride's Ornaments: Christ as Our Beauty
 
 These things leave you enslaved and they leave you empty. Well how can we be healed? Wonderful.
 
@@ -463,135 +645,6 @@ To learn more, just visit gospelunlife.com slash partner. That website again is 
 The sermons and talks you hear on the Gospel Unlife Podcast were recorded between 1989 and 2017. Will Dr.
 
 ---
-
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《福音与生活》。有些人说世界的根本问题是贫困。其他人说这是坏制度、教育不足或生物学，但如果这些都不能充分解释我们看到的破碎，无论是在头条新闻还是在我们自己的心中呢？在今天的教学中，提摩太·凯勒观察圣经关于罪的教导如何给我们一个深刻诚实的，但令人难以置信的充满希望的世界观。
-
-我想为你读我们今天上午教学基于的文本。这是耶利米书第 2 章。我们上周开始查看这一章。这是耶利米对犹大人民的第一个讲道。
-
-它关于罪的主题，我们查看了这一章和讲道的第一部分，最后我们这周查看其余的。耶利米书 2 第 19 到 32 节。你的邪恶会惩罚你。你的背弃会指责你。
-
-然后想想并意识到当你抛弃耶和华你的神并对我没有敬畏时，对你来说是多么邪恶和痛苦，耶和华宣称，万军之耶和华。很久以前你打破了你的轭，撕裂了你的债券。你说，我不会侍奉你。实际上，在每一个高山和每一棵树下，你像妓女一样躺下。
-
-我把你种植成优质葡萄酒的选择，坚实可靠的库存。那么你怎样背叛我变成腐败的野生葡萄藤？虽然你用苏打洗自己，使用大量肥皂，你的内疚污渍仍然摆在我面前，宣称耶和华，主权主。你怎样能说，我不是档案，我没有跑过贝尔。
-
-看看你在山谷中的行为，想想你做了什么。你是一只迅速的母骆驼跑来跑去，一只习惯沙漠的野驴，嗅着风，在她的渴望中，在她的热中谁能限制她，以及追求她的电子邮件不需要使自己感到疲劳，他们会找到她。不要跑到你的脚光秃秃的，你的喉咙干燥，但你说，没有用，我爱外国神，我必须追随他们。当被抓住时，小偷被耻辱，以色列人被耻辱。
-
-他们，他们的国王和他们的官员，他们的祭司和他们的先知，他们对木头说，你是我的父亲，对石头说，你给了我出生。他们已经转身背对我，而不是他们的脸，然而，当他们有麻烦时，他们说，来救我们。那么你为自己制作的神在哪里？如果他们能在你有麻烦时救你，就让他们来。
-
-因为你有多少个神，就像你有多少个城镇，哦犹大。为什么你对我提出指控？你们都反叛了我，去清理主。我徒劳地惩罚你的人民，他们没有回应纠正。
-
-你的剑吞噬了你的先知，像一只贪婪的狮子。你这一代考虑主的话。我对以色列来说一直是沙漠还是黑暗之地？为什么我的人民说我们可以自由漫游？
-
-我们不会再来找你。一个少女忘记她的珠宝，一个新娘，她的婚礼装饰品吗？然而我的人民有罪。现在这第 19 节之前，就在它之前，如果你更仔细地看，我们会通过讲道进行分页。
-
-圣经讲道通常会再次回顾他们所说的内容。上周我说，第一，罪是否认。第二，罪特别是否认对神的敬畏。这周我要进行第三点。
-
-第三，罪是一种欲望。让我看看经文说什么。看第 25 节，你说，没有用，我爱外国神，我必须追随他们。这也在第 23 节。
-
-看看你在山谷里的行为。你是一只快速的母骆驼。然后在第 24 节说，一只野驴习惯沙漠，嗅风在她的渴望中，在她的热中谁能限制她。然后在第 33 节，圣经使用了什么动物？
-
-牲畜。母骆驼，母驴。为什么动物？因为他在说什么？
-
-他说，你本质上是由本能和欲望驱动的。你就像一只发烧的动物。你被渴望所控制。你被本能所控制。
-
-一个非常有力的东西，而且非常诚实。他说，罪本质上是什么？罪本质上是由欲望驱动的。现在，我想让你看到这有多么激进。
-
-这与我们现代的想法背道而驰。现代想法是什么？现代想法是你的问题？你太被压制了。
-
-你太克制了。你有太多的禁忌。你有太多的规则。你被强加给你的限制所压制。
-
-如果你能自由地追求你的欲望，你会很好。你会很快乐。你会实现自己。你会自由。
-
-但是圣经说什么？圣经说，不，罪本质上是由欲望所驱动的。不是抑制和禁忌使你被压制。是你的欲望。
-
-这就是压迫你的东西。让我给你一些例子。如果你有一个朋友，这个朋友陷入了毒品滥用的陷阱。现在，如果你问我们现代社会，我们会说，好吧，他或她一定受到了某种社会压力。
-
-也许他们没有足够的自由。他们没有足够的自主权。社会必然压制他们。但通常情况下，毒品滥用者会告诉你，我一点都不自由。
-
-我完全被我对药物的渴望所奴役。我完全被我的上瘾所控制。我不是在表达自我。我被我的欲望奴役。
-
-圣经是对的。不是他们太被压制。他们是欲望的受害者。让我给你另一个例子。
-
-有人，一个有权有势的人，陷入了色情成瘾。他或她是一个权力人。但他们被色情成瘾完全奴役。这个人会告诉你，我不自由。
-
-我完全被欲望所控制。我完全被对色情的渴望奴役。或者考虑一个人，一个聪明的人，可能是一个成功的人，他们沉迷于赌博。他们正在破坏他们的生活，他们的家庭，他们的业务。
-
-他们不是太被压制。他们完全被他们的欲望奴役。所以圣经说，虽然我们的现代思维说，释放你的欲望，你会自由，圣经说不，被欲望驱动，被欲望所奴役。那是罪。
-
-现在，这是最有力的部分。读第 24 和 25 节。一只野驴习惯沙漠，在她的热中嗅着风，谁能限制她？他们追求她不需要使自己疲劳。
-
-她会找到他们。但你说，没有用，我爱外国神，我必须追随他们。现在看看这是怎样的。动物会迷失在欲望的热情中，但最后她寻找它的男性。
-
-但是你，你不仅仅被欲望所驱动，你在某种程度上使自己被奴役。你说，我爱，我必须。这里有什么东西在说，你已经给了你的心，你已经承诺了你的灵魂。这不仅仅是一个鲁莽的冲动。
-
-这是一个特定的承诺。这是一个特定的忠诚。这是对其他神灵的热情。现在这很重要，因为这里圣经说，罪不仅仅是由欲望所驱动。
-
-罪是一种你有目的地做出的选择的欲望。罪是你心甘情愿地放弃对某个东西的真实委托。这就是为什么圣经在这里说，罪不仅仅是一个行为或一个欲望。它是一个誓言，一个承诺，一个背叛。
-
-现在看看第 32 节和 33 节。有多少婚礼誓言呢？就在这个范围内。你说，我爱外国神。
-
-这里，圣经在说，你已经为你自己设定了一个誓言。你给了你的心。你已经真正地致力于另一个。你是不忠的。
-
-但现在圣经变得更加无情。看这个，这个经文现在看起来非常令人震惊。看这个，一个少女忘记她的珠宝，一个新娘，她的婚礼装饰品吗？婚礼珠宝是什么代表？
-
-这代表承诺。这代表爱。这代表背叛。这代表承诺。
-
-这是最亲密、最圣洁、最具约束力的关系。神在这里说什么？神在说，不可能，一个新娘，一个深深相爱的新娘，陷入狂热的承诺，穿着婚礼珠宝，代表她的忠诚，她的诺言，她对她丈夫的承诺。不，她没有忘记。
-
-但你，我的人民，你已经为我做了那个，你已经为我穿上了那个珠宝，你已经为我发誓，你已经承诺了我你的爱，你的忠诚，你的心。但现在你背叛了我。你已经背弃我而去其他神灵。这就是为什么经文这么痛苦。
-
-这就是为什么圣经使用背叛和成人的隐喻。它在说的是，罪不仅仅是一个错误。罪不仅仅是弱点。罪是背叛。
-
-罪是不忠。罪是对一份圣约的破裂。现在，这就是为什么当我们说罪是一种欲望时，我们的意思是欲望，但这是一种自愿承诺的欲望。让我向你解释这如何应用。
-
-这非常实用。这将改变你如何看待罪。首先，如果罪是一种你自愿致力的欲望，那么当你犯罪时，在某种程度上，你要对此负责。你正在做出选择。
-
-你说，但等等，我被我的欲望所奴役。是的，但你首先志愿放弃对那个欲望的你的心。你不是受害者。你是参与者。
-
-你不是一个无辜的旁观者。你主动搭建了你把自己放入的陷阱。现在，这真的很冒犯，特别是在我们的现代文化中。现代文化想说，你不要为你的事负责。
-
-你是受害者。这是社会压力的问题。但圣经说，不，罪是一种你自愿致力的欲望。你是参与者。
-
-你负责任的。但现在，这也是非常有希望的。这就是为什么。如果你是受害者，如果这一切都不在你的控制之下，那么什么都做不了。
-
-但如果你是参与者，如果你负责任，那么你可以做什么？你可以转身。你可以让你的心回到别的地方。你可以悔改。
-
-你可以做一个新的誓言。你可以把你的忠诚转移到别人身上。第二，如果罪是一种欲望，那就意味着什么。**这意味着你的问题不仅仅在你的行为。**
-
-你的问题不仅仅是你在做什么。你的问题在你的心。你的问题是你希望什么。你的问题是你所爱的。
-
-你的问题是你设置的誓言。你的问题是你的忠诚。现在，这改变了一切。例如，让我们说有人来找我，他们说，我有一个问题。
-
-我是一个谎言者。我一直在说谎。我想停止说谎。如果你只是关注该行为，你会说好吧，停止说谎。
-
-但如果你按照圣经的理解行事，你会说，不，你的问题是你想什么。你的问题是什么事对你有价值。你在说谎，因为有什么东西比真理更对你有价值。可能是你的形象。
-
-可能是你的自我尊重。可能是别人的认可。可能是安全。可能是金钱。
-
-但有一些你爱比你爱真理更多的东西。那是你真正的问题。或者说有人说，我有一个问题，我沉迷于性。如果你只关注该行为，你会说停止看色情。
-
-但圣经说，不，你的问题是什么对你有价值。你想要什么。现在你用来开心的东西对你也有权力。当你追求什么你渴望的东西时，它承诺你快乐，但它所能给予的却要少得多。
-
-所以圣经说，你的问题不仅仅是你的行为。这一切都关乎你的心。你爱什么。你的忠诚在哪里。
-
-现在这给了我们第三个应用。圣经说，在这一章中，耶利米告诉以色列人民，你在你已经做的事情中找不到快乐，你的偶像不能拯救你。在第 28 节，他说，这些神在哪里你为自己制作的？他说，你已经承诺了你的忠诚，你已经给了你的心，但你承诺了什么无法传递的东西。
-
-你对虚假的承诺忠诚。你对无法帮助你的东西忠诚。如果你将你的核心忠诚、你的核心承诺、你的核心爱给任何东西，除了真正的神，你永远不会得到满足。你永远不会被拯救。
-
-你所有的替代品，所有你的虚假的神，当事情变得困难时，他们会离开你。所以罪给你承诺的快乐，但所有这一切都是一个谎言。现在，让我就此结束。好消息是什么。
-
-好消息是，除非有人有权来改变你的心，除非有人有权来改变你的忠诚，除非有人有权来改变你的誓言，否则你被困。但是等等。有一个，历史上有一个。有一个他来改变人民的心。
-
-有一个他来给予人民新的誓言。有一个他来扭转人民的忠诚，一个他来买回人民。那个人就是耶稣。耶稣，那是一个男人没有给他的心给除神以外的其他东西的人。
-
-耶稣，那是一个他唯一的欲望是取悦父亲的人。耶稣，那是一个他把他所有的忠诚，他把他所有的承诺都给了他父亲的人。现在，耶稣，那个人来到十字架，他付出了背叛的代价。他支付了不忠的代价。
-
-他支付了罪的代价。他来赎回他的人民，他来改变他们的心。当你通过信仰来到耶稣，当你说，耶稣，我想让你改变我的心，当你说，我想你用你的忠诚来代替我的不忠，当你说，我希望你与你的欲望和你的承诺来代替我的欲望和我的承诺。然后你有一个新的誓言。
-
-你有新的承诺。你有一个新的忠诚。你有一个能够拯救你的，真的，永远爱你的，真的关心你的。你有一个真正的神。
 
 那是好消息。现在，如果你处于那个位置，如果你通过信仰来到耶稣，现在让我说，你应该期望什么。首先，你应该期望一个旅程。当你变成一个基督徒时，是的，你得到了一个新的誓言。
 

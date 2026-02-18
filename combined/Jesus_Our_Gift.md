@@ -4,45 +4,19 @@
 
 ---
 
-Welcome to gospel in life. Who is Jesus? The Bible says He's fully God, the creator of the universe, and at the same time, fully human.
+## 最好礼物的三个特质 / Three Qualities of the Best Gifts
 
-Lose one of those and you lose Christianity. Join us for today's podcast where Tim Keller explores the person and promises of Jesus Christ. One verse and a place in the scripture that you usually don't read from on Christmas, but it's a great Christmas verse.
-
-It's Romans 8.32. I'm just going to read one verse and I'll read it twice. It's not printed in the bulletin.
-
-Everything else in the Bible is printed in the bulletin, but not Romans 8.32. And that's where Paul writes, he who did not spare his own son but gave him up for us all. How will he not also along with him graciously give us all things?
-
-He who did not spare his own son but gave him up for us all. How will he not also along with him graciously give us all things? That's God's word.
-
-It's a Christmas time that we give gifts. In fact, it's the only holiday in which we do all this gift giving. It's the reason why retailers are so happy with Christmas in a way they're not happy with 4th of July, for example, or Easter.
-
-You see, at the other holidays, we don't give gifts. In fact, even at birthdays and weddings and anniversaries, we all give gifts to one, but at Christmas, we all give gifts to all. Why do we do that?
-
-It's a great custom because what it does is it takes and you might say incarnates, it acts out the central event of Christmas. The central event of Christmas is that Jesus Christ was not just born. Jesus is the one great person who wasn't simply born.
-
-The teaching of the Scripture, the teaching of the Bible, of course, is that he had an existence before he was born. Therefore, Jesus was not just born, he was given to us. He's the gift that Christmas is about.
-
-And you see what Paul says, he who did not spare his own son but gave him up for us all. How will he not also along with him graciously give us all things? This is the one gift.
-
-If you have it, you have all the other gifts. That's what Paul's saying. This is the one gift.
-
-If you reject it, you lose all other gifts. That's what Paul's saying. This is a theme of the Bible, you know, there are some other Christmas passages to talk about this.
-
-For example, Isaiah, chapter 9, which of course the Messiah, it's one of the texts in which the Messiah is based, four unto us, a child is born, unto us the Son is what? You heard it? Given.
-
-The gift, John 3.16, God sort of the world that he gave, his only begotten Son. Here we have Paul saying, God did not spare his own son but gave him up for us all. And therefore, as Paul says elsewhere, Jesus Christ is the inexpressible gift.
-
-Inexpressible he says, thanks be to God for his inexpressible gift. Now, all I'd like to do tonight is I'd like to, in a sense, meditate on what that means. Jesus has got many names, there's many metaphors used in the Bible to explain who he is.
-
-Because Jesus Christ is really like a diamond, you pick the diamond up a great diamond and you turn it in the light and facet after facet hits your eyes and flashes at you. And you can go on and on forever and not see everything through every facet of a diamond, you can see the whole. Every facet shows you every other facet through the one.
-
-Then you can turn it and then you can see that facet through another one. Everyone shows you the whole only in a different way from another perspective. And to really see the glory of a great stone, you need to keep turning it and turning it.
-
-Now tonight, we'll just take a look at this. I would like to look at Jesus through this idea of him being a gift. What are the qualities of a gift?
-
-What is a gift? What should a gift be? Now I'd like to just point out three things, just point out three things that gifts are, and therefore Jesus is.
+Now I'd like to just point out three things, just point out three things that gifts are, and therefore Jesus is.
 
 And by thinking about Jesus as a gift, I think we'll come to understand better who he is and how we should relate to him. Now first of all, now I'm not saying all gifts have these three qualities, but the best gifts do. And therefore what's essential to being a gift has a great deal to do with these three facets, so these three qualities are traits.
+
+---
+
+现在我只想指出三点，这三点就是最好的礼物所具备的特点，因此耶稣也具有这些特质。通过思考耶稣作为礼物的意义，我认为我们会更好地理解他是谁以及我们应该如何与他相处。首先，我不是说所有礼物都具备这三个特点，但最优秀的礼物确实具备这些特点。所以，构成礼物本质的三个方面正是这三点特征。
+
+---
+
+## 礼物是惊喜 / Gifts Are Surprises
 
 Number one, gifts are surprises, a good gift, the best gifts are unexpected. They're a surprise. Now it doesn't mean that all gifts have to be a surprise, and some great gifts sometimes are not a surprise, but the power and the delight.
 
@@ -70,6 +44,28 @@ You haven't even rejected Him because you haven't rejected the real Jesus. Let m
 
 When He was here on earth, remember not many. When He called all of His apostles and disciples and followers together to get together after He was gone, they all got together in the upper room, there was only 120 of them. So by and large He was rejected, only a few really received Him.
 
+---
+
+1. 礼物是惊喜，最好的礼物往往是意想不到的。它们是一种惊喜。当然，并不是所有的礼物都必须是惊喜，有时候一些很棒的礼物并不是意外得到的，但这种惊喜和喜悦感更加强烈。当礼物不期而至时，它的魔力和愉悦感会大大增强。
+
+而惊喜这个词本身就意味着你没有预料到。所以，一个刚刚收到伟大礼物的人最典型的语言就是：“我没有想到。”“我甚至都没有期待过它，但它正是我所需要的。” 我没有想到，我没有寻找过，它也没有在我的清单上，但现在看到它，当然，为什么我没有想要它？
+
+为什么不向别人要呢？它是完美的，非常感谢。不仅体验到这样的礼物很棒，而且能够给他人送这样一份惊喜的礼物也很棒。你没有想要它，也没有期待过它，但它正是你需要和想要的东西。
+
+我向你们提出一个观点：你可以通过这一点来区分**真正的基督徒——那些真正经历了基督转化的人，与那些只是**有形式宗教、仅仅表现出道德善良而没有经历基督深刻转变的人。**真正的基督徒，那些以鲜活的方式体验过基督的人，总是**会有同样的感受。他们的生命中有一个转折点，他们可以在自己的经历中找到一个可以回顾的时刻，可能是上周、上个月、去年或者十年前，但你知道，在某个时间点你认为自己已经完全了解了耶稣，但实际上当你遇见祂时，你的理解发生了革命性的变化。你可能是在教会长大的，也可能一生都在阳光学校里度过。
+
+你以为自己对这一切都了如指掌。一个基督徒总是那些对耶稣的理解被彻底改变的人，因为当你真正遇见祂的时候，你会说：“这完全不是我想象中的。”“这完全不是我想要的，但如今我有了，这才是我真正需要的。”是的，耶稣是一个礼物，所以祂总是一个惊喜。
+
+你能够感受到你遇见了祂的方式就是——你被震惊、被惊异。你知道，你的期望被祂打破了。这样的事情发生在你身上了吗？如果没有发生过，如果从未发生过，那你甚至都没有遇见祂。
+
+你没有拒绝祂，因为你还没有拒绝真正的耶稣。让我来告诉你为什么圣经这样说，在我们今天读到的一段经文中提到：“祂来到自己的地方，自己的人却不接受祂。”很多人接受了祂，但不多。当祂在地上时，记得当时并不多人接受祂。
+
+当祂离开后召集所有的使徒、门徒和跟随者一起聚会时，他们聚集在上层房间里，只有120个人。所以总的来说，祂被拒绝了，真正接纳祂的人很少。
+
+---
+
+## 人们为何拒绝真正的弥赛亚 / Why They Refused the Real Messiah
+
 Why? The answer is He did not meet the expectations of people who expected a Messiah, they expected a certain kind of person. He came and He said, I'm the Messiah.
 
 Well, they had their expectations and He didn't meet those expectations. And the reason they missed Him was they refused to be surprised. They refused.
@@ -89,6 +85,28 @@ He never becomes an influential person, he just wanders around. And what does he
 And everybody said, this is the Messiah, forget it. This couldn't be the Messiah. This is supposed to be the one who's going to save us.
 
 The one who's going to deal with our problems couldn't be. And so, the only people that received Him were the people, those few, who are willing to let their expectations be shattered. Who are willing to listen to Him and say, oh my, this isn't at all what I expected, but He's exactly what I need.
+
+---
+
+为什么呢？答案是因为人们期待的弥赛亚与耶稣不符。
+
+他们期望的是一个特定类型的人物——弥赛亚必须是一个政治领袖，必须是有权势、有影响力的人，能够真正做成事情的人。因为你看，那些人说：“我们受制于罗马人的压迫之下。” 你知道吗？当耶稣来的时候，人们期待的是一位政治领袖，一位有权势的人，能真正解决问题的人。
+
+但耶稣却没有满足他们的期望。他们之所以错过了祂，是因为他们拒绝被惊喜，拒绝把耶稣看作是一个礼物。弥赛亚是礼物，而礼物总是会打破你的预期。那么，他们到底期望的是什么呢？
+
+他们期待的是一位弥赛亚，但这位弥赛亚必须是政治领袖，一位有影响力的人，能够真正解决问题的人。因为当时，祂自己的子民说：“我们受制于罗马人的压迫之下。” **我们需要一个能解决问题的人，能把压在我们身上的靴子踢开。**于是，耶稣出现了。
+
+人们期待弥赛亚会说：“那些人是问题，我们要解决他们。” 相反，弥赛亚来了却说：“悔改。”耶稣出来就说：“悔改。” 他拒绝卷入政治。
+
+事实上，他出生在一个贫穷家庭的偏远地区，只是一个无助的婴儿。他从未获得过任何重要的关系或影响力。他只是四处游荡。他都说了些什么？
+
+如果你读福音书，你会发现他在世时教导的一切总结起来就是“悔改”。所有人都说：“这是弥赛亚，不行。”这不可能是弥赛亚。“我们要解决的问题的人”不可能是他。
+
+因此，只有那些愿意打破自己的期望、愿意听他的话并说“哦，我的天，这不是我想象中的样子，但他正是我所需要的"人才会接受他。
+
+---
+
+## 问题在你自己，不在别人 / The Problem Is You, Not Them
 
 Now, let me get real personal at this point. The average person, and plenty of you who are Christians know that you started out this way too. Why did you start coming back to church?
 
@@ -144,6 +162,44 @@ They either loved him and threw down their lives and did anything for him and fo
 
 You've never really seen what he does. He's a surprise because he's a gift. He's the inexpressible gift because he's surprised you.
 
+---
+
+现在让我变得非常个人化一点。普通人，包括你们中许多基督徒都知道，你们当初也是这样开始的。为什么你会重新回到教堂？
+
+我遇到很多在纽约的基督徒或曾经离开教会很久的人，他们为什么会重新回来？为什么会再次寻求？为什么会开始阅读和思考？因为他们都在寻找另一种弥赛亚。
+
+你说：“我的事业停滞了，我需要一个有权力的人来打破僵局。”或者“我有点孤单，需要一段关系”，或者“我有问题，需要有人为我解决。”生活中有困难，有人曾虐待你、压迫你或让你处于不利地位。我没有晋升，我有需求，我有希望。
+
+我需要一个能够进入我的生活、处理那些事情的神。你们就像那个时代拒绝他的人一样。他们寻找的是有势力的弥赛亚。但关于弥赛亚，这里有一个出乎意料的地方。
+
+关于他的地方，这里有一个颠覆我们认知的东西。我们都认为自己的问题都是因为外面的人。是他们的错。拥有权势的人是问题所在，而没有权势的人则是受害者。
+
+那些人不积极也不守法，他们拖累了我们。而那些没有的人则说问题在于有的人。他们互相帮助进入正确的俱乐部和董事会，并不愿意分享权力和财富。我们会从他们那里得到这一切的。
+
+所以大家都认为有人可以解决那个群体或外部力量的问题，世界就会变得好起来。但马利亚里的弥赛亚总是来告诉我们：悔改。**这意味着你的问题不在外面，而在里面。****真正的弥赛亚告诉你：真正的问题是**你自己，而不是别人。
+
+这就是为什么第一次他们拒绝他的原因——他们以为弥赛亚会说：“是他们的错。” 而**真正的弥赛亚来了，却说：“悔改，你们才是**问题。” 几年前，G.K. 背斯廉，这位伟大的文学家无法抗拒，在英国一家当时正在连载一系列关于“当今世界的问题”的文章和评论的报纸上写了一封短信。他写道： 亲爱的，你知道，时代的问题就是我。
+
+世界的问题是科学和严肃地，G. K. 背斯廉没有错，他确实说出了真相：问题在于我们自己。K. 背斯朋。而任何真正见过基督的人都是这样认为的。任何人如果真的见过基督，就知道这一点。
+
+你生命中最大的问题，世界最大的问题，就是你内心中的自私。是你内心的自我中心，是你内心的缺陷和自欺。是你的罪。如果你中有谁说，我根本不想听这种原始且下流的言论，那很好，因为你还没有见过耶稣。
+
+这不是我要表达的意思。**真正的基督总是**会给你带来震撼，并且真正基督徒与道德上体面的人之间的区别就在于此。基督徒是那些真正遇见了耶稣并且他的理解被彻底改变的人。他不是他们所期望的样子。
+
+如果你今天认为悔改是你生命中最需要的，那就去悔改吧。如果你不知道这一点，那你就还没有接受这份礼物，因为一个基督徒就是会说“悔改”的人。多年后，我们可能会说，“我从未想过这个问题，也从没要求过它。”这不是我想要的礼物，但现在我发现这才是我真正需要的。
+
+这在你身上发生过吗？你是否曾经对基督有这种意识上的转变？你见过这样的改变吗？要知道，如果没有经历过这些，你就还没有遇见他。
+
+这就是我要表达的意思。顺便说一句，这也可能意味着你甚至没有拒绝真正的耶稣。因为真正的耶稣基督，没有人会以一种随意的态度对待他。如果你说，“我喜欢他说的很多东西，但很难知道他所说的全部。
+
+”如果你对他有一种随意的态度，那么当你读圣经时，你会发现没有人是这样的。真正见过耶稣的人没有任何人是以一种随意的态度去面对他的。要么他们爱他，为他献出一切，并跟随他；要么他们恨他，试图杀死他；要么他们害怕死亡，想要远离他。如果你既不害怕他也不恨他，也没有真心地爱他，那么你从未遇见真正的耶稣，也从未真正看到过他所宣称的一切。
+
+你从没真正见过他所做的一切。他是个惊喜，因为他是礼物。他是难以言表的礼物，因为他让你感到意外。其次，我将简要说明这一点，但我觉得有必要提及。
+
+---
+
+## 礼物可能令人不悦 / Gifts Can Be Insulting
+
 Secondly, and I'll be a little more brief on this, but I think it's fair to say, not all gifts are like this, but I think we need at least touch on it. Secondly, in certain contexts, gifts can be insulting. We said gifts are always surprising.
 
 Sometimes gifts are insulting. Well, it depends on the gift, you know. I'll tell you, let me give you a great example of where it might happen.
@@ -174,9 +230,45 @@ In his book, The prodigal God, Tim Keller shows how this well-known story reveal
 
 Request your copy today at gospelandlife.com slash give, that's gospelandlife.com slash give. Now, here's Dr. Keller with the rest of today's teaching.
 
+---
+
+不是所有的礼物都是这样的，但我认为我们至少需要提到这一点。其次，在某些情况下，礼物可能会令人不悦。我们说过，礼物总是令人惊讶的。有时候礼物会让人不悦。
+
+这要看是什么样的礼物了。让我给你举一个很好的例子来说明这种情况。你即将拿到工资，而你的雇主拿着你的工资说：“是的，这是你的。” 通常来说，我们会每个月或每两周收到一次工资。
+
+但我要告诉你，在这个特定的薪资周期里，这是我送给你的礼物。圣诞快乐。你知道，这会是一个侮辱。绝对是一个侮辱，因为你认为自己在工作。
+
+如果雇主说“圣诞快乐，这是礼物”，他在说什么？他在说什么？告诉你吧，雇主的意思是，你并不配得到这笔钱。因此，这就是一个礼物。
+
+现在，礼物可能会令人不悦。让我再说一遍，并且建议你们，耶稣基督的礼物不仅是惊喜，而且总是侮辱，永远都是。因为你看，大多数人都觉得自己已经尽力了。如果你是一个宗教人士，有很多人会告诉你，如果问他们是否相信天堂，他们会说：“是的。
+
+” 你再问他们为什么认为自己能去那里，他们会说：“我在努力。” 你是怎么努力的？我尽力做好事。我尽力过好生活。
+
+我尽力达到那个目标。我认为我的表现至少和很多人一样好，甚至可能比大多数人更好。即使你不信仰宗教，你的态度也是一样的。你会说：“我知道有一种精神现实存在，并且尽我所能去尊重它。
+
+” 我在努力接近它。我在尽力成为一个善良、仁慈、正直的人。我尽力做到最好。福音的核心在于，你们错了，你们自我欺骗了。
+
+唯一通往上帝的道路，唯一的永生之路，唯一能够与上帝连接的方式，都是完全的恩赐。你可能知道浪子回头的故事，但这不仅仅是关于一个离家出走的小儿子。事实上，耶稣讲这个故事是为了向那些远离上帝的人和那些试图通过做好事来赢得祂爱的人传达信息。在《浪子的神》这本书中，蒂姆·凯勒展示了这个广为人知的故事揭示了福音的核心——对叛逆小儿子和苛责大儿子的信息都是希望的宣告，并且邀请所有人体验上帝慷慨、无尽的恩典。
+
+无论你是基督徒还是还在探索信仰，读《浪子的神》都能帮助你以全新的方式看待与基督的关系。《浪子的神》是我们感谢您本月对福音和生命分享基督仁慈不懈之爱所带来的希望和喜乐的支持。今天就访问 gospelandlife.com/give 获取您的副本吧。现在，请听蒂姆·凯勒博士继续今天的教导。
+
+---
+
+## 无人能赚取，无人配得上 / No One Earns It, No One Deserves It
+
 No one earns it, no one deserves it. I tell you, I don't know why because I'm not much of a confrontor, really, but I used to spend a lot of time in my first church back in Virginia. We had a lot of elderly people in the town, like a lot of small towns, a lot of elderly people in our church, and I went to see a lot of people in their deathbeds, and what amazed me, how often they would say they would be willing to say they were scared, and I would say, what are you anxious about, and so often, so often, those folks would say, I don't know, I don't know, I've tried my best, I've tried my best to be a good mother, I've tried my best to be a good father, I've tried my best, you know, what they're saying is, I don't know if I'm ready to die, I'm anxious about it, I think I've tried my best, I think I've tried my best to be good, and I don't like to confront people, but I used to say back then, I said, well, no one do your anxious, no one's ever done their best in neither of you.
 
 And that usually opened up into this whole theme, the Christian message, the heart of the Christian message is salvation, whatever you want to call it, eternal life, whatever you want to call it, spiritual reality, connection with God, connection with the divine, must be a gift from God to you, it cannot be an attainment from you toward him, impossible. That's the essence, and that is where Christianity diverges from every other religion, every other religion. It says, you've never done your best, no wonder you're anxious, and you'll always be anxious until you see the giftness of Jesus Christ, He's a gift.
+
+---
+
+没有人能赚到它，也没有人配得上它。我告诉你们，我不知道为什么，因为我并不是一个喜欢冲突的人，但我在弗吉尼亚的第一家教会度过了很多时间。那个小镇有很多老年人，我们教会也有很多老人，所以我经常去看望那些病床上的人。让我惊讶的是，他们中很多人会说他们害怕死亡，我会问他们害怕什么，而他们常常回答：我不知道，我尽力了，我尽力做一个好母亲/父亲，我尽力了……他们在说，我不确定自己是否准备好面对死亡，我很焦虑，我认为我已经尽力做好人了，但我不喜欢和人冲突，但我那时常说：你们不用焦虑，没有人能真正尽到自己的责任。
+
+这通常会引出一个主题——基督教的信息。基督教的核心信息就是救赎，无论你叫它什么，永恒的生命，灵性的真实，与神的联系或与神圣的连接，这一切都必须是来自上帝的恩赐，而不是你自己向他追求的结果，这是不可能的。这就是基督教与其他所有宗教的区别所在。其他宗教都说：你们从未尽到自己的责任，难怪你们会焦虑，直到你看到耶稣基督的恩赐，祂就是恩赐。
+
+---
+
+## 恩典比道德主义更包容 / Grace: More Inclusive Than Moralism
 
 We talked about it this morning, you know, under a different heading, but it's good to mention it again. People, so many people, are irritated with the only wayness of Christianity, irritated by the fact that Jesus says, I am the way, the truth, and the life, no one comes to the father but by me. And so people feel like, oh, that sounds too exclusive, and so people usually respond by saying something like this, well, they said, yeah, that's how you Christians believe I know, but I believe that anyone who is good, and anyone who is moral, and anyone who is diligent, and anyone who is loving can reach God.
 
@@ -242,186 +334,7 @@ You yourself are trying to earn your way into something. You've all got your own
 
 And yet Paul says, before God, your righteousness is a filthy rag, only in Christ are you made unto God, righteousness and wisdom and sanctification and redemption? Do you understand that Jesus is a gift? He's an insulting gift.
 
-Now, lastly, we said, Jesus is a gift, that means he's a surprise, as he surprised you. Jesus is a gift, and that means actually he's insulting, because you've got to see that what he offers is a gift, it's not something you can earn. But thirdly, lastly, Jesus Christ is immensely valuable, all gifts, really great gifts.
-
-You look at them, you know, the best gifts are the gifts that you look at and you say, I never, ever would have bought this for myself. In fact, the best gifts are the ones in which you realize I never, ever could have bought this for myself. I couldn't have afforded this.
-
-This is wonderful, you say. Those are the best gifts. They're surprising, but they're also tremendously valuable and you look at them and the joy just wells up the more you're able to appreciate, the more you're able to see the value of it.
-
-What have you got in Jesus? You've got God with us. You have Emmanuel as you were singing.
-
-You know, I wonder, think of it this way, the first person to ever ask for God to be with him, to really be with him, was Moses. The first person to ask for Emmanuel, which is the Hebrew word that means God with us. Jesus Christ is God come to be with us, come near.
-
-Now the first person to ever ask for that was Moses, Moses. And he said, I don't want to lead the people into the promised land unless you come with us, unless you be with us. Now what did God do?
-
-I want your presence, said Moses. Now you know, modern people have no idea how valuable the presence of God is because we've trivialized it. So you can't understand this, what a valuable gift it is because Moses said, I want your presence.
-
-I want your face. I want to be with you. Now what did God say to Moses?
-
-He said, of course, sure. Why? I'm always close to anyone.
-
-You know, was God a sort of warm fuzzy? Did God like ET? Did he come around Moses and hug him and then say, put his finger on his forehead and say, I'll be right here, I'll always be with you.
-
-You know, no. What did God say to Moses? He says, I can't come with you, it'll kill you.
-
-I can't be with you, it will kill you. See, Moses understood the value of what we got at Christmas. Moses asked for the presence of God.
-
-Now modern people can't understand why God would say such a thing, they can't understand it because they have no concept of the majesty of God, no concept of all. People who have really gotten close to God have begun to move in, they begin to realize how traumatic the presence of God is. His hugeness makes us feel little.
-
-His purity makes us feel dirty, his permanence makes us feel temporary, his depth makes us feel shallow, and the closer we get to him, the more we see what a towering tower of purity and power he is, the more traumatized we are. You know, some weeks ago, we talked about this, when human beings even get near moral human moral excellence, relative, imperfect human moral excellence, we're threatened. I told you about a couple of weeks ago, a Christian cop who stopped taking bribes, but a Christian businessman had started to actually report his income on his taxes.
-
-About a Christian woman who was in a government agency and she started to really work very, very hard in her department and around her and around the businessman and around the cop, people got unbelievably threatened. Do you know how bad you're going to make us look? When we even get close to human moral excellence, imperfect human moral excellence, we're traumatized.
-
-What do you think it's like to actually dwell in the presence of the perfectly thrice holy God, holy, holy, holy. See, Moses understood what he was asking for and Moses understood why God says, it would kill you. You can't.
-
-Do you understand this? And now let's shift forward to Christmas and suddenly you know what's given to us at Christmas? A baby.
-
-You know up until, if you go through the Bible, up until Christmas, the first Christmas, what you have, whenever God appears visibly, they're called theophonies, whenever God appears visibly, it's an incredibly intimidating form. You have, he appears as a smoking furnace to Abraham. He appears as a burning tree, you know, blazing tree to Moses.
-
-He appears as a tornado to Job. He appears as a pillar of fire to the children of Israel. He appears as chicana brightness, glory coming down to the temple so nobody could even stand up, intimidating, you see.
-
-But suddenly he appears as an infant. An infant, you know, there is nothing more accessible than an infant. One of the great things about having an infant of your own is they're totally open to you.
-
-Absolutely open, you can always hug, you can always kiss. As soon as they get to be two, three, four, barriers start to go up. They become their own persons, you know, and that's all very right.
-
-But for the purposes of the illustration, an infant is absolutely the most accessible thing possible. So accessible, so intimate, so completely open to you. God, this is what Christmas is about, the gift, God, this God, the holy God, this God, with all of his boundless glory, beauty beyond bearing, with unassailable majesty, this God has become an infant.
-
-How is that possible? He became vulnerable so he could die on the cross, so the barriers between us could come down so that we could actually have access to God, we could have him come into our life, we could come into his presence, we could have God with us. You sang Emmanuel tonight.
-
-You talk about God with us, you sing about it, you know, in the Christmas carols. Do you know the value of this gift? If Moses was here, and he heard us singing about Emmanuel, and then if he heard, or if he read in 2 Corinthians 3 where Paul says, we are not like Moses, we are not like Moses.
-
-Before Moses had to put a veil over his face, but in Christ the veil was taken away. For God made his light to shine into our hearts to give us the light of the knowledge of the glory of God in the face of Jesus Christ. And Moses would be jumping up and saying, do you people understand the light of the knowledge of the glory of God, God with us, the presence of God?
-
-Do you understand the value of the gift? Are you filling your mind with the value of the gift? If you're bored tonight and you're a Christian, if you're having trouble with self-control tonight and you're a Christian, if you're discouraged tonight and you're a Christian, you have lost the sense of the value of the glorious thing that lives inside of you.
-
-Because Jesus Christ broke the barrier, when you receive Christ, you receive Christ, He comes in, His nature, His power, His life comes in, His very presence comes in, and slurs to slowly transform you. Have you lost sight of that? Jesus Christ is the most valuable gift of all, something you never could have afforded yourself.
-
-Do you know Jesus as the gift? Thanks be to God for His inexpressible gift. Let's pray.
-
-Thank you, Father, that you are a God who enables us and allows us to come into your presence as a gift. We pray that you would help us see that we can trust you. For if you did not spare your own son, how should we fail to trust you for everything else?
-
-You're going to give us anything we need. So we pray, Lord, that you will help us to see that in Jesus Christ we have all the gifts we need. And I pray that the words that we looked at tonight and the teaching and the truths that we looked at tonight would be applied by your spirit to every person here individually, that no one would leave without having a deeper understanding and a desire to drink deep, to look even more deeply into the wonders of this inexpressible gift Jesus Christ and whose name we pray.
-
-Amen. Again, it's all at gospelandlife.com. You can also stay connected with us on Facebook, Instagram, YouTube, and X.
-
-Today's sermon was recorded in 1993. The sermons and talks you hear on the Gospel and Life podcast were recorded between 1989 and 2017, while Dr.
-
 ---
-
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到生命中的福音。耶稣是谁？圣经说他是全然的神，宇宙的创造者，同时又是完全的人。失去其中任何一个，基督教就会失去其核心。
-
-今天，我们一同聆听蒂姆·凯勒探讨耶稣基督的身份与应许。这节经文是罗马书8章32节，我将读两遍，但这个章节没有印在讲道单上。圣经的其他部分都印在讲道单上了，唯独罗马书8章32节没有。在这段保罗写道：他不但舍了自己的儿子，并且为我们众人把他赐给我们。
-
-既然神这样爱我们，将来他向我们所显的恩典更不必说了。他不但舍了自己的儿子，并且为我们众人把他赐给我们。既然神这样爱我们，将来他向我们所显的恩典更不必说了。这是神的话语。
-
-圣诞节是一个送礼物的时间。事实上，它是我们唯一一个全民都在交换礼物的节日。这也是零售商们对圣诞节如此兴奋的原因之一，而不像4月4日或者复活节那样激动。你看，在其他节日里，我们并没有互相赠送礼物的习惯。
-
-甚至在生日、婚礼和周年纪念日时，我们也只给特定的人送礼物。但在圣诞节，我们却会给所有人送礼物。为什么我们会这样做呢？这是一个很好的传统，因为它实际上演绎了圣诞节的核心事件。
-
-圣诞节的核心事件是耶稣基督不只是降生。耶稣不仅仅是一个出生的伟大人物。圣经的教导告诉我们，他在出生之前就已经存在了。因此，耶稣不仅是降生，而是被赐给我们的礼物。
-
-这就是圣诞节所要表达的礼物。你看保罗怎么说：他不但舍了自己的儿子，并且为我们众人把他赐给我们。既然神这样爱我们，将来他向我们所显的恩典更不必说了。这是唯一的礼物。
-
-如果你有这个礼物，你就有所有其他的一切。保罗就是这么说的。这是一份特殊的礼物。如果你拒绝了它，就失去了所有其他恩赐。
-
-保罗就是这样说的。这在圣经中是一个主题，你知道，在圣诞节的一些经文中也会谈到这一点。比如以赛亚书第9章，当然这是关于弥赛亚的一段经文，其中有一句著名的预言：“为使我们增添光耀，有一个婴孩为我们而生；为使我们得着权柄，这婴孩就是谁？你听到了吗？
-
-是赐予的。” 礼物，就像约翰福音3:16所说，神赐给我们这个世界的唯一爱子。在这里，保罗说：神没有留下自己的儿子，反而把他交了出来。因此，正如保罗在别处所说的，耶稣基督是无法言喻的恩赐。
-
-无法言喻，感谢神赐予我们这无法言喻的恩赐。今晚我想做的只是，从某种意义上来说，思考一下**这意味着什么。**耶稣有很多名字，在圣经中也有很多比喻用来解释他是谁。因为耶稣基督就像是钻石，你拿起一块大钻石，在光线下转动它，每一片切面都映入眼帘，闪烁着光芒。
-
-你可以不断地转动它，永远也看不完每一个切面，但你能看到整个钻石的全貌。每个切面都会从不同的角度展示出其他切面。然后你再转到另一个切面，每个切面以不同方式、从不同视角展示了整体。要真正看清一块大宝石的光辉，你需要不断地转动它。
-
-今晚我们就来探讨一下这个主题。我想通过耶稣是礼物这一概念来看他。那么，什么是礼物？什么样的礼物才是好的？
-
-现在我只想指出三点，这三点就是最好的礼物所具备的特点，因此耶稣也具有这些特质。通过思考耶稣作为礼物的意义，我认为我们会更好地理解他是谁以及我们应该如何与他相处。首先，我不是说所有礼物都具备这三个特点，但最优秀的礼物确实具备这些特点。所以，构成礼物本质的三个方面正是这三点特征。
-
-1. 礼物是惊喜，最好的礼物往往是意想不到的。它们是一种惊喜。当然，并不是所有的礼物都必须是惊喜，有时候一些很棒的礼物并不是意外得到的，但这种惊喜和喜悦感更加强烈。当礼物不期而至时，它的魔力和愉悦感会大大增强。
-
-而惊喜这个词本身就意味着你没有预料到。所以，一个刚刚收到伟大礼物的人最典型的语言就是：“我没有想到。”“我甚至都没有期待过它，但它正是我所需要的。” 我没有想到，我没有寻找过，它也没有在我的清单上，但现在看到它，当然，为什么我没有想要它？
-
-为什么不向别人要呢？它是完美的，非常感谢。不仅体验到这样的礼物很棒，而且能够给他人送这样一份惊喜的礼物也很棒。你没有想要它，也没有期待过它，但它正是你需要和想要的东西。
-
-我向你们提出一个观点：你可以通过这一点来区分**真正的基督徒——那些真正经历了基督转化的人，与那些只是**有形式宗教、仅仅表现出道德善良而没有经历基督深刻转变的人。**真正的基督徒，那些以鲜活的方式体验过基督的人，总是**会有同样的感受。他们的生命中有一个转折点，他们可以在自己的经历中找到一个可以回顾的时刻，可能是上周、上个月、去年或者十年前，但你知道，在某个时间点你认为自己已经完全了解了耶稣，但实际上当你遇见祂时，你的理解发生了革命性的变化。你可能是在教会长大的，也可能一生都在阳光学校里度过。
-
-你以为自己对这一切都了如指掌。一个基督徒总是那些对耶稣的理解被彻底改变的人，因为当你真正遇见祂的时候，你会说：“这完全不是我想象中的。”“这完全不是我想要的，但如今我有了，这才是我真正需要的。”是的，耶稣是一个礼物，所以祂总是一个惊喜。
-
-你能够感受到你遇见了祂的方式就是——你被震惊、被惊异。你知道，你的期望被祂打破了。这样的事情发生在你身上了吗？如果没有发生过，如果从未发生过，那你甚至都没有遇见祂。
-
-你没有拒绝祂，因为你还没有拒绝真正的耶稣。让我来告诉你为什么圣经这样说，在我们今天读到的一段经文中提到：“祂来到自己的地方，自己的人却不接受祂。”很多人接受了祂，但不多。当祂在地上时，记得当时并不多人接受祂。
-
-当祂离开后召集所有的使徒、门徒和跟随者一起聚会时，他们聚集在上层房间里，只有120个人。所以总的来说，祂被拒绝了，真正接纳祂的人很少。为什么呢？答案是因为人们期待的弥赛亚与耶稣不符。
-
-他们期望的是一个特定类型的人物——弥赛亚必须是一个政治领袖，必须是有权势、有影响力的人，能够真正做成事情的人。因为你看，那些人说：“我们受制于罗马人的压迫之下。” 你知道吗？当耶稣来的时候，人们期待的是一位政治领袖，一位有权势的人，能真正解决问题的人。
-
-但耶稣却没有满足他们的期望。他们之所以错过了祂，是因为他们拒绝被惊喜，拒绝把耶稣看作是一个礼物。弥赛亚是礼物，而礼物总是会打破你的预期。那么，他们到底期望的是什么呢？
-
-他们期待的是一位弥赛亚，但这位弥赛亚必须是政治领袖，一位有影响力的人，能够真正解决问题的人。因为当时，祂自己的子民说：“我们受制于罗马人的压迫之下。” **我们需要一个能解决问题的人，能把压在我们身上的靴子踢开。**于是，耶稣出现了。
-
-人们期待弥赛亚会说：“那些人是问题，我们要解决他们。” 相反，弥赛亚来了却说：“悔改。”耶稣出来就说：“悔改。” 他拒绝卷入政治。
-
-事实上，他出生在一个贫穷家庭的偏远地区，只是一个无助的婴儿。他从未获得过任何重要的关系或影响力。他只是四处游荡。他都说了些什么？
-
-如果你读福音书，你会发现他在世时教导的一切总结起来就是“悔改”。所有人都说：“这是弥赛亚，不行。”这不可能是弥赛亚。“我们要解决的问题的人”不可能是他。
-
-因此，只有那些愿意打破自己的期望、愿意听他的话并说“哦，我的天，这不是我想象中的样子，但他正是我所需要的”人才会接受他。现在让我变得非常个人化一点。普通人，包括你们中许多基督徒都知道，你们当初也是这样开始的。为什么你会重新回到教堂？
-
-我遇到很多在纽约的基督徒或曾经离开教会很久的人，他们为什么会重新回来？为什么会再次寻求？为什么会开始阅读和思考？因为他们都在寻找另一种弥赛亚。
-
-你说：“我的事业停滞了，我需要一个有权力的人来打破僵局。”或者“我有点孤单，需要一段关系”，或者“我有问题，需要有人为我解决。”生活中有困难，有人曾虐待你、压迫你或让你处于不利地位。我没有晋升，我有需求，我有希望。
-
-我需要一个能够进入我的生活、处理那些事情的神。你们就像那个时代拒绝他的人一样。他们寻找的是有势力的弥赛亚。但关于弥赛亚，这里有一个出乎意料的地方。
-
-关于他的地方，这里有一个颠覆我们认知的东西。我们都认为自己的问题都是因为外面的人。是他们的错。拥有权势的人是问题所在，而没有权势的人则是受害者。
-
-那些人不积极也不守法，他们拖累了我们。而那些没有的人则说问题在于有的人。他们互相帮助进入正确的俱乐部和董事会，并不愿意分享权力和财富。我们会从他们那里得到这一切的。
-
-所以大家都认为有人可以解决那个群体或外部力量的问题，世界就会变得好起来。但马利亚里的弥赛亚总是来告诉我们：悔改。**这意味着你的问题不在外面，而在里面。****真正的弥赛亚告诉你：真正的问题是**你自己，而不是别人。
-
-这就是为什么第一次他们拒绝他的原因——他们以为弥赛亚会说：“是他们的错。” 而**真正的弥赛亚来了，却说：“悔改，你们才是**问题。” 几年前，G.K. 背斯廉，这位伟大的文学家无法抗拒，在英国一家当时正在连载一系列关于“当今世界的问题”的文章和评论的报纸上写了一封短信。他写道： 亲爱的，你知道，时代的问题就是我。
-
-世界的问题是科学和严肃地，G. K. 背斯廉没有错，他确实说出了真相：问题在于我们自己。K. 背斯朋。而任何真正见过基督的人都是这样认为的。任何人如果真的见过基督，就知道这一点。
-
-你生命中最大的问题，世界最大的问题，就是你内心中的自私。是你内心的自我中心，是你内心的缺陷和自欺。是你的罪。如果你中有谁说，我根本不想听这种原始且下流的言论，那很好，因为你还没有见过耶稣。
-
-这不是我要表达的意思。**真正的基督总是**会给你带来震撼，并且真正基督徒与道德上体面的人之间的区别就在于此。基督徒是那些真正遇见了耶稣并且他的理解被彻底改变的人。他不是他们所期望的样子。
-
-如果你今天认为悔改是你生命中最需要的，那就去悔改吧。如果你不知道这一点，那你就还没有接受这份礼物，因为一个基督徒就是会说“悔改”的人。多年后，我们可能会说，“我从未想过这个问题，也从没要求过它。”这不是我想要的礼物，但现在我发现这才是我真正需要的。
-
-这在你身上发生过吗？你是否曾经对基督有这种意识上的转变？你见过这样的改变吗？要知道，如果没有经历过这些，你就还没有遇见他。
-
-这就是我要表达的意思。顺便说一句，这也可能意味着你甚至没有拒绝真正的耶稣。因为真正的耶稣基督，没有人会以一种随意的态度对待他。如果你说，“我喜欢他说的很多东西，但很难知道他所说的全部。
-
-”如果你对他有一种随意的态度，那么当你读圣经时，你会发现没有人是这样的。真正见过耶稣的人没有任何人是以一种随意的态度去面对他的。要么他们爱他，为他献出一切，并跟随他；要么他们恨他，试图杀死他；要么他们害怕死亡，想要远离他。如果你既不害怕他也不恨他，也没有真心地爱他，那么你从未遇见真正的耶稣，也从未真正看到过他所宣称的一切。
-
-你从没真正见过他所做的一切。他是个惊喜，因为他是礼物。他是难以言表的礼物，因为他让你感到意外。其次，我将简要说明这一点，但我觉得有必要提及。
-
-不是所有的礼物都是这样的，但我认为我们至少需要提到这一点。其次，在某些情况下，礼物可能会令人不悦。我们说过，礼物总是令人惊讶的。有时候礼物会让人不悦。
-
-这要看是什么样的礼物了。让我给你举一个很好的例子来说明这种情况。你即将拿到工资，而你的雇主拿着你的工资说：“是的，这是你的。” 通常来说，我们会每个月或每两周收到一次工资。
-
-但我要告诉你，在这个特定的薪资周期里，这是我送给你的礼物。圣诞快乐。你知道，这会是一个侮辱。绝对是一个侮辱，因为你认为自己在工作。
-
-如果雇主说“圣诞快乐，这是礼物”，他在说什么？他在说什么？告诉你吧，雇主的意思是，你并不配得到这笔钱。因此，这就是一个礼物。
-
-现在，礼物可能会令人不悦。让我再说一遍，并且建议你们，耶稣基督的礼物不仅是惊喜，而且总是侮辱，永远都是。因为你看，大多数人都觉得自己已经尽力了。如果你是一个宗教人士，有很多人会告诉你，如果问他们是否相信天堂，他们会说：“是的。
-
-” 你再问他们为什么认为自己能去那里，他们会说：“我在努力。” 你是怎么努力的？我尽力做好事。我尽力过好生活。
-
-我尽力达到那个目标。我认为我的表现至少和很多人一样好，甚至可能比大多数人更好。即使你不信仰宗教，你的态度也是一样的。你会说：“我知道有一种精神现实存在，并且尽我所能去尊重它。
-
-” 我在努力接近它。我在尽力成为一个善良、仁慈、正直的人。我尽力做到最好。福音的核心在于，你们错了，你们自我欺骗了。
-
-唯一通往上帝的道路，唯一的永生之路，唯一能够与上帝连接的方式，都是完全的恩赐。你可能知道浪子回头的故事，但这不仅仅是关于一个离家出走的小儿子。事实上，耶稣讲这个故事是为了向那些远离上帝的人和那些试图通过做好事来赢得祂爱的人传达信息。在《浪子的神》这本书中，蒂姆·凯勒展示了这个广为人知的故事揭示了福音的核心——对叛逆小儿子和苛责大儿子的信息都是希望的宣告，并且邀请所有人体验上帝慷慨、无尽的恩典。
-
-无论你是基督徒还是还在探索信仰，读《浪子的神》都能帮助你以全新的方式看待与基督的关系。《浪子的神》是我们感谢您本月对福音和生命分享基督仁慈不懈之爱所带来的希望和喜乐的支持。今天就访问 gospelandlife.com/give 获取您的副本吧。现在，请听蒂姆·凯勒博士继续今天的教导。
-
-没有人能赚到它，也没有人配得上它。我告诉你们，我不知道为什么，因为我并不是一个喜欢冲突的人，但我在弗吉尼亚的第一家教会度过了很多时间。那个小镇有很多老年人，我们教会也有很多老人，所以我经常去看望那些病床上的人。让我惊讶的是，他们中很多人会说他们害怕死亡，我会问他们害怕什么，而他们常常回答：我不知道，我尽力了，我尽力做一个好母亲/父亲，我尽力了……他们在说，我不确定自己是否准备好面对死亡，我很焦虑，我认为我已经尽力做好人了，但我不喜欢和人冲突，但我那时常说：你们不用焦虑，没有人能真正尽到自己的责任。
-
-这通常会引出一个主题——基督教的信息。基督教的核心信息就是救赎，无论你叫它什么，永恒的生命，灵性的真实，与神的联系或与神圣的连接，这一切都必须是来自上帝的恩赐，而不是你自己向他追求的结果，这是不可能的。这就是基督教与其他所有宗教的区别所在。其他宗教都说：你们从未尽到自己的责任，难怪你们会焦虑，直到你看到耶稣基督的恩赐，祂就是恩赐。
 
 我们昨天早上也提过，虽然用的是不同的标题，但再次提到它还是很有意义的。很多人对基督教唯一的道路感到不满，他们觉得耶稣说我是唯一的道路、真理和生命，除了我没有人能到父那里去，这话听起来太排他了。因此人们通常会这样回应：“你们基督徒就是这样相信的吧？但我认为只要是一个好人，一个有道德的人，一个勤奋的人，一个爱人的人，都可以达到上帝。
 
@@ -469,6 +382,50 @@ Today's sermon was recorded in 1993. The sermons and talks you hear on the Gospe
 
 有人通过成就、事业来获取义，有人通过人际关系，有人通过控制身体或外貌，形式多种多样，但没有人能不找到某种自我价值感而生活。然而保罗说，在神面前，你的义不过是污秽的衣服；只有在基督里你才能被神算为义，并且得着智慧和圣洁与救赎？你们明白吗？耶稣是一个礼物，甚至是一个令人惊讶的、甚至是侮辱性的礼物。
 
+---
+
+## 以马内利的无价之宝 / The Immeasurable Value of Emmanuel
+
+Now, lastly, we said, Jesus is a gift, that means he's a surprise, as he surprised you. Jesus is a gift, and that means actually he's insulting, because you've got to see that what he offers is a gift, it's not something you can earn. But thirdly, lastly, Jesus Christ is immensely valuable, all gifts, really great gifts.
+
+You look at them, you know, the best gifts are the gifts that you look at and you say, I never, ever would have bought this for myself. In fact, the best gifts are the ones in which you realize I never, ever could have bought this for myself. I couldn't have afforded this.
+
+This is wonderful, you say. Those are the best gifts. They're surprising, but they're also tremendously valuable and you look at them and the joy just wells up the more you're able to appreciate, the more you're able to see the value of it.
+
+What have you got in Jesus? You've got God with us. You have Emmanuel as you were singing.
+
+You know, I wonder, think of it this way, the first person to ever ask for God to be with him, to really be with him, was Moses. The first person to ask for Emmanuel, which is the Hebrew word that means God with us. Jesus Christ is God come to be with us, come near.
+
+Now the first person to ever ask for that was Moses, Moses. And he said, I don't want to lead the people into the promised land unless you come with us, unless you be with us. Now what did God do?
+
+I want your presence, said Moses. Now you know, modern people have no idea how valuable the presence of God is because we've trivialized it. So you can't understand this, what a valuable gift it is because Moses said, I want your presence.
+
+I want your face. I want to be with you. Now what did God say to Moses?
+
+He said, of course, sure. Why? I'm always close to anyone.
+
+You know, was God a sort of warm fuzzy? Did God like ET? Did he come around Moses and hug him and then say, put his finger on his forehead and say, I'll be right here, I'll always be with you.
+
+You know, no. What did God say to Moses? He says, I can't come with you, it'll kill you.
+
+I can't be with you, it will kill you. See, Moses understood the value of what we got at Christmas. Moses asked for the presence of God.
+
+Now modern people can't understand why God would say such a thing, they can't understand it because they have no concept of the majesty of God, no concept of all. People who have really gotten close to God have begun to move in, they begin to realize how traumatic the presence of God is. His hugeness makes us feel little.
+
+His purity makes us feel dirty, his permanence makes us feel temporary, his depth makes us feel shallow, and the closer we get to him, the more we see what a towering tower of purity and power he is, the more traumatized we are. You know, some weeks ago, we talked about this, when human beings even get near moral human moral excellence, relative, imperfect human moral excellence, we're threatened. I told you about a couple of weeks ago, a Christian cop who stopped taking bribes, but a Christian businessman had started to actually report his income on his taxes.
+
+About a Christian woman who was in a government agency and she started to really work very, very hard in her department and around her and around the businessman and around the cop, people got unbelievably threatened. Do you know how bad you're going to make us look? When we even get close to human moral excellence, imperfect human moral excellence, we're traumatized.
+
+What do you think it's like to actually dwell in the presence of the perfectly thrice holy God, holy, holy, holy. See, Moses understood what he was asking for and Moses understood why God says, it would kill you. You can't.
+
+Do you understand this? And now let's shift forward to Christmas and suddenly you know what's given to us at Christmas? A baby.
+
+You know up until, if you go through the Bible, up until Christmas, the first Christmas, what you have, whenever God appears visibly, they're called theophonies, whenever God appears visibly, it's an incredibly intimidating form. You have, he appears as a smoking furnace to Abraham. He appears as a burning tree, you know, blazing tree to Moses.
+
+He appears as a tornado to Job. He appears as a pillar of fire to the children of Israel. He appears as chicana brightness, glory coming down to the temple so nobody could even stand up, intimidating, you see.
+
+---
+
 最后，我们说过，耶稣是一个礼物，**这意味着他是个惊喜，因为他让你感到意外。**耶稣是一个礼物，意味着实际上他是侮辱性的，因为你要看到他所给你的不是你能赚得来的。但最重要的是，耶稣基督是极其宝贵的，所有的伟大礼物都是如此。你看那些礼物，最好的礼物是你拿到后会说：“我从未想过自己能买得起这个。
 
 ”事实上，最好的礼物往往是那些你意识到自己根本买不起的。你无法负担得起这些。这真是太棒了，你说。这些是最棒的礼物。
@@ -492,6 +449,38 @@ Today's sermon was recorded in 1993. The sermons and talks you hear on the Gospe
 什么是真正地在全然圣洁的神面前安息，圣哉、圣哉、圣哉。你看，摩西明白他在求什么，也明白为什么神说你会被杀死——你不能。你能理解这一点吗？现在让我们转向圣诞节，你知道在圣诞节里我们得到了什么？
 
 一个婴儿。直到圣诞节之前，在整本圣经中，每当神以可见的形式显现时，这些都被称为神显。每次神显现都是极其令人畏惧的形态。他向亚伯拉罕显现为焚烧的炉子；向摩西显现为燃烧的荆棘树；向约伯显现为旋风；向以色列人显现为火柱；向圣殿显现为荣光，以至于没有人能站立——那是非常令人敬畏的。
+
+---
+
+## 神以婴孩的形式显现 / God Appears as an Infant
+
+But suddenly he appears as an infant. An infant, you know, there is nothing more accessible than an infant. One of the great things about having an infant of your own is they're totally open to you.
+
+Absolutely open, you can always hug, you can always kiss. As soon as they get to be two, three, four, barriers start to go up. They become their own persons, you know, and that's all very right.
+
+But for the purposes of the illustration, an infant is absolutely the most accessible thing possible. So accessible, so intimate, so completely open to you. God, this is what Christmas is about, the gift, God, this God, the holy God, this God, with all of his boundless glory, beauty beyond bearing, with unassailable majesty, this God has become an infant.
+
+How is that possible? He became vulnerable so he could die on the cross, so the barriers between us could come down so that we could actually have access to God, we could have him come into our life, we could come into his presence, we could have God with us. You sang Emmanuel tonight.
+
+You talk about God with us, you sing about it, you know, in the Christmas carols. Do you know the value of this gift? If Moses was here, and he heard us singing about Emmanuel, and then if he heard, or if he read in 2 Corinthians 3 where Paul says, we are not like Moses, we are not like Moses.
+
+Before Moses had to put a veil over his face, but in Christ the veil was taken away. For God made his light to shine into our hearts to give us the light of the knowledge of the glory of God in the face of Jesus Christ. And Moses would be jumping up and saying, do you people understand the light of the knowledge of the glory of God, God with us, the presence of God?
+
+Do you understand the value of the gift? Are you filling your mind with the value of the gift? If you're bored tonight and you're a Christian, if you're having trouble with self-control tonight and you're a Christian, if you're discouraged tonight and you're a Christian, you have lost the sense of the value of the glorious thing that lives inside of you.
+
+Because Jesus Christ broke the barrier, when you receive Christ, you receive Christ, He comes in, His nature, His power, His life comes in, His very presence comes in, and slurs to slowly transform you. Have you lost sight of that? Jesus Christ is the most valuable gift of all, something you never could have afforded yourself.
+
+Do you know Jesus as the gift? Thanks be to God for His inexpressible gift. Let's pray.
+
+Thank you, Father, that you are a God who enables us and allows us to come into your presence as a gift. We pray that you would help us see that we can trust you. For if you did not spare your own son, how should we fail to trust you for everything else?
+
+You're going to give us anything we need. So we pray, Lord, that you will help us to see that in Jesus Christ we have all the gifts we need. And I pray that the words that we looked at tonight and the teaching and the truths that we looked at tonight would be applied by your spirit to every person here individually, that no one would leave without having a deeper understanding and a desire to drink deep, to look even more deeply into the wonders of this inexpressible gift Jesus Christ and whose name we pray.
+
+Amen. Again, it's all at gospelandlife.com. You can also stay connected with us on Facebook, Instagram, YouTube, and X.
+
+Today's sermon was recorded in 1993. The sermons and talks you hear on the Gospel and Life podcast were recorded between 1989 and 2017, while Dr.
+
+---
 
 但突然间，神以一个婴儿的形式出现。一个婴儿，你知道，没有什么比婴儿更易于接近的了。有自己亲生婴儿的人知道，婴儿是完全对你开放的。他们总是敞开心扉，你可以随时拥抱、亲吻。
 

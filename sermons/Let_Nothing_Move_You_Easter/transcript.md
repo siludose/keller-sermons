@@ -54,6 +54,9 @@ And Paul's here saying, the reason he lays all these verses down in the very beg
 
 The resurrection isn't just something that happened. It's not just a naked display of power, it accomplishes something. And what is it accomplish?
 
+### What Resurrection Accomplishes
+
+
 Well, there's two things that Paul says happen, the resurrection accomplishes. The first one, he says in verse 17, which I didn't print there unfortunately, where Paul says, if Christ has not raised from the dead, you're still in your sins. In fact, he says it in a very vivid way.
 
 He says, if Christ is still in the ground, you are still in your sins. Why would that be? Because the resurrection proves that something is over.
@@ -111,6 +114,9 @@ It proves that something has begun. It goes in verse 20 to 23. Twice.
 We're told Jesus Christ is the first fruits. Now what's the first fruits? Wow.
 
 Here's what the first fruits mean. There is a world. There is an eternal world.
+
+### The Promise of New Creation
+
 
 A world of complete justice. A world of complete love. A world where nothing gets old and dies into case.
 
@@ -184,6 +190,9 @@ He was in a terrible spot. It was, you don't need to know. But he says, they're 
 
 Sam saw a white star twinkle. The beauty of it smote his heart. As he looked up out of the forsaken land and hope returned to him, for like a shaft clear and cold, the thought pierced him that in the end the shadow was only a small and passing thing.
 
+### Standing Firm in Hope
+
+
 There was light and high beauty forever beyond its reach. His song and the tower had been defiance rather than hope for then he was thinking of himself. Now for a moment, his own fate ceased to trouble him.
 
 He crawled back into the brambles, laid himself down and putting away all fear. He cast himself into a deep untroubled sleep. Now there's a lot of nuances in there.
@@ -233,6 +242,9 @@ Christians, if you understand the doctrine of the resurrection and the doctrine 
 God hasn't come in his fullness. There's still tons and tons of brokenness. There's still tons and tons of death.
 
 There's all kinds of problems. Now what does that mean? Well, people get into the life and first of all, see all kinds of disappointments and all kinds of tragedies and they'll harden their hearts.
+
+### First Fruits of Glory
+
 
 They'll say, look at how bad life is. So you give up hope, you get cynical, you say, well, what can you expect? You harden yourself because you don't want to be disappointed.
 

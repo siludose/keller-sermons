@@ -144,11 +144,17 @@ In the introduction, Tim Keller lays out the case for catechesis, the rich and c
 
 Young, as well as historical figures such as Augustine, John Calvin, and Martin Luther. This month, in addition to the new city catechism devotional, we are including a great companion resource, the new city catechism for kids, as our thank you for your gift, to help gospel and life share the hope of Christ's love with people all over the world. So request your copies today at gospelonlife.com slash give.
 
-That's gospelonlife.com slash give. Now here's Tim Keller with the remainder of today's teaching. Let me show you how that goes, all right?
+That's gospelonlife.com slash give. Now here's Tim Keller with the remainder of today's teaching.
+
+### Two Models to Avoid
+
+Let me show you how that goes, all right?
 
 An experience of friendship and of lordship out of an experience of our sonship and a realization of it. You see, the problem with the older religious tradition was no friendship, it's all externals. That's the reason why there's no private life, that's the reason why there's no private prayer closet, it was all externals.
 
 But the trouble with the newer spirituality is not that there's no friendship, but there's no lordship, there's nobody to obey. I basically decide what's right and wrong for me, no friendship, no lordship, because there's no sonship. Now, first of all, I'm going to do this kind of quickly.
+
+### Prayer as Friendship
 
 Number one, friendship, the purpose of prayer. Look at the first part of the lord's prayer, what's that all about? This then is how you should pray.
 
@@ -174,7 +180,11 @@ Nothing else do you need. If you have this, everything else is secondary. What i
 
 And when he says the one thing necessary, then he says Mary is sitting at my feet and listening to my word, and commentators know. And they'll say Jesus Christ who was so completely steeped in the Psalms, so completely saturated in the Psalms, could not have not, sorry, about a double negative, he could not have not had in his mind the famous place in the Psalm, Psalm 27, verse 4, where the Psalmist David says, one thing will I seek after, one thing only do I need to gaze on the beauty of the Lord and to inquire in his temple. And Jesus says, and David says, now David is a man who had a lot of problems, he was always running for his life, he was always in crisis, he was a king, he was a general, he was in all this stuff, and he says, there's only one thing I really need, David does not ask for safety first, he does not ask for protection first, he does not ask for success first, with all the stuff that was on him, he says, if my soul has a sense, a sense of the inner sweetness and glory, if my soul sees the beauty, if I don't just know about God but I actually taste and see his beauty, he says, well nothing else will bother me, nothing else will ever well me, nothing else will shock me, nothing else will attract me, and I'll be able to live a life at large.
 
-And Jesus is saying that about Mary, and Jesus is saying that to you, and then comes the Lord's prayer, because that's the point of it, that's the context, friendship, let's move on, friendship is the first thing, you're not allowed because it's not built that way, you're not allowed to go asking for anything else until you've asked for his friendship, until you've sought like crazy for that, until you've asked for an experience of his holiness and love, not just knowing about it but actually a sense on your heart, that's the first point. Then secondly, Jesus says, no by the way, that's very different than the religious approach, but secondly, unlike the new spirituality, Jesus says the second thing you get to is his Lordship. The second purpose of prayer besides the intimacy of our Father is thy kingdom come, thy will be done.
+And Jesus is saying that about Mary, and Jesus is saying that to you, and then comes the Lord's prayer, because that's the point of it, that's the context, friendship, let's move on, friendship is the first thing, you're not allowed because it's not built that way, you're not allowed to go asking for anything else until you've asked for his friendship, until you've sought like crazy for that, until you've asked for an experience of his holiness and love, not just knowing about it but actually a sense on your heart, that's the first point.
+
+### Surrender and Lordship
+
+Then secondly, Jesus says, no by the way, that's very different than the religious approach, but secondly, unlike the new spirituality, Jesus says the second thing you get to is his Lordship. The second purpose of prayer besides the intimacy of our Father is thy kingdom come, thy will be done.
 
 Now here's the second thing, and this is pretty scary. Before you get to asking for the things you want, Jesus says you've got to go through this. And that is what is the real source of your problem.
 

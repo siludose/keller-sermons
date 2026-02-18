@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel in Life. Some people say the fundamental problem of the world is poverty. Others say it's bad systems, poor education, or biology, but what if none of these can fully explain the brokenness we see, both in the headlines and in our own hearts?
 
 In today's teaching, Tim Keller looks at how the Bible's teaching on sin gives us a deeply honest and yet incredibly hopeful view of the world. Father, I want to congratulate you for how well you're saying amazing grace. Well, you never choir, we didn't have a trumpet, you know, and you did a great job, and I think it's because after the number of years, the one of the ways you know you're a Christian and you've been a Christian for a while is that your whole life flashes before you when you sing that.
@@ -15,6 +17,8 @@ If you want to enter life, obey the commandments, which ones the man inquired? J
 Jesus answered, if you want to be perfect, go, sell your possessions and give to the poor, and you will have treasure in heaven, then come follow me. When the young man heard this, he went away sad because he had great wealth. Then Jesus said to his disciples, I tell you the truth, it's hard for a rich man to enter the kingdom of heaven.
 
 Again, I tell you, it's easier for a camel to go through the eye of a needle than for a rich man to enter the kingdom of God, and then the disciples heard this. They were greatly astonished and asked, who then can be saved? This is God's word.
+
+### The Man Who Had It All Together
 
 This is the very famous story of the rich young ruler, rich young man, and he was rich in two ways. He had both great moral wealth and great financial wealth, you notice? First of all, he has great moral wealth, he's a very decent person, a person characterized by moral excellence.
 
@@ -56,7 +60,11 @@ There's a danger that you could be sent away grieving. Why was it he sent away g
 
 Why did he go away like that? I would say, unless we understand those, the four reasons I see, we might be in danger of being sent away the same way. So let's take a look, there's four reasons.
 
-Each one is more serious than the last, four reasons that he went away grieving. The first reason is, let me just lay these out, and each one is more serious, therefore, each one takes a little bit more thought. The first one is, he went away grieving because he talked to the real Jesus.
+Each one is more serious than the last, four reasons that he went away grieving.
+
+### He Met the Real Jesus
+
+The first reason is, let me just lay these out, and each one is more serious, therefore, each one takes a little bit more thought. The first one is, he went away grieving because he talked to the real Jesus.
 
 Now, I won't take long on this point, but I think you need to say this. One of the reasons why he was disturbed, it was because he was talking to the real Jesus and he was hearing the real message of Jesus. When you talk to the real Jesus, you are always shocked.
 
@@ -72,7 +80,11 @@ And you see, whenever you actually do come up against the real Jesus, what alway
 
 The other way offended, there's hope, because you could always think about it, at least you've seen the truth, and you might come back. But the one thing it's impossible is to have met the real Jesus and to be indifferent. And if there's anybody here who experiences one of the forms of indifference, in other words, if you find Christianity laughable, irrelevant boring, or if you find Christianity to be just a kind of sweet, comforting thing that it's nice to dip into occasionally.
 
-Or if you find Christianity kind of vaguely guilt-producing and kind of vaguely anxiety-ridden, you haven't seen the real Jesus, because you are in the grip of indifference. Whenever you meet the real Jesus, he disturbs you, and that's the first reason he was disturbed. Secondly, the second reason he went away grieving was that Jesus smashed two of his basic assumptions about how religion works.
+Or if you find Christianity kind of vaguely guilt-producing and kind of vaguely anxiety-ridden, you haven't seen the real Jesus, because you are in the grip of indifference. Whenever you meet the real Jesus, he disturbs you, and that's the first reason he was disturbed.
+
+### Jesus Smashed His Religious Assumptions
+
+Secondly, the second reason he went away grieving was that Jesus smashed two of his basic assumptions about how religion works.
 
 Jesus smashed his religious views. Now what's really instructive for us is that the religious views that this young man had are not just common in his day, but they're absolutely common today. You see, he came knowing that he was lacking something.
 
@@ -159,6 +171,8 @@ It cuts across the horizontal, it makes minced meat of the horizontal on either 
 In other words, this young man is good relatively speaking, relative to other people, he's very good, it's his doctrine of goodness that's wrong. And as a result, he goes away grieving. Jesus has smashed his assumptions.
 
 These assumptions that virtually everybody else has, too. Thirdly, the reason he went away grieving was because he was talking to the real Jesus. Secondly, because Jesus smashed his religious assumptions.
+
+### Jesus Got Personal: Surrender Your Dreams
 
 Thirdly, he went away grieving because Jesus got personal. Now I would suggest to you that even though Jesus has contradicted his views, that's not the real reason that he is so grieved. No.
 
@@ -248,7 +262,11 @@ Yeah, we're trampling on people, but it makes us money. And you know what's the 
 
 It's become a monster. Anything will. Jesus says, yes, you lack one thing.
 
-And what is that? Here's the end. The fourth reason, see, he does lack one thing, it's not the giving away of the money.
+And what is that? Here's the end.
+
+### Treasure in Heaven: He Is Yours and You Are His
+
+The fourth reason, see, he does lack one thing, it's not the giving away of the money.
 
 It's treasure in heaven. The reason that this young man has missed it all is because he doesn't understand treasure in heaven. And Jesus Christ comes and says, you have to get rid of your monster.
 

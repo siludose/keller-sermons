@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Two Tests of Any Valid Worldview
+
 Welcome to Gospel in Life. How comfortable are you when it comes to being open about your faith? This month on the podcast, Tim Keller looks at what the Bible says about having a public faith.
 
 He shows us what it looks like to be open about our faith in a pluralistic society in a way that creates civility and peace and meaningful dialogue with our neighbors. What we're going to do tonight is look at who is Jesus Christ. What you just heard depicted early dramatically was how the actions and the behavior of Jesus Christ has continually ignited debate about his identity.
@@ -21,6 +23,8 @@ And I've come to see over the years that those are the two tests of any valid wo
 I mean that really was 1970. Now all we ask is, oh religion, who knows whether it's true or not, does it work for me? Who knows whether it's intellectually credible, I mean after all, everybody's got their own views.
 
 What I want to know is it's essentially satisfying to me. With all their respects, I think that's a dangerous approach. Because we do know something called a placebo effect, you know.
+
+### The Spiritual Placebo Effect
 
 A placebo effect is this. If I am sick and I take some medicine that I really believe will make me better. But I have very serious symptoms, I'm dying of something.
 
@@ -55,6 +59,8 @@ And because it's true, it'll meet your needs. It's exciting in this role. And if
 Now, how do you know Christianity is true? That's quite a challenge. That's quite a dare, especially to do in a kind of confined period of time tonight.
 
 And therefore, what I like to do is give you an overview of the main piece of evidence, which I think is overwhelming and inescapable evidence for the truth of the Christian message. And that is Jesus Christ as datum. Jesus Christ as fat.
+
+### Jesus as Unique Historical Datum
 
 Who is He? You see John 9 that you just heard depicted. Jesus deeds were always making people come up with theories.
 
@@ -130,6 +136,8 @@ There's an awful lot of other people like him that I don't think that we've got 
 
 Have you looked at it? Now, let me show you what the data is. And then let me show you there only five.
 
+### The Five Facts About Jesus
+
 I'm just going to tick through them because this is basically the case. Maybe you've never seen an overall case. The case for Christianity.
 
 The case for Jesus being who he said he is. Look at the data and there's only five possible answers, five explanations. Who is this?
@@ -170,6 +178,8 @@ I will tell you, the first two are impossible. The first two options are impossi
 
 There's five options, the first two are impossible, the second two are improbable, the last one's inescapable. They all start with I. The first two, the first two, the first one.
 
+### Option One: Legend — Impossible
+
 Most people in New York get out from under the data this way so I've got at least spent a couple minutes on this. Most people say he's a legend. We don't know that any of that happened.
 
 That's the average way that New York people get out from under it. Here's what I mean. In other words, I come to you like I said and many of you here tonight, I'm hoping that afterwards we can talk and have a question answer time after the program is over and so on.
@@ -181,6 +191,8 @@ How do we know all these things? Don't you know that Jesus Christ like any chari
 And you know you played whisper down the alley having you you know you say it to one person next person and over the years these tales became embellished. And the early church began to put into these tales they began to make up stories and they began to put words in Jesus' mouth that met their needs. And so finally they were written down in the New Testament many years after but they were written by the people who were Christians, they weren't their biased people.
 
 They wrote these things down many years later and so we have no idea what Jesus really said. We don't know which of these things are genuine, we don't know which of these accounts is genuine, you can't read the New Testament history. He was a legend that's how I get out from under the data.
+
+### The Bible Is Written as History, Not Legend
 
 Let me just give you actually three reasons that can't be. And this would be a great talk on itself but I just have to give you three reasons why it can't be. Number one, the Bible is not written as legend, the Bible's written as history.
 
@@ -282,6 +294,8 @@ And if you know that you've got that conflict of interest but you have to study 
 
 And that's the reason why I would tell you, so many scholars will be skeptical of the historical account of Jesus and won't be skeptical of what Caesars got like wars, Herodotus, all those accounts, waitonious and so on. He's not a legend. Now if he's not a legend and the second impossible option is he couldn't be a good man, he couldn't be.
 
+### Option Two: Not a Good Man — Impossible
+
 Do you know what he says? Have you read what he says? People like to say, oh, but he was just a fine teacher.
 
 How could he be a fine teacher? He says, I'm the way the truth in the life. No one comes to the Father but by me.
@@ -301,6 +315,8 @@ Who has ever said things like this before? I'll tell you one thing, no good pers
 He's either God or he's a terrible liar, but he can't be a good man. Reject him, hate him, assassinate him. But none of this nonsense that he's a good man.
 
 He's not a legend, he's not a good man. Then we say, ah, well, maybe he was a liar or maybe he was a lunatic. But there's a couple of problems with both of those and I'll just treat them together to get to the end.
+
+### Options Three and Four: Liar or Lunatic — Improbable
 
 Mainly because both the liar option and the lunatic option are both the same option. In other words, you're saying he fooled his followers. He was either a very bad person like the Pharisee said in John 9, or he was really a lunatic.
 
@@ -335,6 +351,8 @@ What power could have gotten them to believe it? What's the alternative? St.
 Thomas Aquinas put it this way. He says the only alternative is to believe even greater miracle. And that greater miracle would be, if Jesus Christ did not happen and even more unbelievable miracle happened, the conversion of one half of the Roman world and their moral transformation into unsolficionist and new heights of holiness all by the biggest lie in history.
 
 What's the inescapable option? Not a legend, can't be a good man, those are the impossible ones. The improbable ones, a deceiver or delusional.
+
+### The Inescapable Conclusion
 
 Where does it bring us? It brings us to this place. If you get rid of your bias against this possible supernatural, if you get rid of your bias against the idea of a miracle, if you get rid of that bias, it's hard to believe who he said he is, but it's harder not to.
 

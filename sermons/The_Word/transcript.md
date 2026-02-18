@@ -62,6 +62,9 @@ I mean, pardon me, what I just told you, which is one of the messages of Christm
 
 Everything in our culture is conditioning us to not believe that. Everything in our culture is against that. And this is a problem because Christmas is not going away.
 
+### The Mystery of Christmas
+
+
 It is a commercial bananso. They will never be able to get rid of Christmas, ever. And at least not in the foreseeable thousand years.
 
 And therefore, what are we going to do when the message of Christmas is a very opposite of what the culture tells us? And the answer is, is the culture is going to constantly try to re-engineer Christmas? So a couple of years ago, I found this ad in the New York Times.
@@ -127,6 +130,9 @@ That's gospelonlife.com slash give. And please pray that we would steward your g
 Now, here's Dr. Keller with the remainder of today's message. How many people are there in the world right now that if you were laying on a sofa, you know, without even asking permission, could walk right over to you and lay down right alongside of you and lay right up against you, and that would be fine.
 
 How many people are there like that? Not many, right? And the ones that can do that are in the most intimate relationship possible, right?
+
+### Knowing God Through the Word
+
 
 So I think this is what we're being asked. If you want to understand who God is and what God is like, then you have to start to imagine the time in your life when you felt the most loved. Now multiply that by a trillion, trillion, trillion.
 
@@ -194,6 +200,9 @@ You know how different that is? From ancient paganism and modern secularism. Anc
 
 There were these multiple power centers called gods. There was all these different gods and they fought with each other. And that's how the earth got created.
 
+### Beyond Ancient Paganism
+
+
 And that's how this and that happened. So, in other words, ancient paganism believed the world at its heart was multiple power centers struggling against each other, power struggle. Modern secularism doesn't believe in gods.
 
 No, but it believes in an impersonal universe, impersonal. And it believes that the world got here through violent forces and that human beings evolved through survival of the fittest, nature red and tooth and crock claw, the strong eating the weak. So ancient paganism and modern secularism say the essence of the world is power and struggle.
@@ -259,6 +268,9 @@ The agony and pain he experienced on the cross, that loss of love was greater th
 Number one, objectively, our sins are forgiven. So when I say father forgive me because of what Jesus did, God can forgive my sins and now come into my life and begin to start to fill me with His love. So that I begin to be somebody who actually can start to love other people and you can become someone who can love other people.
 
 It's a matter of money. Listen, it's very, very, very hard to be really generous to people when you can't pay your own light bill. But if you have a lot of money, then it's easier to be generous.
+
+### The Word Made Flesh
+
 
 A lot of people aren't generous with it, but it's at least possible. And the same thing with love, it's very hard to love other people and not be selfish when your own insights are so needy. When you don't feel very lovable yourself, but when God's love starts to pour in through the cross, when you see that Jesus Christ lost infinite love out of love for you, that begins to melt your heart, and that begins to fill you up.
 

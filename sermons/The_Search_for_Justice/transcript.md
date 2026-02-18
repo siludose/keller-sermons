@@ -34,6 +34,9 @@ Let me take a second to explain that. For example, unless you understand that, t
 
 It says, the dead, no, nothing. Is that what the Bible teaches? Is that the overall whole, is that what the Bible teaches about the afterlife?
 
+### The Preacher's Quest
+
+
 No, well, what's it doing here? Because the key phrase, which comes up several times in this text, and it comes up dozens of times in the book of Ecclesiastes, it comes up nowhere else in any book of the Bible. In fact, it comes over nowhere else in any part of literature.
 
 Is the term, under the sun. And what this means is, he does not say, this is true, this is true, this is true, this is a fact, this is a fact. He says, this is a fact under the sun, this is true, under the sun, under the sun.
@@ -70,6 +73,9 @@ Shouldn't you ask hard questions about unbelief? You say, you're standing somepl
 
 And a practical secularism secularism says, this life is all there is. Okay, says the writer. Let's ask a few questions about that position.
 
+### Confronting Injustice
+
+
 And the first one is, how do you deal with justice, the injustice of life? Now, when he does this, some of you today, this is the main spiritual issue you've got. This is the main problem.
 
 This is the main problem with God, with faith, with everything, because you have seen or you've experienced this kind of suffering. For some of the rest of you, it's not maybe the main problem. That's what we're going to do some other weeks, but it's still very important.
@@ -105,6 +111,9 @@ I better watch careful next time. You are not in control. One of the ways that y
 It's not going to happen to me. I'm going to watch my back. I'm going to be very careful.
 
 I'm going to discipline myself. I'm not going to ride on school buses in the Middle East. I'm going to have all sorts of things.
+
+### Beyond Death and Vanity
+
 
 But he won't stop there. He goes on. Now, when he goes on, I want you to know right away, some of you are going to start to defend yourself against what he says here, because you're going to say he's just being gloomy.
 

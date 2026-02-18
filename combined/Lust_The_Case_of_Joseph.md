@@ -4,6 +4,8 @@
 
 ---
 
+## 引言与经文诵读 / Introduction and Scripture Reading
+
 Welcome to Gospel in Life. You don't have to look far to see that something's deeply wrong with our world and with us. But is there an answer that gets to the root of why?
 
 In today's message, Tim Keller explores the human condition through stories in the Bible, uncovering what Scripture says about sin and why it's the only explanation deep enough to face the truth about ourselves. Let me read to you the teaching, Scripture passage, the passage on which the teaching is based this morning. It's found in your bulletins.
@@ -26,7 +28,31 @@ And when he heard me scream for help, he left his cloak beside me and ran out of
 
 And when his master heard the story, his wife told him saying, this is how your slave treated me, he burned with anger. Joseph's master took him and put him in prison, the place where the king's prisoners were confined. But while Joseph was there in the prison, the Lord was with him.
 
-He showed him kindness and granted him favor in the eyes of the prison warden. This is God's Word. Well, we've been going through the seven deadly sins and finally we get to one that's interesting.
+He showed him kindness and granted him favor in the eyes of the prison warden. This is God's Word.
+
+---
+
+欢迎来到《生命中的福音》。你不需要走得太远，就能看到这个世界和我们自身出了什么问题。但有没有一种答案能触及根本，解释为什么会有这些问题？今天的信息中，提摩太·凯勒通过圣经中的故事探讨了人类的处境，揭示了圣经对罪的看法以及它为何是唯一能够面对关于我们自己的真相的答案。
+
+让我来读一下今天的教导，所依据的经文在你的讲道单上。这是创世记39章4至21节的内容。约瑟蒙主人波提乏的恩宠，波提乏是法老王宫里的高位官员。约瑟蒙主人的恩宠，成了他的仆人，波提乏把一切所有的事都交托在他手中。
+
+从波提乏把一切所有的事都交托在他手中开始，主赐福给波提乏家中的事和田间的物。因此，波提乏所拥有的一切，在家中、在田间，主的恩惠都临到他身上，他就没有不缺少什么，只顾得着食物吃的。约瑟生得俊美，又蒙主恩。过了些时候，波提乏的妻子留心看他，对他说：“你来与我睡吧！
+
+”但约瑟拒绝了。他对她说：“看哪，主人没有留下家中所有的事交在我手中，他也没有不关心什么的。家中所有的，都交给我管理。没有人比我更大。
+
+惟有你，因为你是主人的妻子。我怎能作这大恶、干犯神呢？”虽然她常向约瑟说这话，约瑟还是不肯听从她的话和她睡在一起。有一天，他在家里做工，家中人都不在里面。
+
+她抓住他的衣襟，说：“跟我上床吧。”但他把外衣留在她手里就跑了出去。当她看到他留下外衣跑出房子时，便叫来仆人说：“你们看，这个希伯来奴仆被我们带到这里来是想戏弄我们。他进来想和我睡觉，但我尖叫起来。
+
+” 当他听到我的呼救声后，就把外衣丢在我身边就跑了出去。她把他的外衣留到丈夫回家时才拿出来。然后她对丈夫说：“这个希伯来奴仆是你带来的，他来这里是要戏弄我。但当我尖叫求救时，他就留下外衣跑出房子。
+
+” 当她的丈夫听到这个故事后，妻子这样告诉他说：“这就是你的奴仆对我做的。”于是他的主人非常生气，就把约瑟抓起来关进了监狱，那是王宫里囚犯被关押的地方。然而，在约瑟被关在监牢里的时候，耶和华与他同在；主赐福给他，使他在狱卒的眼中蒙恩。这是上帝的话语。
+
+---
+
+## 性：成败的关键力量 / Sex as a Make-or-Break Force
+
+Well, we've been going through the seven deadly sins and finally we get to one that's interesting.
 
 Joseph's career was going along fairly well. He'd been sold into the servanthood by his brothers, but he had been bought by this high official in the society of Egypt and because he was such an incredibly good manager, he rose soon to be in a sense the COO, the chief operating officer of this huge estate. His career was going very well.
 
@@ -62,7 +88,39 @@ And she contemplated that. And then we see that she had spent so much time conte
 
 But finally we see, when he refused again and again and again, when she realized she could not have him, she turned murderous and tried to kill him. And you say, where is that? Well, what she was accusing him of was a capital offense.
 
-And we'll get to that later. What do we learn about lust? Okay, first of all, a negative and then the positive.
+And we'll get to that later.
+
+---
+
+我们一直在讨论七种致命的罪恶，现在终于到了一个有趣的罪恶——淫乱。约瑟的职业生涯进展得相当顺利。他的兄弟把他卖为奴仆，但他被埃及的一个高级官员买下，并因为管理能力出众，很快就成了这个庞大庄园的首席运营官（COO）。他的职业生涯发展得很好。
+
+这很像我认识的一些在纽约的人。约瑟的职业生涯进展得很顺利，然后淫乱出现了，而淫乱是一个如此强大的力量，你如何处理它可能会决定你的成败。你们不是一直在阅读过去五年甚至接近十年里关于性行为的所有谨慎的书籍和文章吗？几年前，《旧视》杂志的一位资深编辑曾是性解放运动的倡导者，这发生在20世纪60年代末和70年代初。
+
+到了80年代，他出版了一本书叫《性之终结》，书中他忏悔道：“我终于意识到每种游戏都有规则，性也有其规则，除非你遵守这些规则，否则你会发现性可能会带来一种其他任何事情都无法比拟的孤独感。”这真是讽刺。性会带来孤独。所以你看，即使一切似乎都很顺利，但性还是会到来。
+
+约瑟夫，一切都进展得很顺利。性来了。他甚至没有寻找它，但它还是来了，并且直击他的内心。你如何应对它将极大地影响你的生活走向。
+
+那么，我们从这段经文中学到了什么呢？在七宗罪中，我们将称之为淫欲，我一会儿再解释这个词。但这里我们要学习的是，通过观察波提乏的妻子和约瑟夫的行为，以及上帝的行为，我们可以学到很多。从波提乏的妻子那里，我们学会了如何理解淫欲；从约瑟夫那里，我们学到了如何应对淫欲；从上帝那里，我们学到了如何治愈淫欲，即如何理解和处理它，如何治愈它。
+
+让我们首先看看当看到约瑟夫和波提乏的妻子时，实际上我们有两起不同的案例。我称之为约瑟夫的案例。但事实上，这里有两种情况。这两种情况展示了性、性和淫欲的不同处理方式，所以我们有一个好的例子和一个坏的例子。
+
+当我们观察波提乏的妻子的行为时，我们可以学到如何理解淫欲的本质。有些人可能会对使用“淫欲”这个词感到不太高兴。当吉米·卡特谈到淫欲时，可怜的吉米·卡特说了些什么。我没有承认他有时会怀着淫念看女人，而我至今还记得丹·阿克罗伊德在周六夜现场连续三个月拿吉米·卡特开涮。
+
+有人甚至说，“淫念”这个词反映了维多利亚时代对性行为的倒退和压制态度，确实如此。通常圣经中的“淫念”一词并不是指性的。但我们不能比耶稣更聪明。而耶稣自己说过，如果你怀着淫念看人，你的心里就已经犯了奸淫罪。
+
+所以让我们不要比耶稣更聪明。圣经中提到的“淫念”通常与性无关，“淫念”是指一种不合宜的愿望，一种不正当的欲望。那么我们从性欲的角度能学到什么？首先，我们看到约瑟夫被波提乏的妻子注意到了。
+
+不幸的是，英语中的“注意到”这个词用在这里有点弱了。事实上，她注意到他是因为觉得他很美。但她并没有止步于此。希伯来文中说她“举目望着他”，意思是她在打量他的美丽。
+
+她说他身材匀称、容貌俊美，身体和脸庞都很漂亮。她一直在打量着他。然后我们看到，她花了很多时间在心里想着他，以至于最终不顾危险，拒绝了他的多次拒绝后，她还是决定与他发生关系。于是她尝试了。
+
+但最后我们看到，当约瑟夫一次又一次地拒绝她时，当她意识到无法得到他时，她变得凶残起来，试图杀死他。你说，这在哪儿？其实她指控约瑟夫犯下了重罪。我们稍后再讨论这个。
+
+---
+
+## 理解淫欲：它不是什么 / Understanding Lust: What It Is Not
+
+What do we learn about lust? Okay, first of all, a negative and then the positive.
 
 Negatively, lust is not sexual desire per se. Joseph does not say this is a wicked thing because it's sexual. He doesn't say that.
 
@@ -88,6 +146,28 @@ That's the reason why Jesus, do you realize what an affirmation of sexuality it 
 
 So the idea that lust is any kind of sexual passion, that's just not true at all. Well, then what is sexual desire? How does it become lust?
 
+---
+
+那么我们能从"淫念"中学到什么呢？首先，负面的教训，然后是正面的启示。负面的是，"淫念"并不是单纯的性欲。约瑟夫并没有说这是邪恶的行为因为它涉及性。
+
+他也没有说这本身就是罪行因为他认为它是性的。圣经从未说过纯粹的性欲就是“淫念”。> 性欲本身是错误的。性欲本身就是污染、玷污，没有丝毫的好。
+
+正如我们将要看到的，《圣经》对性有着最崇高的看法。事实上，我很乐意说，《圣经》对性的看法比其他任何神圣书籍或宗教都要崇高。我愿意为此辩护。在《创世记》2章中，上帝创造了男性和女性。
+
+当祂创造性欲时，我们被告知祂一看就立刻说很好，并且吩咐他们要繁衍后代。明白了吗？我们在旧约中可以看到，在去年的讲道中我们已经谈到了，《箴言》5章命令夫妻之间要有彼此间的性爱。在新约《哥林多前书》7章中，同样的教导也适用于夫妻双方，丈夫和妻子被命令要主动培养对对方的性欲。
+
+《雅歌》是一首欢乐而生动地庆祝性爱之爱的诗歌。历史上，当人们审视七宗罪时，纵欲从来都不是最严重的罪行，它总是排名靠后。让我向你们展示我的意思。傲慢、嫉妒、贪婪、愤怒等罪行一直以来都排在前列。
+
+这些罪行自古以来被认为是更糟糕的事情。为什么？因为基督教神学的道德学家们一直都知道，骄傲、贪婪、想要伤害别人、想要从别人那里偷东西、想要把自己放在中心而践踏他人，并不是人心所为。这些都是不自然的欲望，是不自然的。
+
+你并不是为了偷窃而生，也不是为了伤害而生，更不是为了仇恨和杀人而生，而是为了性欲而生。这就是为什么我们会看到，当我们探讨纵欲时，它是一种自然欲望出了问题的原因。这就是为什么耶稣说，当祂对当时的道德和宗教领袖们，那些自以为是的宗教领袖们说：“你们这些淫妇和娼妓倒比你们圣洁。”这是对性的一种肯定。
+
+性本身，强烈的性欲本身，并不是错的，相反，在某些情况下，它是被命令的。所以，认为欲望就是某种性激情的想法根本就不存在。那么，什么是性欲？它又是如何变成欲望的呢？
+
+---
+
+## 淫欲是失控的渴望 / Lust as Desire Out of Control
+
 And I'm going to say, from the passage we see lust is three things, three ways to understand it. First of all, lust is desiring out of control. I'll be real brief on that.
 
 Look at what the poor lady, once she's in the grip of her sexual passion, even though he's given her a very firm know. And not only that, even though what she's trying to do is very dangerous to her personally, she can't stop. After day in, day out.
@@ -101,6 +181,22 @@ And of course, there's that writer who pointed this out, if you ever found a cou
 There's something wrong. It's not just an appetite. You can't trust an appetite like that.
 
 So first of all, lust is desiring out of control. It's out of control. Secondly though, and more importantly, lust is desiring pleasure without a promise.
+
+---
+
+从这段经文我们可以看出，欲望有三种表现形式。首先，欲望是失控的渴望。我将简要说明这一点。看看这位可怜的女人，在她的性激情中无法自拔时，尽管她得到了非常坚定的警告，而且不仅如此，即使她所做的事情对她个人来说非常危险，她也无法停止。
+
+日复一日，年复一年。人们会告诉我们，性就像一种食欲一样。所以当你饿了就应该吃饭，当你觉得性感的时候就应该发生关系。这只是一个食欲而已，并且是正常的，没有人应该认为他们的食欲有什么不对的地方。
+
+真的吗？真的吗？我所知道的没有哪一种食欲能像这种欲望那样迅速变得如此痴迷。当然，那位作家也指出了这一点：如果你发现一个国家，在年轻人去上大学时，他们把汉堡包和热狗的海报贴满了整个房间，每个人都跑来跑去想看这些海报。
+
+如果你还发现一个国家的人们付钱去看某人慢慢地揭开蛋糕和馅饼，你就会认为这个国家里的人是饿坏了的，并且你会惊讶地发现，不仅他们没有饿坏，反而吃得越多，这种行为就越频繁。这显然是一种失调的食欲。有什么不对劲的地方。这不是单纯的食欲。
+
+你不能信任这样的食欲。首先，欲望是失去控制的渴望。它就是失控了。其次，更重要的是，欲望是没有承诺的情况下追求快乐。
+
+---
+
+## 淫欲是无承诺的欢愉 / Lust as Pleasure Without a Promise
 
 Lust is desiring pleasure without a promise. It's not just desiring pleasure. We said, that's fine.
 
@@ -194,216 +290,7 @@ That's what marriage is. And if you say I want that physically but I don't want 
 
 And you see, therefore, let's see how Joseph handles it. Therefore, lust is not just desiring pleasure out of control. And lust is not just desiring pleasure without a promise.
 
-It's actually desiring pleasure without a person. Yes. Lust is the opposite of love.
-
-Love, you want a person. In lust, you just want the pleasure. And the person is a necessary commodity to get there.
-
-In love, you want a person. And if you have to forego pleasure, fine. It's the person that's non-negotiable.
-
-The pleasure that's negotiable. In lust, it's the pleasure that's non-negotiable. And the person that's negotiable, how do you see it?
-
-Look at what happened to her. Look what happened to Potiphar's wife when she realized he had spurned her. She wanted the affirmation.
-
-She wanted the experience. And when she saw she couldn't have him, she turned murderous. And it's not just when you can't get the person that you really see that what you thought was love was really lust because it turns murderous.
-
-Sometimes, even when you get the person, in 2nd Samuel 13, there's an amazing story about David's son, Amon. And Amon slept with his half-sister, Tamar. He got her to bed.
-
-He seduced her. Incessed. We're told that before he seduced her, he was sick with love.
-
-But if you ever read that, it's in 2nd Samuel 13. It's an amazing passage. As soon as he had done consummating sex, it said suddenly, he hated her with a hatred that was greater than the love with which he had loved her.
-
-And he got up and said, arise and go. What had happened? Lust is one pleasure without a person.
-
-Lust is getting incredibly in love with somebody you don't even know. All you see is what you think they can give you. You don't even know them.
-
-You have no idea who they are. In other words, sin takes lust. A good thing, sexual desire, and sin turns sexual desire into lust because it makes sexual desire and end in itself instead of a way of serving somebody.
-
-And through which you can learn the incredible pleasure of giving pleasure. Instead of learning the pleasure of giving pleasure, instead of using sex as a way to serve somebody else, serving somebody you're committed to, somebody you're trying to give pleasure to instead becomes an end in itself and a person just happens to be a necessary commodity. So we can discard the people.
-
-And we do. As time goes on, as long as we have the thing. Now how does Joseph handle it?
-
-He teaches us something pretty remarkable. As you can see, sin makes sexual desire a very powerful thing. Well, how does he handle it?
-
-He handles it like this. First of all, well, there's two things he does. One is pretty obvious.
-
-One is not so obvious. One is he controls his actions. You notice it says he would refuse to be with her.
-
-You see that? He says not only refuse to go to bed, whether he refused to be with her, he stayed away from her. He stayed away from temptation.
-
-We talked to him about that last week. But the other thing he did, he didn't just control his actions, he controlled his thoughts. James Fix, the guy who wrote the complete book of running, there's a fascinating place in that book in which he says, the hardest thing about running, Amerathons, is your mind.
-
-He found in the early stages of becoming a marathon runner, that what will happen in the midst of the marathon is the fatigue will be so great that your mind will say, why did you ever start this race? What was it that attracted you to distance running? And James Fix said, I would find that I had no answer.
-
-I couldn't remember why I wanted to. He says, one time he dropped right out of a marathon because your brain plays tricks on you, he says, when the heat's on. And the brain will suddenly, he will just decide to forget the reasons that you love running, the great benefits of running in general for you, the great benefits of this race and you just can't even remember it.
-
-So he said, he learned that one of the most important things to do, if you're going to stick with that marathon through the hard time, he says, beforehand, you've got to practically memorize the reasons you love running. Memorize the reasons is an important race. Memorize the reason so you can tell your brain that.
-
-But he says, you know, if things really get bad and you can't remember everything, you know what he says? He says, the final thing I used to trick, I used to play on my brain as I'd say, well, I know when I get there, I'll remember it. I know I had a good reason to start.
-
-And when I get there, I'll remember it. Now there's a lot of wisdom in this and this is what Joseph does. Joseph says, how can I then do this wicked thing and sin against God?
-
-Now there it is. Now, he says two things to himself. First of all, he says, how can I then do this wicked thing?
-
-Now then it refers to the fact that we're not married. And so what he's doing is he's reminding himself of the penultimate purpose of marriage. And the penultimate purpose of marriage is absolute union of body and soul, not pulling them apart, but keeping them together.
-
-And so what does he do? He says to himself, I will not be a monstrosity. I will not ravage myself.
-
-I will not that which God has joined together. I will not put a sunder. But I suppose if Joseph was completely blanking out, here's what you can say, by the way, if you totally blank out, you say, look, no sex outside marriage.
-
-This is the one thing that for 2,000 years, every branch of the Christian Church has agreed on orthodox Catholic and Protestant. Jewish Judaism, Confucianism, Hinduism, Islam, all of these centuries of these great religions who disagree on so many other things they all agree with this. They all believe this.
-
-The only people who don't believe it is something, this is just a belief that just come up very recently and very, very small little bubble pockets of people, you know, like Manhattan. And so what you have to say is, I know there's a good reason, I just can't remember when I get there, when I get to the finish line, it'll all come back. That's not the only thing he says.
-
-He remembers, he fills his mind with the penultimate goal, but he also fills his mind with the ultimate goal. He says, how can I do this thing and sin against God? Now, how could this be a sin against God?
-
-Now, it could be a sin against Potiphar, the husband, yeah, it could be a sin against Potiphar's wife. It wouldn't be that hard to say if he had given into her in the midst of her passion that she was giving in, he was sending against her. He certainly could say he was sending against himself in his own body, but how God?
-
-And here's the reason, because I told you there were two goals for sex and this is the ultimate goal. And the ultimate goal of sex is to be an appetizer and a sign of the absolute ecstasy and joy of complete union with God. Sex is a sign and an api-biblical, according to biblical theology, sex is a foretaste and a sign and a signpost pointing toward the unbelievable joy and ecstasy of complete union with God.
-
-In Ephesians 5, the New Testament says, that when a husband and wife unite, it's a great mystery, but it tells us, it shows us Christ uniting with His people. In Romans 7, Paul is so explicit. He says, just as a husband and wife get into each other's arms and through sexual union, fruit is born into the world through the woman's body.
-
-So when Christ and the believer are in each other's arms, Christ's fruit is born into the world through you unbelievable, it's what the Bible says. Sex is a foretaste of that. When sex is the best possible here, what do you want?
-
-What do you get? You want somebody to see you completely and not just tolerate it. See you naked, not just tolerate it, but you want to see their delight in you.
-
-As they see you, you want to see in their eyes them looking at you as if you are holy and without blemish. This is the reason we look in mirrors. This is the reason a lot of people don't want to have sex or get married.
-
-You're afraid of what people are going to see. You can cover it up. There's always cosmetics.
-
-There's all sorts of ways of covering up, but here the idea that somebody will see you, what you really want in sex, if somebody see you and know you completely and then delight in you as if you were holy and without blemish. Then you want somebody's arms to come around you and give you a cradle of absolute security for your moment of absolute vulnerability and you want to do the same. You know what?
-
-Nobody can do that. What's funny is when sex is going well and when love is going well, the only way we can talk about it is in religious language. This is the sexual proof of the existence of God that sex, love, makes you talk about things that aren't true.
-
-You start to say, I will love you forever. You know, even the great, even the drippy songs. They go on and on.
-
-They say longer than there have been fishes in the ocean, higher than any bird ever flew, longer than there have been stars up in the heaven. I've been in love with you. And we go, oh, why?
-
-Because your sexuality is pointing to the eternal. Even when you think you've got it, you don't have it. It's an illusion.
-
-Your sexual desire once a kind of cosmic closure that no one here on Earth can give you. Nobody can love you like that. Nobody will ever be able to truly say, I will never, ever, ever, ever, ever, ever forsake you.
-
-Because people die. People are sinners. Nobody can look at you and see you holding without blemish, except one who does say, I will never leave you and ever forsake you.
-
-Who does say, in my sight, you are holding without blemish because I've died for you and I've closed you with my own righteousness. I've decked you with jewels. You know, it's a great sin against God to try to get closure out of somebody else that only God can give.
-
-And so Christians are able to demystify sex. And that's what he was doing. A Christian is somebody who says, this is a sin, if my sexual desire is rather a controlist because I'm trying to get closure out of somebody who can never give it to me, I'm going to demote it.
-
-Sex is a great thing. I hope I will have a wonderful sex life someday. But if I let this drive me, I'm trying to get something that it can never give.
-
-Trying to get something out of it can never give. Self-control comes not by thinking of sex who negatively. Christian self-control comes by thinking of sex gloriously, that it puts it in a sense in its place here and now.
-
-What God does, if you're obedient, like Joseph, what does it say? Verse 21, God was with him. If you're obedient like Joseph, you're going to experience rejection.
-
-You're going to experience temporary isolation. You're going to have people laugh at you just like Joseph. But you know what?
-
-Potterford must have actually trusted, he must have at least doubted, Joseph integrity must have been so incredibly good that when his wife came and accused him, there must have been doubts in Potterford's mind because what he was accused of was a capital offense. We know that. And so Potterford must have had doubts.
-
-His integrity was so great that it saved him even at a moment like that. God was with him and he'll be with you. But what, I know somebody's asking, what if Joseph's not really my model?
-
-What if I'm a lot more like Potterford's wife? What does Jesus say to me? He says the same thing to you that he said to the woman caught an adultery.
-
-He stood there before her and what did he say to her? He wouldn't cast a stone. Why?
-
-He said to her, go and sin no more. Neither do I condemn thee. And you know what's so amazing?
-
-When he said that, first of all, he called sin sin. He said, don't sin anymore. He didn't say it wasn't a sin.
-
-Sexual sin is sin. But then he said, neither do I condemn thee. Wait.
-
-If you say someone's guilty, then you have to condemn them. And if you say they're not condemned, then they must, they must not be guilty. Jesus says, you're guilty and I don't condemn you.
-
-How could he say that? I know why. Do you know what was going on in his mind when he was saying that?
-
-He was saying, my dear sister, you're guilty. But there's no condemnation for you because I'm not throwing a stone at you because I'm going to take the stones that should come to you. I'm going to take the spear.
-
-I'm going to take the thorns. I'm going to take the fever and the bloody sweat so that in yours, in my sight and in my father's sight, you can be holy and blameless. If you receive Christ, one of the greatest things that happens in the genealogies of Matthew, Matthew chapter 1, verse 1, and following, it gives you the family tree of the Messiah and in the family tree of the Messiah is Tamar.
-
-Tamar, the incest victim, Bathsheba, the adulteress, Rahab, the prostitute, Mary, a single unwed mother. What are they doing in the family tree? Jesus Christ says, I'm proud of you.
-
-I don't care what you've done. I don't care what you've done. If you receive me, I'm proud of you.
-
-Go and send no more. Neither do I condemn me. If you name your sin, he will say peace to you.
-
-But if you say peace to yourself, he will name your sin. That's how it works. Come to him, let's pray.
-
-Our father, we ask that you would make us so aware of the glorious nature of this sexual nature that you've given us, that we might find ourselves in wonderful self-control. Teach us how to understand, how to handle, and how to be healed. In those aspects of our sexuality where we are wounded and broken, because of your son, who said, neither do I condemn thee.
-
-Go and send no more. And Jesus, name we pray. Amen.
-
-Thanks for joining us here on the Gospel Unliked Podcast. We hope that today's teaching encouraged you to go deeper into God's Word. You can help others discover this podcast by rating and reviewing it, and to find more great Gospel-centered content by Tim Keller, visit gospelunlife.com.
-
-Today's sermon was recorded in 1995. The sermons and talks you hear on the Gospel Unliked Podcast were recorded between 1989 and 2017, while Dr.
-
 ---
-
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《生命中的福音》。你不需要走得太远，就能看到这个世界和我们自身出了什么问题。但有没有一种答案能触及根本，解释为什么会有这些问题？今天的信息中，提摩太·凯勒通过圣经中的故事探讨了人类的处境，揭示了圣经对罪的看法以及它为何是唯一能够面对关于我们自己的真相的答案。
-
-让我来读一下今天的教导，所依据的经文在你的讲道单上。这是创世记39章4至21节的内容。约瑟蒙主人波提乏的恩宠，波提乏是法老王宫里的高位官员。约瑟蒙主人的恩宠，成了他的仆人，波提乏把一切所有的事都交托在他手中。
-
-从波提乏把一切所有的事都交托在他手中开始，主赐福给波提乏家中的事和田间的物。因此，波提乏所拥有的一切，在家中、在田间，主的恩惠都临到他身上，他就没有不缺少什么，只顾得着食物吃的。约瑟生得俊美，又蒙主恩。过了些时候，波提乏的妻子留心看他，对他说：“你来与我睡吧！
-
-”但约瑟拒绝了。他对她说：“看哪，主人没有留下家中所有的事交在我手中，他也没有不关心什么的。家中所有的，都交给我管理。没有人比我更大。
-
-惟有你，因为你是主人的妻子。我怎能作这大恶、干犯神呢？”虽然她常向约瑟说这话，约瑟还是不肯听从她的话和她睡在一起。有一天，他在家里做工，家中人都不在里面。
-
-她抓住他的衣襟，说：“跟我上床吧。”但他把外衣留在她手里就跑了出去。当她看到他留下外衣跑出房子时，便叫来仆人说：“你们看，这个希伯来奴仆被我们带到这里来是想戏弄我们。他进来想和我睡觉，但我尖叫起来。
-
-” 当他听到我的呼救声后，就把外衣丢在我身边就跑了出去。她把他的外衣留到丈夫回家时才拿出来。然后她对丈夫说：“这个希伯来奴仆是你带来的，他来这里是要戏弄我。但当我尖叫求救时，他就留下外衣跑出房子。
-
-” 当她的丈夫听到这个故事后，妻子这样告诉他说：“这就是你的奴仆对我做的。”于是他的主人非常生气，就把约瑟抓起来关进了监狱，那是王宫里囚犯被关押的地方。然而，在约瑟被关在监牢里的时候，耶和华与他同在；主赐福给他，使他在狱卒的眼中蒙恩。这是上帝的话语。
-
-我们一直在讨论七种致命的罪恶，现在终于到了一个有趣的罪恶——淫乱。约瑟的职业生涯进展得相当顺利。他的兄弟把他卖为奴仆，但他被埃及的一个高级官员买下，并因为管理能力出众，很快就成了这个庞大庄园的首席运营官（COO）。他的职业生涯发展得很好。
-
-这很像我认识的一些在纽约的人。约瑟的职业生涯进展得很顺利，然后淫乱出现了，而淫乱是一个如此强大的力量，你如何处理它可能会决定你的成败。你们不是一直在阅读过去五年甚至接近十年里关于性行为的所有谨慎的书籍和文章吗？几年前，《旧视》杂志的一位资深编辑曾是性解放运动的倡导者，这发生在20世纪60年代末和70年代初。
-
-到了80年代，他出版了一本书叫《性之终结》，书中他忏悔道：“我终于意识到每种游戏都有规则，性也有其规则，除非你遵守这些规则，否则你会发现性可能会带来一种其他任何事情都无法比拟的孤独感。”这真是讽刺。性会带来孤独。所以你看，即使一切似乎都很顺利，但性还是会到来。
-
-约瑟夫，一切都进展得很顺利。性来了。他甚至没有寻找它，但它还是来了，并且直击他的内心。你如何应对它将极大地影响你的生活走向。
-
-那么，我们从这段经文中学到了什么呢？在七宗罪中，我们将称之为淫欲，我一会儿再解释这个词。但这里我们要学习的是，通过观察波提乏的妻子和约瑟夫的行为，以及上帝的行为，我们可以学到很多。从波提乏的妻子那里，我们学会了如何理解淫欲；从约瑟夫那里，我们学到了如何应对淫欲；从上帝那里，我们学到了如何治愈淫欲，即如何理解和处理它，如何治愈它。
-
-让我们首先看看当看到约瑟夫和波提乏的妻子时，实际上我们有两起不同的案例。我称之为约瑟夫的案例。但事实上，这里有两种情况。这两种情况展示了性、性和淫欲的不同处理方式，所以我们有一个好的例子和一个坏的例子。
-
-当我们观察波提乏的妻子的行为时，我们可以学到如何理解淫欲的本质。有些人可能会对使用“淫欲”这个词感到不太高兴。当吉米·卡特谈到淫欲时，可怜的吉米·卡特说了些什么。我没有承认他有时会怀着淫念看女人，而我至今还记得丹·阿克罗伊德在周六夜现场连续三个月拿吉米·卡特开涮。
-
-有人甚至说，“淫念”这个词反映了维多利亚时代对性行为的倒退和压制态度，确实如此。通常圣经中的“淫念”一词并不是指性的。但我们不能比耶稣更聪明。而耶稣自己说过，如果你怀着淫念看人，你的心里就已经犯了奸淫罪。
-
-所以让我们不要比耶稣更聪明。圣经中提到的“淫念”通常与性无关，“淫念”是指一种不合宜的愿望，一种不正当的欲望。那么我们从性欲的角度能学到什么？首先，我们看到约瑟夫被波提乏的妻子注意到了。
-
-不幸的是，英语中的“注意到”这个词用在这里有点弱了。事实上，她注意到他是因为觉得他很美。但她并没有止步于此。希伯来文中说她“举目望着他”，意思是她在打量他的美丽。
-
-她说他身材匀称、容貌俊美，身体和脸庞都很漂亮。她一直在打量着他。然后我们看到，她花了很多时间在心里想着他，以至于最终不顾危险，拒绝了他的多次拒绝后，她还是决定与他发生关系。于是她尝试了。
-
-但最后我们看到，当约瑟夫一次又一次地拒绝她时，当她意识到无法得到他时，她变得凶残起来，试图杀死他。你说，这在哪儿？其实她指控约瑟夫犯下了重罪。我们稍后再讨论这个。
-
-那么我们能从“淫念”中学到什么呢？首先，负面的教训，然后是正面的启示。负面的是，“淫念”并不是单纯的性欲。约瑟夫并没有说这是邪恶的行为因为它涉及性。
-
-他也没有说这本身就是罪行因为他认为它是性的。圣经从未说过纯粹的性欲就是“淫念”。> 性欲本身是错误的。性欲本身就是污染、玷污，没有丝毫的好。
-
-正如我们将要看到的，《圣经》对性有着最崇高的看法。事实上，我很乐意说，《圣经》对性的看法比其他任何神圣书籍或宗教都要崇高。我愿意为此辩护。在《创世记》2章中，上帝创造了男性和女性。
-
-当祂创造性欲时，我们被告知祂一看就立刻说很好，并且吩咐他们要繁衍后代。明白了吗？我们在旧约中可以看到，在去年的讲道中我们已经谈到了，《箴言》5章命令夫妻之间要有彼此间的性爱。在新约《哥林多前书》7章中，同样的教导也适用于夫妻双方，丈夫和妻子被命令要主动培养对对方的性欲。
-
-《雅歌》是一首欢乐而生动地庆祝性爱之爱的诗歌。历史上，当人们审视七宗罪时，纵欲从来都不是最严重的罪行，它总是排名靠后。让我向你们展示我的意思。傲慢、嫉妒、贪婪、愤怒等罪行一直以来都排在前列。
-
-这些罪行自古以来被认为是更糟糕的事情。为什么？因为基督教神学的道德学家们一直都知道，骄傲、贪婪、想要伤害别人、想要从别人那里偷东西、想要把自己放在中心而践踏他人，并不是人心所为。这些都是不自然的欲望，是不自然的。
-
-你并不是为了偷窃而生，也不是为了伤害而生，更不是为了仇恨和杀人而生，而是为了性欲而生。这就是为什么我们会看到，当我们探讨纵欲时，它是一种自然欲望出了问题的原因。这就是为什么耶稣说，当祂对当时的道德和宗教领袖们，那些自以为是的宗教领袖们说：“你们这些淫妇和娼妓倒比你们圣洁。”这是对性的一种肯定。
-
-性本身，强烈的性欲本身，并不是错的，相反，在某些情况下，它是被命令的。所以，认为欲望就是某种性激情的想法根本就不存在。那么，什么是性欲？它又是如何变成欲望的呢？
-
-从这段经文我们可以看出，欲望有三种表现形式。首先，欲望是失控的渴望。我将简要说明这一点。看看这位可怜的女人，在她的性激情中无法自拔时，尽管她得到了非常坚定的警告，而且不仅如此，即使她所做的事情对她个人来说非常危险，她也无法停止。
-
-日复一日，年复一年。人们会告诉我们，性就像一种食欲一样。所以当你饿了就应该吃饭，当你觉得性感的时候就应该发生关系。这只是一个食欲而已，并且是正常的，没有人应该认为他们的食欲有什么不对的地方。
-
-真的吗？真的吗？我所知道的没有哪一种食欲能像这种欲望那样迅速变得如此痴迷。当然，那位作家也指出了这一点：如果你发现一个国家，在年轻人去上大学时，他们把汉堡包和热狗的海报贴满了整个房间，每个人都跑来跑去想看这些海报。
-
-如果你还发现一个国家的人们付钱去看某人慢慢地揭开蛋糕和馅饼，你就会认为这个国家里的人是饿坏了的，并且你会惊讶地发现，不仅他们没有饿坏，反而吃得越多，这种行为就越频繁。这显然是一种失调的食欲。有什么不对劲的地方。这不是单纯的食欲。
-
-你不能信任这样的食欲。首先，欲望是失去控制的渴望。它就是失控了。其次，更重要的是，欲望是没有承诺的情况下追求快乐。
 
 欲望是没有承诺的情况下追求快乐。不只是追求快乐而已。我们说过，这没有问题。首先，它是无序的渴望；然后，是无法控制地追求快乐。
 
@@ -461,7 +348,43 @@ Today's sermon was recorded in 1995. The sermons and talks you hear on the Gospe
 
 这就是婚姻的意义。如果你说我想在身体上这样，但在其他方面不想这样做，那么上帝所结合的，人不可拆散。这才是极其自然的。因此，让我们看看约瑟是如何处理的。
 
-所以，淫欲不仅仅是无法控制地追求快乐，也不仅仅是不带承诺地追求快乐。实际上，淫欲是不带人的快乐。没错。淫欲与爱恰恰相反。
+所以，淫欲不仅仅是无法控制地追求快乐，也不仅仅是不带承诺地追求快乐。
+
+---
+
+## 淫欲是无视人格的欢愉 / Lust as Pleasure Without a Person
+
+It's actually desiring pleasure without a person. Yes. Lust is the opposite of love.
+
+Love, you want a person. In lust, you just want the pleasure. And the person is a necessary commodity to get there.
+
+In love, you want a person. And if you have to forego pleasure, fine. It's the person that's non-negotiable.
+
+The pleasure that's negotiable. In lust, it's the pleasure that's non-negotiable. And the person that's negotiable, how do you see it?
+
+Look at what happened to her. Look what happened to Potiphar's wife when she realized he had spurned her. She wanted the affirmation.
+
+She wanted the experience. And when she saw she couldn't have him, she turned murderous. And it's not just when you can't get the person that you really see that what you thought was love was really lust because it turns murderous.
+
+Sometimes, even when you get the person, in 2nd Samuel 13, there's an amazing story about David's son, Amon. And Amon slept with his half-sister, Tamar. He got her to bed.
+
+He seduced her. Incessed. We're told that before he seduced her, he was sick with love.
+
+But if you ever read that, it's in 2nd Samuel 13. It's an amazing passage. As soon as he had done consummating sex, it said suddenly, he hated her with a hatred that was greater than the love with which he had loved her.
+
+And he got up and said, arise and go. What had happened? Lust is one pleasure without a person.
+
+Lust is getting incredibly in love with somebody you don't even know. All you see is what you think they can give you. You don't even know them.
+
+You have no idea who they are. In other words, sin takes lust. A good thing, sexual desire, and sin turns sexual desire into lust because it makes sexual desire and end in itself instead of a way of serving somebody.
+
+And through which you can learn the incredible pleasure of giving pleasure. Instead of learning the pleasure of giving pleasure, instead of using sex as a way to serve somebody else, serving somebody you're committed to, somebody you're trying to give pleasure to instead becomes an end in itself and a person just happens to be a necessary commodity. So we can discard the people.
+
+And we do. As time goes on, as long as we have the thing. Now how does Joseph handle it?
+
+---
+
+实际上，淫欲是不带人的快乐。没错。淫欲与爱恰恰相反。
 
 在爱中，你想要的是人；而在淫欲中，你只想要快乐。而这个人只是达到目的的必需品。在爱中，你想要的是人。如果为了放弃快乐，那也没关系。
 
@@ -478,6 +401,48 @@ Today's sermon was recorded in 1995. The sermons and talks you hear on the Gospe
 换句话说，罪将性欲望转变为淫欲，它把原本美好的性欲望变成了一种自我中心的行为，而不是为了服侍他人。通过这种方式，你们可以学习到给予他人快乐的无比喜悦。而不是去学习如何给予他人快乐，不是将性作为一种为别人服务的方式，而是为了取悦你所承诺的人、你试图给予其快乐的人，这种行为本身成了目的，而人只是成为了一种必要的工具。所以我们可以抛弃这些人。
 
 我们就是这样做的。只要还有那东西，时间一长，我们就这样做。现在约瑟是如何处理这种情况的呢？他教会了我们一些非常值得注意的事情。
+
+---
+
+## 约瑟如何胜过试探：思想与行动 / How Joseph Handled Temptation: Mind and Action
+
+He teaches us something pretty remarkable. As you can see, sin makes sexual desire a very powerful thing. Well, how does he handle it?
+
+He handles it like this. First of all, well, there's two things he does. One is pretty obvious.
+
+One is not so obvious. One is he controls his actions. You notice it says he would refuse to be with her.
+
+You see that? He says not only refuse to go to bed, whether he refused to be with her, he stayed away from her. He stayed away from temptation.
+
+We talked to him about that last week. But the other thing he did, he didn't just control his actions, he controlled his thoughts. James Fix, the guy who wrote the complete book of running, there's a fascinating place in that book in which he says, the hardest thing about running, Amerathons, is your mind.
+
+He found in the early stages of becoming a marathon runner, that what will happen in the midst of the marathon is the fatigue will be so great that your mind will say, why did you ever start this race? What was it that attracted you to distance running? And James Fix said, I would find that I had no answer.
+
+I couldn't remember why I wanted to. He says, one time he dropped right out of a marathon because your brain plays tricks on you, he says, when the heat's on. And the brain will suddenly, he will just decide to forget the reasons that you love running, the great benefits of running in general for you, the great benefits of this race and you just can't even remember it.
+
+So he said, he learned that one of the most important things to do, if you're going to stick with that marathon through the hard time, he says, beforehand, you've got to practically memorize the reasons you love running. Memorize the reasons is an important race. Memorize the reason so you can tell your brain that.
+
+But he says, you know, if things really get bad and you can't remember everything, you know what he says? He says, the final thing I used to trick, I used to play on my brain as I'd say, well, I know when I get there, I'll remember it. I know I had a good reason to start.
+
+And when I get there, I'll remember it. Now there's a lot of wisdom in this and this is what Joseph does. Joseph says, how can I then do this wicked thing and sin against God?
+
+Now there it is. Now, he says two things to himself. First of all, he says, how can I then do this wicked thing?
+
+Now then it refers to the fact that we're not married. And so what he's doing is he's reminding himself of the penultimate purpose of marriage. And the penultimate purpose of marriage is absolute union of body and soul, not pulling them apart, but keeping them together.
+
+And so what does he do? He says to himself, I will not be a monstrosity. I will not ravage myself.
+
+I will not that which God has joined together. I will not put a sunder. But I suppose if Joseph was completely blanking out, here's what you can say, by the way, if you totally blank out, you say, look, no sex outside marriage.
+
+This is the one thing that for 2,000 years, every branch of the Christian Church has agreed on orthodox Catholic and Protestant. Jewish Judaism, Confucianism, Hinduism, Islam, all of these centuries of these great religions who disagree on so many other things they all agree with this. They all believe this.
+
+The only people who don't believe it is something, this is just a belief that just come up very recently and very, very small little bubble pockets of people, you know, like Manhattan. And so what you have to say is, I know there's a good reason, I just can't remember when I get there, when I get to the finish line, it'll all come back. That's not the only thing he says.
+
+He remembers, he fills his mind with the penultimate goal, but he also fills his mind with the ultimate goal. He says, how can I do this thing and sin against God? Now, how could this be a sin against God?
+
+Now, it could be a sin against Potiphar, the husband, yeah, it could be a sin against Potiphar's wife. It wouldn't be that hard to say if he had given into her in the midst of her passion that she was giving in, he was sending against her. He certainly could say he was sending against himself in his own body, but how God?
+
+---
 
 正如你们所见，罪恶让性欲变得极其强大。那么他是如何处理这种情况的呢？他这样处理：首先，有两件事他做了。其中一件非常明显。
 
@@ -502,6 +467,54 @@ Today's sermon was recorded in 1995. The sermons and talks you hear on the Gospe
 唯一不相信这一点的人是那些非常近期才出现的小群体，就像曼哈顿那样。所以你必须说：“我知道有一个很好的理由，当我到达终点时，一切都会回来。”这并不是他唯一说的话。他记得，他在心里装满了终极目标，但也在心里装满了最高尚的目标。
 
 他说：“我怎么能够做这件事，却得罪神呢？”现在，这怎么能是得罪神呢？现在，如果他屈服于她的热情之中，那确实可能算是对波提乏的不忠，或者对波提乏的妻子不忠。如果他在她激情中背叛了她，当然可以说也是在背叛自己。
+
+---
+
+## 性的终极目的：指向上帝的路标 / The Ultimate Purpose of Sex: A Signpost to God
+
+And here's the reason, because I told you there were two goals for sex and this is the ultimate goal. And the ultimate goal of sex is to be an appetizer and a sign of the absolute ecstasy and joy of complete union with God. Sex is a sign and an api-biblical, according to biblical theology, sex is a foretaste and a sign and a signpost pointing toward the unbelievable joy and ecstasy of complete union with God.
+
+In Ephesians 5, the New Testament says, that when a husband and wife unite, it's a great mystery, but it tells us, it shows us Christ uniting with His people. In Romans 7, Paul is so explicit. He says, just as a husband and wife get into each other's arms and through sexual union, fruit is born into the world through the woman's body.
+
+So when Christ and the believer are in each other's arms, Christ's fruit is born into the world through you unbelievable, it's what the Bible says. Sex is a foretaste of that. When sex is the best possible here, what do you want?
+
+What do you get? You want somebody to see you completely and not just tolerate it. See you naked, not just tolerate it, but you want to see their delight in you.
+
+As they see you, you want to see in their eyes them looking at you as if you are holy and without blemish. This is the reason we look in mirrors. This is the reason a lot of people don't want to have sex or get married.
+
+You're afraid of what people are going to see. You can cover it up. There's always cosmetics.
+
+There's all sorts of ways of covering up, but here the idea that somebody will see you, what you really want in sex, if somebody see you and know you completely and then delight in you as if you were holy and without blemish. Then you want somebody's arms to come around you and give you a cradle of absolute security for your moment of absolute vulnerability and you want to do the same. You know what?
+
+Nobody can do that. What's funny is when sex is going well and when love is going well, the only way we can talk about it is in religious language. This is the sexual proof of the existence of God that sex, love, makes you talk about things that aren't true.
+
+You start to say, I will love you forever. You know, even the great, even the drippy songs. They go on and on.
+
+They say longer than there have been fishes in the ocean, higher than any bird ever flew, longer than there have been stars up in the heaven. I've been in love with you. And we go, oh, why?
+
+Because your sexuality is pointing to the eternal. Even when you think you've got it, you don't have it. It's an illusion.
+
+Your sexual desire once a kind of cosmic closure that no one here on Earth can give you. Nobody can love you like that. Nobody will ever be able to truly say, I will never, ever, ever, ever, ever, ever forsake you.
+
+Because people die. People are sinners. Nobody can look at you and see you holding without blemish, except one who does say, I will never leave you and ever forsake you.
+
+Who does say, in my sight, you are holding without blemish because I've died for you and I've closed you with my own righteousness. I've decked you with jewels. You know, it's a great sin against God to try to get closure out of somebody else that only God can give.
+
+And so Christians are able to demystify sex. And that's what he was doing. A Christian is somebody who says, this is a sin, if my sexual desire is rather a controlist because I'm trying to get closure out of somebody who can never give it to me, I'm going to demote it.
+
+Sex is a great thing. I hope I will have a wonderful sex life someday. But if I let this drive me, I'm trying to get something that it can never give.
+
+Trying to get something out of it can never give. Self-control comes not by thinking of sex who negatively. Christian self-control comes by thinking of sex gloriously, that it puts it in a sense in its place here and now.
+
+What God does, if you're obedient, like Joseph, what does it say? Verse 21, God was with him. If you're obedient like Joseph, you're going to experience rejection.
+
+You're going to experience temporary isolation. You're going to have people laugh at you just like Joseph. But you know what?
+
+Potterford must have actually trusted, he must have at least doubted, Joseph integrity must have been so incredibly good that when his wife came and accused him, there must have been doubts in Potterford's mind because what he was accused of was a capital offense. We know that. And so Potterford must have had doubts.
+
+His integrity was so great that it saved him even at a moment like that. God was with him and he'll be with you.
+
+---
 
 但怎么可以说是得罪了神呢？原因就在于此，因为之前我告诉过你们，性有两重目的，而这正是最高尚的目的。性最高的目的是作为与神完全结合的前奏和预兆，象征着绝对的喜乐和喜悦。根据圣经神学，性是尝味、预示和指向与神完全结合那无法言喻的喜乐和喜悦。
 
@@ -528,6 +541,48 @@ Today's sermon was recorded in 1995. The sermons and talks you hear on the Gospe
 如果你像约瑟那样顺服上帝，神会如何对待你？参见第21节：“神与他同在。”如果你像约瑟一样顺服，你会经历被排斥，暂时的孤立，甚至有人会嘲笑你，就像约瑟一样。但你知道什么吗？
 
 波特福德一定是真正信任约瑟，至少对他的正直有所怀疑。因为被指控的事情是重罪，所以波特福德一定有过疑虑。约瑟的正直如此之高，以至于即使在那种情况下也能保护他。神与他同在，也会与你同在。
+
+---
+
+## 恩典临到破碎者：我也不定你的罪 / Grace for the Broken: Neither Do I Condemn You
+
+But what, I know somebody's asking, what if Joseph's not really my model?
+
+What if I'm a lot more like Potterford's wife? What does Jesus say to me? He says the same thing to you that he said to the woman caught an adultery.
+
+He stood there before her and what did he say to her? He wouldn't cast a stone. Why?
+
+He said to her, go and sin no more. Neither do I condemn thee. And you know what's so amazing?
+
+When he said that, first of all, he called sin sin. He said, don't sin anymore. He didn't say it wasn't a sin.
+
+Sexual sin is sin. But then he said, neither do I condemn thee. Wait.
+
+If you say someone's guilty, then you have to condemn them. And if you say they're not condemned, then they must, they must not be guilty. Jesus says, you're guilty and I don't condemn you.
+
+How could he say that? I know why. Do you know what was going on in his mind when he was saying that?
+
+He was saying, my dear sister, you're guilty. But there's no condemnation for you because I'm not throwing a stone at you because I'm going to take the stones that should come to you. I'm going to take the spear.
+
+I'm going to take the thorns. I'm going to take the fever and the bloody sweat so that in yours, in my sight and in my father's sight, you can be holy and blameless. If you receive Christ, one of the greatest things that happens in the genealogies of Matthew, Matthew chapter 1, verse 1, and following, it gives you the family tree of the Messiah and in the family tree of the Messiah is Tamar.
+
+Tamar, the incest victim, Bathsheba, the adulteress, Rahab, the prostitute, Mary, a single unwed mother. What are they doing in the family tree? Jesus Christ says, I'm proud of you.
+
+I don't care what you've done. I don't care what you've done. If you receive me, I'm proud of you.
+
+Go and send no more. Neither do I condemn me. If you name your sin, he will say peace to you.
+
+But if you say peace to yourself, he will name your sin. That's how it works. Come to him, let's pray.
+
+Our father, we ask that you would make us so aware of the glorious nature of this sexual nature that you've given us, that we might find ourselves in wonderful self-control. Teach us how to understand, how to handle, and how to be healed. In those aspects of our sexuality where we are wounded and broken, because of your son, who said, neither do I condemn thee.
+
+Go and send no more. And Jesus, name we pray. Amen.
+
+Thanks for joining us here on the Gospel Unliked Podcast. We hope that today's teaching encouraged you to go deeper into God's Word. You can help others discover this podcast by rating and reviewing it, and to find more great Gospel-centered content by Tim Keller, visit gospelunlife.com.
+
+Today's sermon was recorded in 1995. The sermons and talks you hear on the Gospel Unliked Podcast were recorded between 1989 and 2017, while Dr.
+
+---
 
 但有人可能会问：如果约瑟不是我的榜样呢？如果我更像是波特福德的妻子怎么办？耶稣对那个被捉到行淫的女人说了什么？祂站在她面前，对她说：“拿石头打她的，就拿石头来吧。
 

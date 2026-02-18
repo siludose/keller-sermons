@@ -6,7 +6,7 @@
 
 ---
 
-## "道成肉身"——人类思想的革命
+## "道成肉身"——人类思想的革命 / The Word Made Flesh: A Revolution in Human Thought
 
 Welcome to Gospel in Life. Today, Tim Keller is looking at a passage from the opening chapter of the Gospel of John. John begins his account of Christ's birth not with shepherds or angels, but with the mystery of the Word becoming flesh, God Himself entering the world as a person in Jesus Christ. Join us as Tim Keller explores the meaning of Jesus' birth. Today's scripture is from the Gospel of John, chapter 1, verses 14 through 18. The Word became flesh and made His dwelling among us. We have seen His glory, the glory of the one and only Son, who came from the Father, full of grace and truth.
 
@@ -27,14 +27,6 @@ And then suddenly, John comes and says, yeah, but the word became flesh. And he 
 But the Greeks and Romans realized what he was saying was, if the way to connect to the very cosmic center of the universe is to know this flesh and blood human being. It was incredible. The word became flesh. And by the way, the word flesh there is a kind of graphic word. It's a word that almost means what we might say, meat. And it was a way of saying the word became really physical. It didn't just appear to be a human being.
 
 It wasn't a hologram. It wasn't a humanoid. The word became flesh.
-
-But the Son of God, the Creator of the universe, the Son of God, the Creator of the universe, the Son of God, the transcendent God, the cosmic center of the universe became a flesh and blood human being who could be known, Jesus Christ. Now that's Christmas. But, and you know what, actually, that's the whole sermon.
-
-But at least to say that's what the doctrine is. That's what the teaching is. But what I like to do is think about the fact that Christmas doesn't change our lives like it ought to. This is a life transforming truth. In many ways, but what I like to do is draw out three ways in which this truth of its grasp should change our lives. Three extremely practical implications. If you really believe the doctrine of Christmas, then these three things are true.
-
-And we should grasp them with both hands and make sure that we live them out. Here's the three things, three implications, three practical implications. Number one, if Christmas happened and it did, we have infinite comfort in the face of suffering.
-
-Now, by the way, Christmas comforts us or strengthens us for suffering actually at two levels. First is just, frankly, there's the understanding level, almost kind of like the intellectual level. See, when you see somebody suffering, who's really a great person, a wonderful person, they're going through horrendous suffering. It's just natural to say, what kind of God would allow something like that?
 
 ---
 
@@ -62,7 +54,15 @@ Now, by the way, Christmas comforts us or strengthens us for suffering actually 
 
 ---
 
-## 苦难中的无限安慰
+## 苦难中的无限安慰 / Infinite Comfort in Suffering
+
+But the Son of God, the Creator of the universe, the Son of God, the Creator of the universe, the Son of God, the transcendent God, the cosmic center of the universe became a flesh and blood human being who could be known, Jesus Christ. Now that's Christmas. But, and you know what, actually, that's the whole sermon.
+
+But at least to say that's what the doctrine is. That's what the teaching is. But what I like to do is think about the fact that Christmas doesn't change our lives like it ought to. This is a life transforming truth. In many ways, but what I like to do is draw out three ways in which this truth of its grasp should change our lives. Three extremely practical implications. If you really believe the doctrine of Christmas, then these three things are true.
+
+And we should grasp them with both hands and make sure that we live them out. Here's the three things, three implications, three practical implications. Number one, if Christmas happened and it did, we have infinite comfort in the face of suffering.
+
+Now, by the way, Christmas comforts us or strengthens us for suffering actually at two levels. First is just, frankly, there's the understanding level, almost kind of like the intellectual level. See, when you see somebody suffering, who's really a great person, a wonderful person, they're going through horrendous suffering. It's just natural to say, what kind of God would allow something like that?
 
 And it's typical, unfortunately, for religious people to speak like this. They say, well, you know, God works in mysterious ways and he has his good reasons, but it's too complicated for us, so you just have to have faith. Religious people talk like that all the time. And I have to say, it's kind of infuriating. It feels shallow. It feels callous. And you want to say, why should I trust this God?
 
@@ -75,16 +75,6 @@ So we can't completely blame him. And what Camus is saying is, I think it's just
 So we can't completely blame him. If God came to earth and involved himself in our life of pain, and suffered enormously, suffered infinitely, suffered horrendously, then if you ask, well, why is God allowing evil and suffering to continue?
 
 We still don't know what the reason he is doing that is. We still don't know what the reason is. But now we know what the reason isn't. It isn't that he doesn't care. It isn't that he's remote. It isn't that he doesn't love us. See?
-
-And what Camus is saying is, we still don't know why. But the fact that he suffered. See, other religions have God up there, impervious to suffering. And if you say, why does that God allow evil and suffering?
-
-And, well, he's got his reasons. Well, I don't know. How do I know he's got good reasons?
-
-But this God, the God who comes to earth and suffers, then whatever his reasons are, it's not that he doesn't care. It's not that he doesn't know what we're going through. And so, see, even at a kind of understanding level, as Camus says, it's a suffering God. And you don't shake your fist at that God in the same way. You still don't know. You still wrestle. At the same time, you say, I know he loves us.
-
-And it's not just at the understanding level. The doctrine of Christmas actually helps us at the actual experience level, when you're actually going through it, when you really are in darkness and despair. Hebrews chapter 2 says, because Jesus himself suffered, he is able to help those who are being tried and tested. Because Jesus suffered, he can help you. If you're going through something really hard, and some well-meaning person who's never experienced what you've experienced, some well-meaning person comes along and says, oh, you know, buck up, you know, you can do it, you can get through it. Maybe we shouldn't, maybe we shouldn't, but there's something in us that wants to say, and sometimes we say it out loud, you have no idea what I'm going through. You know, save your breath.
-
-And somebody who hasn't gone through what we've gone through, and we're sinking, we just save your breath. You know, you don't know. But if you meet somebody who's not only been through every single thing you've been through, but 10 times worse, 10 times worse, you listen to that person, don't you?
 
 ---
 
@@ -110,7 +100,17 @@ And somebody who hasn't gone through what we've gone through, and we're sinking,
 
 ---
 
-## 受苦的神能坚固受苦的人
+## 受苦的神能坚固受苦的人 / A Suffering God Can Strengthen Suffering People
+
+And what Camus is saying is, we still don't know why. But the fact that he suffered. See, other religions have God up there, impervious to suffering. And if you say, why does that God allow evil and suffering?
+
+And, well, he's got his reasons. Well, I don't know. How do I know he's got good reasons?
+
+But this God, the God who comes to earth and suffers, then whatever his reasons are, it's not that he doesn't care. It's not that he doesn't know what we're going through. And so, see, even at a kind of understanding level, as Camus says, it's a suffering God. And you don't shake your fist at that God in the same way. You still don't know. You still wrestle. At the same time, you say, I know he loves us.
+
+And it's not just at the understanding level. The doctrine of Christmas actually helps us at the actual experience level, when you're actually going through it, when you really are in darkness and despair. Hebrews chapter 2 says, because Jesus himself suffered, he is able to help those who are being tried and tested. Because Jesus suffered, he can help you. If you're going through something really hard, and some well-meaning person who's never experienced what you've experienced, some well-meaning person comes along and says, oh, you know, buck up, you know, you can do it, you can get through it. Maybe we shouldn't, maybe we shouldn't, but there's something in us that wants to say, and sometimes we say it out loud, you have no idea what I'm going through. You know, save your breath.
+
+And somebody who hasn't gone through what we've gone through, and we're sinking, we just save your breath. You know, you don't know. But if you meet somebody who's not only been through every single thing you've been through, but 10 times worse, 10 times worse, you listen to that person, don't you?
 
 And when that person says, do this and do this, and you can do it. See, when that person strengthens you, you feel strengthened. Well, look at Jesus.
 
@@ -131,8 +131,6 @@ So he was turned down too. Every place you could ever go, he's been there. Every
 That's what it says. He will strengthen you. Go to him.
 
 There's that great, you know, poem called Jesus of the Scars. And the last stanza goes like this. I think I can remember it. The poet is contrasting the different gods of the different religions. And he's looking at Jesus and he says, the other gods did ride. Thou did stumble to thy throne. To our wounds, only God's wounds can speak.
-
-And no God has wounds, but thou alone. To our wounds, only God's wounds can speak and no other God has wounds, but thou alone. So first of all, the Doctor of Christmas gives you infinite, comfort and suffering. Are you taking it?
 
 ---
 
@@ -171,7 +169,9 @@ And no God has wounds, but thou alone. To our wounds, only God's wounds can spea
 
 ---
 
-## 效法道成肉身：投入服事
+## 效法道成肉身：投入服事 / Imitating the Incarnation: Entering into Service
+
+And no God has wounds, but thou alone. To our wounds, only God's wounds can speak and no other God has wounds, but thou alone. So first of all, the Doctor of Christmas gives you infinite, comfort and suffering. Are you taking it?
 
 Look, everybody, all of you out there who are human beings, okay? The rest of you can just not listen for a minute, but all human beings, you either have suffered or you are suffering or soon you will be suffering something. So do you have this?
 
@@ -220,8 +220,6 @@ That's a little bit Victorian, a little bit, a little florid, but it's, it's sti
 Wherever people suffer, there will we be to comfort. Wherever they strive, there will we be to help. Wherever they fall, there will we be to uplift. Self-sacrifice means not indifference to our times and our fellows. It means absorption in them. It means forgetfulness of self in others. It means entering into every person's hopes and fears, longings and despairs.
 
 It means many-sidedness of spirit, multi-form activity, multiplicity of sympathies. It means not that we should live one life, but a thousand lives, binding ourselves to a thousand souls by the filaments of so loving a sympathy that their lives become ours. So first, practical implication, infinite comfort in the face of suffering.
-
-Second, powerful conviction to serve others to the point of vulnerability, to get involved, to come down. But lastly, Christmas gives us a hope that is both realistic, realistic, and at the same time, infallible. Look at this, the rest of the passage, I mean, I've just spent the whole time just on the word became flesh, but it says, and made his dwelling among us.
 
 ---
 
@@ -278,7 +276,9 @@ Second, powerful conviction to serve others to the point of vulnerability, to ge
 
 ---
 
-## 既现实又确定的盼望
+## 既现实又确定的盼望 / A Hope Both Realistic and Certain
+
+Second, powerful conviction to serve others to the point of vulnerability, to get involved, to come down. But lastly, Christmas gives us a hope that is both realistic, realistic, and at the same time, infallible. Look at this, the rest of the passage, I mean, I've just spent the whole time just on the word became flesh, but it says, and made his dwelling among us.
 
 Now, some of you may have heard before that there's a kind of odd Greek word used there, where it, and some literal translations will put it there. What John actually says is the word became flesh and pitched his tent among us, or pitched his tabernacle among us. Now, maybe that was just a vivid way for John to say pitched his tent, you know, and a lot of people lived in tents.
 
@@ -404,7 +404,7 @@ You know, in that play there's a woman named Aldonza who's a prostitute, and Don
 
 ---
 
-## 结束祷告
+## 结束祷告 / Closing Prayer
 
 But look at — you might be literally an Aldonza. You might be here today, you know, and you might be a prostitute, and I want you to know, if you believe in Jesus Christ, he embraces you. You can be literal royalty. Real royalty. You know, when all the kings and queens of all the great royal lines in this — on the earth — are all forgotten, you will be ruling and reigning with him. Because, see, he's punched a hole between the real and the ideal. We have realistic and infallible royalty in the name of Jesus Christ. We have realistic and infallible royalty. Christ the Savior is born.
 

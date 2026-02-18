@@ -4,6 +4,8 @@
 
 ---
 
+## 引言与经文宣读 / Introduction and Scripture Reading
+
 Welcome to Gospel in Life. Are you longing to see real change in your life, in your habits, your relationships, your heart? Today, Tim Keller explores how lasting change actually happens in the life of a Christian and why the Gospel offers a radically different process of transformation than anything else.
 
 Tonight's scripture reading is found in Romans chapter 8, verse 28, and then verses 38 and 39. And we know that for those who love God, all things work together for good, for those who are called according to His purpose. Where I am convinced that neither death nor life, neither angels nor demons, neither the present nor the future, nor any powers, neither height nor depth, nor anything else in all creation, will be able to separate us from the love of God that is in Christ Jesus our Lord.
@@ -31,6 +33,16 @@ More than that was raised than is ever at the right hand of God interceding for 
 No. In all things, in all these things, we are more than conquerors through Him who loved us. We are absolutely certain that neither death nor life nor angels nor principalities nor powers nor things present nor anything to come nor height nor depth nor anything in all creation will be able to separate us from the love of God which is in Christ Jesus our Lord.
 
 There's an assurance there and I'd like to look at them to three headings. That we can be assured, why we can be assured and how we can be assured, how we can make this assurance, not just an abstraction, but an operative thing in our lives. That we can be assured, why we can be assured and how we can be assured.
+
+---
+
+欢迎来到《福音人生》。你是否渴望在你的生活中看到**真正的改变——你的习惯、你的关系、你的心？今天，蒂姆·凯勒探讨了在基督徒的生活中真正持久的改变是**如何发生的，以及为什么福音提供了一个与其他任何东西根本不同的转变过程。今晚的经文摘自《罗马书》第8章第28节和第3-4节。
+
+我想从一个问题开始："上帝控制一切吗？" 现在，这是一个非常复杂的问题，许多基督徒对此有许多想法。有些人说："是的，上帝控制一切。"有些人说："不，上帝给了人类自由意志，所以上帝不控制一切。
+
+---
+
+## 神的主权与人的自由 / The Assurance: God Loves You No Matter What
 
 First, briefly, that we can be assured, what is His point? Here's His point, there's a joy to be had. There's a joy to be had that if you have it, we'll enable you to face anything in life without sinking or crumbling.
 
@@ -68,6 +80,18 @@ And this time, God sends chariots of fire and wipes out the invading army and ev
 
 He was just as actively working in the seeming slowness and non-answer to Joseph as he was in the swift, noisy answer to Elisha. And so Paul says, that's always the case. And so no matter how much bad stuff's happening inside you, no matter how much bad stuff's happening outside you, you can be assured God absolutely and fallibly, unchangeably loves you.
 
+---
+
+" 但我认为圣经给我们一个更微妙的答案。圣经告诉我们，上帝是绝对主权的，但人类有**真正的自由。这看起来像是**一个矛盾，但事实并非如此。让我解释一下。
+
+首先，上帝是主权的意味着什么？上帝是主权的意味着上帝完全控制。上帝知道所有的事情。上帝拥有所有的力量。
+
+上帝不受他的创造的限制。上帝不会被惊讶。上帝不会被打败。保罗在罗马书8：28中说："我们晓得万事都互相效力，叫爱上帝的人得益处"。
+
+---
+
+## 万事互相效力的含义 / Nothing Can Separate You from God's Love
+
 And then when he gets to the very end, he has a sweeping statement in verse 38 and 39, which is printed out there. And at this point, Paul says, I am absolutely certain. He uses the word that means absolute intent, certainty and persuasion.
 
 And then he just bursts. He pushes. He stretches out to the limits of language to try to say neither death nor life nor angels nor principalities, nor heaven, nor hell nor height nor death, nothing.
@@ -83,6 +107,34 @@ If you could turn back, if you could separate yourself from the love of God, are
 Last, by my look, you were. What Paul is trying to say is every possible situation that might turn you away from God, every possible situation that might turn you away from God, persecution, torture. None of those things will.
 
 Because love is so powerful, they will keep you facing him, keep you loving him, keep you in his arms no matter what. So see, here's your assurance, no matter how much all the powers of evil inside you and all the powers of evil outside you cannot separate you from the love of God, can't dislodge you from it, can't dislodge love of God from you. Once you give yourself to God through Christ, He is yours, you are His, nothing ever, ever can change that, that's the assurance.
+
+---
+
+现在，"万事"是什么意思？"万事"意味着万事——好的和坏的、他制定的和他允许的、计划的和意外的。一切都在上帝的控制下。但这不意味着上帝强迫一切。
+
+这不意味着人类没有自由。相反，**这意味着上帝是如此伟大，如此聪明，以至于他可以允许人类的自由，同时仍然实现他的目的。**想象一个伟大的音乐家在作曲。这个音乐家知道整个交响乐将会是什么样子。
+
+但他允许交响乐中的每个乐器演奏它的部分。每个乐器都有自由在它的部分内即兴演奏。但由于音乐家是伟大的，由于音乐家精通他的工艺，整个东西最后可以听起来完美。这有点像上帝和我们的关系。
+
+上帝知道最终的目的。上帝知道一切将如何结束。但上帝给了我们在我们的生活中做出选择的自由。上帝不强迫我们。
+
+上帝允许我们的选择。但由于上帝无限聪明，上帝可以将所有这些不同的选择编织成一个完美的织锦。现在，为什么这很重要？让我告诉你为什么。
+
+在我们的生活中，有许多事情发生在我们身上，我们无法控制。有些事情是好的。有些事情是坏的。我们无法控制我们的基因。
+
+我们无法控制我们出生的家庭。我们无法控制我们经历的许多情况。而且这可以是令人沮丧的。它可以让你感到无助。
+
+它可以让你感到你的生活并不真正属于你。但圣经告诉我们另外一个东西。圣经告诉我们，尽管我们无法控制许多发生在我们身上的事情，但上帝可以。上帝正在工作。
+
+上帝在一切中都在工作。上帝在好的事情中。上帝在坏的事情中。上帝在我们制造的混乱中。
+
+保罗说"万事都互相效力，叫爱上帝的人得益处"。这是什么意思？**这意味着所有的事情——即使是坏事——都可以被上帝用来改变我们，塑造我们，让我们更像基督。**现在，这不是说坏事是好的。
+
+这不是说我们应该为痛苦感到高兴。这不是说上帝制造痛苦。但这是说，即使在痛苦中，即使在困难中，上帝也在工作。上帝正在获取那种坏经验，上帝正在使用它来改变你的心，改变你的性格，改变你的人生观。
+
+---
+
+## 律法不能改变我们的心 / Free Will and the Sovereignty of God
 
 Now we could, it would be great if we could just move on and say, so now how does that work in your life what we can't? Because as I said, in our Western culture, this sort of, this promise immediately raises an issue. Now the reason I say Western culture is pretty important, because we have an objection that really bothers us, all this talk about predestination, right?
 
@@ -109,6 +161,22 @@ And so that's the debate. Do we have free will or not, or are we hardwired by ou
 The argument was a Freudian one, as it were, and that is, do we have free will or are we completely controlled by our unconscious urges or our past or things like that? But the thing you always see in all these debates in the West is it's either or, either or, either we free have free will or everything is determined or put it this way. We believe either we have free will and we're responsible for our choices and our choices matter, and that means the future is open and undetermined either we have free will and the future is open undetermined or something has set and fixed the future and then our choices don't matter.
 
 See, it's either or, but in the Bible, it's never either or, never. From the beginning to the end, in principle and in practice, it's always this, you are free and you are responsible and your choices matter and you're responsible for your choices and no one's forcing you to make those choices and yet, every single thing that happens as a result of those choices is worked out, is working out exactly according to the plan of God. And it's not just that God foresees what you're going to do, but rather what you do fits in with the plan that He wants and the course that He wants history to take.
+
+---
+
+现在，罗马书8：3-4向我们展示了这如何具体地工作。保罗说："律法因肉体软弱，有所不能行的，上帝就差遣自己的儿子，成了罪身的形状，为罪献祭"。这里保罗说的是什么？他说，法律——旧约的法律——显示了我们应该是什么样子。
+
+法律说："你应该爱你的邻舍。你应该诚实。你应该纯洁。你应该顺从。
+
+" 但法律本身无法让我们这样做。法律无法改变我们的心。法律无法改变我们的动机。法律只能告诉我们我们应该做什么。
+
+如果我们试图通过遵守法律来拯救自己，我们会失败。为什么？因为我们是有罪的。我们被我们的自我中心所困。
+
+我们无法通过我们自己的力量拯救自己。
+
+---
+
+## 基督赐下改变的能力 / The Bible's Both/And Answer
 
 There's so many examples I could give you, I'll just start with, I'll give you two. First of all, principle, listen to these proverbs, this is from Proverbs 16, verse 1. To man belongs the plans of the heart, but from the Lord comes the reply of the tongue.
 
@@ -140,6 +208,22 @@ And you say, oh, so he just knows what we're going to choose. Yeah, but it's mor
 
 You want to do the either or thing. No, it's both in. Both in.
 
+---
+
+但然后上帝做了一些不同的东西。上帝送来了他的儿子。上帝的儿子不仅仅教我们我们应该做什么。
+
+上帝的儿子实际上做了它。基督完美地满足了律法的要求。基督献出自己。基督为我们的罪付出代价。
+
+而且，更不仅仅是这样，基督复活了。基督战胜了死亡。基督战胜了罪恶。而现在，基督提供他的精神，他的力量，给所有相信他的人。
+
+保罗继续说："使律法的义成就在我们身上，我们不随从肉体，只随从圣灵"。所以这是什么意思？**这意味着，通过基督，通过他的灵，我们不再被我们的旧罪恶本性奴役。**我们不再被我们的欲望的奴隶。
+
+我们不再被我们的过去的奴隶。相反，我们被圣灵赋予权能。我们被给予新的能力。我们被给予了改变的机会。
+
+---
+
+## 福音带来真正的改变 / Paul on the Boat: Free Will in Action
+
 In Acts chapter 27, this is my favorite example in the Bible of this, Paul is on a boat with sailors and soldiers in a terrible storm, terrible storm. And in the midst of the storm when everybody's scared, the sailors and soldiers are really afraid that they're going to die, God sends an angel to Paul and says, the ship will be wrecked, but not one life will be lost. So Paul comes out on the deck and says, God has spoken to me.
 
 And he has said that even though the ship will be wrecked, not one life will be lost. And now, Paul believed that, you know why? In the Old Testament, if you're a prophet and you make a prophecy, and that prophecy doesn't come true, the prophets put to death, you know why?
@@ -167,6 +251,28 @@ Our support allows us to share the story of the Gospel with people in over 200 c
 Thank you for partnering with us to share the love of Christ with a world that needs Him because the Gospel truly changes everything. Now here's Dr. Keller with the remainder of today's message.
 
 So if you believe everything's fixed, despite our choices, you'll be passive. If you believe that our choice has actually determined the future, then you should be paralyzed. But he's neither.
+
+---
+
+这与许多其他改变的承诺非常不同。在我们的文化中，有许多关于改变的信息。有自助书籍。有培训项目。
+
+有心理医生。所有这些都可能有帮助。但他们所做的是告诉你应该改变什么。他们告诉你你的问题是什么。
+
+他们可能给你工具来改变。但福音做的是不同的。福音不仅仅告诉你应该改变什么。福音给了你能力改变。
+
+福音给了你一个新的心。福音给了你一个新的精神。福音给了你圣灵，他可以赋予你的改变能力。现在，这如何在实践中工作？
+
+假设你与愤怒的问题做斗争。你想改变。你想不再那么愤怒。你可以阅读关于愤怒管理的书籍。
+
+你可以尝试各种技巧。这些可能会有所帮助。但也许真正开始改变的是当你意识到基督为你的罪而死的时候。也许真正开始改变的是当你意识到你不再需要那么沮丧和愤怒，因为你的生活已经由基督赎回的时候。
+
+也许真正开始改变的是当你从圣灵获得力量，使你能够以不同的方式回应的时候。现在，这不是一夜之间发生的。改变是一个过程。但改变是可能的。
+
+基督可以改变你。
+
+---
+
+## 神使用万事塑造我们 / The Butterfly Effect and God's Providence
 
 It's incredibly practical. And you say, well, why would he be paralyzed? I believe my choice is to determine the future, you know?
 
@@ -240,7 +346,21 @@ If that didn't happen by accident, nothing happens by accident. All things were 
 
 And you know what? Ray Seldom, do we even get a millionth of a millionth of a millionth of a glimpse of how God is working all things together for good to those who love God? But he is.
 
-And therefore you can be assured that no matter what bad stuff is happening inside you and no matter how much bad stuff is happening outside you, he is not abandon you, he loves you. Now, once you see not only that we can be assured and why we can be assured, finally how do we really make this operative in our lives? How?
+And therefore you can be assured that no matter what bad stuff is happening inside you and no matter how much bad stuff is happening outside you, he is not abandon you, he loves you.
+
+---
+
+现在，在这一切中，上帝的主权的角色是什么？上帝的主权意味着上帝可以使用生活中发生的一切来改变你。上帝可以使用你的错误。
+
+上帝可以使用你的失败。上帝可以使用你经历的痛苦。上帝可以使用所有这些来塑造你，改变你，让你更像基督。这不是说这些东西本身就是好的。
+
+这不是说上帝制造了这些东西。但这是说，即使它们发生，上帝也可以使用它们来实现他的目的。现在，**这意味着什么对我们的生活？首先，这意味着我们可以相信上帝。**
+
+---
+
+## 信靠神的主权 / Personalizing God's Love in You
+
+Now, once you see not only that we can be assured and why we can be assured, finally how do we really make this operative in our lives? How?
 
 And the reason we have to talk about this just for a second at least is there's lots of people walking around New York tonight who say, oh, I believe in a God of love. I believe that God loves everyone unconditionally. I believe He loves me no matter what I do, I believe He loves me.
 
@@ -292,6 +412,24 @@ And you see, if you know the reason why God loves you or people love you or your
 
 But the divine, sovereign, electing grace of God, he loves you, just because he loves you. That will transform you. That person, have you personalized it?
 
+---
+
+我们可以相信上帝知道他在做什么。我们可以相信，即使事情看起来不对，即使生活很困难，上帝仍在控制。上帝仍在工作。上帝仍在朝他的目标前进。
+
+其次，**这意味着我们可以向上帝投降。**我们不需要尝试控制一切。我们不需要尝试强制解决方案。我们可以对上帝说："好的，这是你的。
+
+我相信你。我将跟随你。我将允许你改变我。" 第三，**这意味着我们可以有希望。**
+
+即使在最黑暗的时刻，我们可以有希望，因为我们知道上帝在控制。我们知道上帝正在工作。我们知道上帝最终会实现他的目标。最后，**这意味着我们可以有目的。**
+
+我们的生活不是随意的。我们的生活不是事故。我们的生活有目的。上帝在我们的生活中工作。
+
+上帝使用我们的经历来改变我们。上帝正在使用我们来改变他人。
+
+---
+
+## 将你的生命交给神 / Personalizing God's Love in Christ
+
 So you have to personalize it for you, but then secondly, you have to personalize it in Jesus. What do I mean by that? People say, oh, I believe God loves me, nothing can separate me from the love of God.
 
 Oh, I believe that, but don't think of love abstractly, Jesus is the love of God. In the Garden of Gethsemane and on the cross, you know what was happening? All the greatest forces in the universe were arrayed against Jesus.
@@ -338,90 +476,7 @@ And to find more great Gospel-centered content by Tim Keller, visit gospelonlife
 
 ---
 
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《福音人生》。你是否渴望在你的生活中看到**真正的改变——你的习惯、你的关系、你的心？今天，蒂姆·凯勒探讨了在基督徒的生活中真正持久的改变是**如何发生的，以及为什么福音提供了一个与其他任何东西根本不同的转变过程。今晚的经文摘自《罗马书》第8章第28节和第3-4节。
-
-我想从一个问题开始："上帝控制一切吗？" 现在，这是一个非常复杂的问题，许多基督徒对此有许多想法。有些人说："是的，上帝控制一切。"有些人说："不，上帝给了人类自由意志，所以上帝不控制一切。
-
-" 但我认为圣经给我们一个更微妙的答案。圣经告诉我们，上帝是绝对主权的，但人类有**真正的自由。这看起来像是**一个矛盾，但事实并非如此。让我解释一下。
-
-首先，上帝是主权的意味着什么？上帝是主权的意味着上帝完全控制。上帝知道所有的事情。上帝拥有所有的力量。
-
-上帝不受他的创造的限制。上帝不会被惊讶。上帝不会被打败。保罗在罗马书8：28中说："我们晓得万事都互相效力，叫爱上帝的人得益处"。
-
-现在，"万事"是什么意思？"万事"意味着万事——好的和坏的、他制定的和他允许的、计划的和意外的。一切都在上帝的控制下。但这不意味着上帝强迫一切。
-
-这不意味着人类没有自由。相反，**这意味着上帝是如此伟大，如此聪明，以至于他可以允许人类的自由，同时仍然实现他的目的。**想象一个伟大的音乐家在作曲。这个音乐家知道整个交响乐将会是什么样子。
-
-但他允许交响乐中的每个乐器演奏它的部分。每个乐器都有自由在它的部分内即兴演奏。但由于音乐家是伟大的，由于音乐家精通他的工艺，整个东西最后可以听起来完美。这有点像上帝和我们的关系。
-
-上帝知道最终的目的。上帝知道一切将如何结束。但上帝给了我们在我们的生活中做出选择的自由。上帝不强迫我们。
-
-上帝允许我们的选择。但由于上帝无限聪明，上帝可以将所有这些不同的选择编织成一个完美的织锦。现在，为什么这很重要？让我告诉你为什么。
-
-在我们的生活中，有许多事情发生在我们身上，我们无法控制。有些事情是好的。有些事情是坏的。我们无法控制我们的基因。
-
-我们无法控制我们出生的家庭。我们无法控制我们经历的许多情况。而且这可以是令人沮丧的。它可以让你感到无助。
-
-它可以让你感到你的生活并不真正属于你。但圣经告诉我们另外一个东西。圣经告诉我们，尽管我们无法控制许多发生在我们身上的事情，但上帝可以。上帝正在工作。
-
-上帝在一切中都在工作。上帝在好的事情中。上帝在坏的事情中。上帝在我们制造的混乱中。
-
-保罗说"万事都互相效力，叫爱上帝的人得益处"。这是什么意思？**这意味着所有的事情——即使是坏事——都可以被上帝用来改变我们，塑造我们，让我们更像基督。**现在，这不是说坏事是好的。
-
-这不是说我们应该为痛苦感到高兴。这不是说上帝制造痛苦。但这是说，即使在痛苦中，即使在困难中，上帝也在工作。上帝正在获取那种坏经验，上帝正在使用它来改变你的心，改变你的性格，改变你的人生观。
-
-现在，罗马书8：3-4向我们展示了这如何具体地工作。保罗说："律法因肉体软弱，有所不能行的，上帝就差遣自己的儿子，成了罪身的形状，为罪献祭"。这里保罗说的是什么？他说，法律——旧约的法律——显示了我们应该是什么样子。
-
-法律说："你应该爱你的邻舍。你应该诚实。你应该纯洁。你应该顺从。
-
-" 但法律本身无法让我们这样做。法律无法改变我们的心。法律无法改变我们的动机。法律只能告诉我们我们应该做什么。
-
-如果我们试图通过遵守法律来拯救自己，我们会失败。为什么？因为我们是有罪的。我们被我们的自我中心所困。
-
-我们无法通过我们自己的力量拯救自己。但然后上帝做了一些不同的东西。上帝送来了他的儿子。上帝的儿子不仅仅教我们我们应该做什么。
-
-上帝的儿子实际上做了它。基督完美地满足了律法的要求。基督献出自己。基督为我们的罪付出代价。
-
-而且，更不仅仅是这样，基督复活了。基督战胜了死亡。基督战胜了罪恶。而现在，基督提供他的精神，他的力量，给所有相信他的人。
-
-保罗继续说："使律法的义成就在我们身上，我们不随从肉体，只随从圣灵"。所以这是什么意思？**这意味着，通过基督，通过他的灵，我们不再被我们的旧罪恶本性奴役。**我们不再被我们的欲望的奴隶。
-
-我们不再被我们的过去的奴隶。相反，我们被圣灵赋予权能。我们被给予新的能力。我们被给予了改变的机会。
-
-这与许多其他改变的承诺非常不同。在我们的文化中，有许多关于改变的信息。有自助书籍。有培训项目。
-
-有心理医生。所有这些都可能有帮助。但他们所做的是告诉你应该改变什么。他们告诉你你的问题是什么。
-
-他们可能给你工具来改变。但福音做的是不同的。福音不仅仅告诉你应该改变什么。福音给了你能力改变。
-
-福音给了你一个新的心。福音给了你一个新的精神。福音给了你圣灵，他可以赋予你的改变能力。现在，这如何在实践中工作？
-
-假设你与愤怒的问题做斗争。你想改变。你想不再那么愤怒。你可以阅读关于愤怒管理的书籍。
-
-你可以尝试各种技巧。这些可能会有所帮助。但也许真正开始改变的是当你意识到基督为你的罪而死的时候。也许真正开始改变的是当你意识到你不再需要那么沮丧和愤怒，因为你的生活已经由基督赎回的时候。
-
-也许真正开始改变的是当你从圣灵获得力量，使你能够以不同的方式回应的时候。现在，这不是一夜之间发生的。改变是一个过程。但改变是可能的。
-
-基督可以改变你。现在，在这一切中，上帝的主权的角色是什么？上帝的主权意味着上帝可以使用生活中发生的一切来改变你。上帝可以使用你的错误。
-
-上帝可以使用你的失败。上帝可以使用你经历的痛苦。上帝可以使用所有这些来塑造你，改变你，让你更像基督。这不是说这些东西本身就是好的。
-
-这不是说上帝制造了这些东西。但这是说，即使它们发生，上帝也可以使用它们来实现他的目的。现在，**这意味着什么对我们的生活？首先，这意味着我们可以相信上帝。**
-
-我们可以相信上帝知道他在做什么。我们可以相信，即使事情看起来不对，即使生活很困难，上帝仍在控制。上帝仍在工作。上帝仍在朝他的目标前进。
-
-其次，**这意味着我们可以向上帝投降。**我们不需要尝试控制一切。我们不需要尝试强制解决方案。我们可以对上帝说："好的，这是你的。
-
-我相信你。我将跟随你。我将允许你改变我。" 第三，**这意味着我们可以有希望。**
-
-即使在最黑暗的时刻，我们可以有希望，因为我们知道上帝在控制。我们知道上帝正在工作。我们知道上帝最终会实现他的目标。最后，**这意味着我们可以有目的。**
-
-我们的生活不是随意的。我们的生活不是事故。我们的生活有目的。上帝在我们的生活中工作。
-
-上帝使用我们的经历来改变我们。上帝正在使用我们来改变他人。当我们离开这里时，我想问你：你愿意将你的生活交给上帝吗？你愿意相信上帝正在控制吗？
+当我们离开这里时，我想问你：你愿意将你的生活交给上帝吗？你愿意相信上帝正在控制吗？
 
 你愿意允许上帝改变你吗？你可能正在为某种习惯而苦恼。你可能想改变。你已经尝试了所有你能想到的东西，但没有什么有效。
 

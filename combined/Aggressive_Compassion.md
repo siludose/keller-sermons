@@ -4,7 +4,7 @@
 
 ---
 
-**Introduction:**
+## 引言与经文宣读 / Introduction and Scripture Reading
 
 Welcome to Gospel in Life. During January, we're inviting our listeners to consider becoming a Gospel in Life monthly partner. If you'd like to learn more, keep listening at the end of today's podcast for details.
 
@@ -18,7 +18,21 @@ And for your lifeblood, I will surely demand an accounting. I will demand an acc
 
 Whoever sheds the blood of man, by man shall his blood be shed. For in the image of God has God made man. As for you, be fruitful and increase in number.
 
-Fly on the earth and increase upon it. This is the word of the Lord. **The Sixth Commandment and Its Foundation:**
+Fly on the earth and increase upon it. This is the word of the Lord.
+
+---
+
+欢迎来到福音生活。在一月份，我们邀请听众考虑成为福音生活的月度伙伴。如果您想了解更多信息，请在今天的播客结束时继续收听。您是否曾希望生活有一本使用手册，当您面临困难决策或只是试图在日常小事中保持正直时，可以遵循的指南？
+
+今天在福音生活中，蒂姆·凯勒向我们展示了十诫如何帮助我们将生活与神的旨意对齐，不是通过过时规则限制我们，而是通过奠定基础，使我们能够过上真正自由和繁荣的生活。创世记第九章，第一至第七节。当神赐福给挪亚和他的儿子们，对他们说：要生养众多，遍满地面。地上的走兽和空中的飞鸟，必因你们的缘故惊恐惧怕，连地上一切的昆虫并海里一切的鱼，都交付你们的手。
+
+凡活着的动物都可以作你们的食物，正如我将青菜赐给你们一样，现在把这一切都赐给你们。只是肉带着血，那就是它的生命，你们不可吃。流你们血、害你们命的，我必讨他的罪，就是向各样的走兽，我也必讨他的罪；向人，向各人的弟兄，我必讨人的命。凡流人血的，他的血也必被人所流；因为神造人，是照自己的形象造的。
+
+但你们要生养众多，在地上昌盛繁茂。这是主的话。
+
+---
+
+## 第六诫及其基础 / The Sixth Commandment and Its Foundation
 
 We are doing a series on the Ten Commandments.
 
@@ -34,7 +48,25 @@ Now there's an awful lot of interesting things that he says here that I am going
 
 As long as the earth endures, seed time and harvest, cold and winter, summer and winter, day and night will never cease. So first he says, I'll protect your life against nature. Then he goes in verses 5, 1 to 4, and he says, I'll protect your life against the animals.
 
-I will hold any animal accountable for your blood. And then finally he says, and if any human being takes the life of any human being, I will hold that person accountable too. **Every Human Life is Sacred:**
+I will hold any animal accountable for your blood. And then finally he says, and if any human being takes the life of any human being, I will hold that person accountable too.
+
+---
+
+我们正在进行一个关于十诫的系列。这周和下周，我们将研究第六诫。
+
+我们一直说十诫不仅仅是一堆规则，而是像建造摩天大楼的框架、基础设施。十诫是神为建立伟大生活的框架。而这个特别的诫命，第六诫，是不可杀人。不可杀人出现在出埃及记第二十章第十三节。
+
+然而，它首先在我刚刚读的经文中被阐述，创世记第九章第一至第七节。因为这是在洪水结束时，挪亚和他的家人跪在大自然面前，感到非常非常渺小。我想每当我们看到飓风或地震的灾难时，每个人都会突然感到极其渺小和微不足道。你会觉得自己像一只昆虫，像一只蚂蚁，随时可能被大自然的巨大力量踩死。
+
+这就是挪亚和他的家人刚刚看到的，巨大的洪水。因此，当他们在神面前跪下时，神在创世记八章和九章中来到他们面前。神是恩慈的，向他们保证了一件非常重要的事情，一个他放入宇宙结构中的规则、真理。这里有很多有趣的事情，我会克制自己不去深入探讨。
+
+例如，在我们没有读的第八章末尾，他说，我会保护你们的生命不受自然的侵害。他说，只要地还存留，稼穑、寒暑、冬夏、昼夜就永不停息。所以首先他说，我会保护你们的生命不受自然的侵害。然后他在第五章第一至第四节中说，我会保护你们的生命不受动物的侵害。
+
+我会对任何动物为你们的血负责。最后他说，如果任何人类夺取任何人类的生命，我也会让那个人负责。
+
+---
+
+## 每一个人的生命都是神圣的 / Every Human Life Is Sacred
 
 Now don't ask me how the heck he holds animals accountable for our blood.
 
@@ -48,7 +80,23 @@ And there's absolutely no way that you can miss that. And so God is saying that 
 
 I have got to treat people seriously. I've got to honor them. I've got to be aggressively compassionate.
 
-This passage, if you let it do a work on us, can make us into a people, a compassionate people that the world would marvel at. **The Case for Aggressive Compassion:**
+This passage, if you let it do a work on us, can make us into a people, a compassionate people that the world would marvel at.
+
+---
+
+现在不要问我他如何让动物为我们的血负责。我不知道。
+
+那里有很多有趣的事情，我不会试图深入探讨。我可以，如果我愿意，至少可以推测，但你知道，多年前我被教导要传讲你的确定性，而不是你的疑虑。除此之外，重要的事情是非常清楚的。经文的重要点是绝对清楚的。
+
+每一个人的生命都是神圣的。每一个人都是无限价值的。这个经文的目的是让房间里的每个人都感受到你邻居的荣耀的重量，感受到神赋予每个人的价值的重量。这是非常非常清楚的，绝对没有办法错过。
+
+因此，神在这里说，如果我们在研究这段经文时感受到这一点，真正的手术可以在我们的心上完成。如果你真的让这段经文产生影响，以及它所说的一切，你会出来对自己说，我不能像现在这样忽视人。我必须认真对待人。我必须尊重他们。
+
+我必须积极地同情。这段经文，如果你让它对我们产生作用，可以使我们成为一个人们，一个世界会惊叹的同情的人。
+
+---
+
+## 积极怜悯的论证 / The Case for Aggressive Compassion
 
 Now, let's look at it. And the way to look at it is, first of all, let's see how this passage makes a case for aggressive compassion.
 
@@ -76,7 +124,31 @@ Because in other societies, people who were not considered as important, you see
 
 Every one. Why? For, look at the last half of the verse, for in the image of God has God made man.
 
-**The Image of God - We Are Like Mirrors:**
+---
+
+现在，让我们来看看。看这段经文如何为积极的同情做出论证。
+
+首先，它说论据是每个人都是按照神的形象造的。其次，每个人都要为这种形象负责。这就是论据。然后，除了仅仅提出一个论据，这段经文还呼召我们不仅要相信这一点，还要过一种积极同情的生活方式。
+
+因为我们在这里被两次呼召要生养众多，遍满地面。现在，让我们来看看。首先看看论据。这里告诉我们，在这非常有趣的经文中，凡流人血的，他的血也必被人所流，因为神造人，是照自己的形象造的。
+
+这是什么意思？首先，有些人立即质疑这一点。这看起来像是对死刑的论据，不是吗？而不是担心今天死刑是否是个好主意的问题。
+
+让我们记住，神在说一些让以色列成为一个激进仁慈、正义的国家的事情。因为在那些日子里，在一个社会中，如果一个富有或有权势的人被杀，他的谋杀者会被处死。而且通常，他的整个家庭也会被处死。但另一方面，如果一个农民被一个可能是更高阶层的人杀死，通常更高阶层的人会向农民的家人支付罚款，可能是一万舍客勒或类似的东西。
+
+现在，这里有个问题。这里的问题是，圣经说，如果你杀了某人，你支付一万美元的罚款，死者的生命值多少钱？答案是只有一万舍客勒。如果你坐牢二十年，死者的生命值多少钱？
+
+只有二十年。神在这里说，并且在整个圣经中说，不。每个人都是无限价值的。因此，没有人可以为生命付出代价。
+
+生命只能以自己的货币支付。因此，在以色列，我们有这样一条显著的法律，如果你杀了某人，你会被处死。这是一种保护生命神圣性的方式。因为在其他社会中，那些不被认为重要的人，你看，并不被视为无限价值的。
+
+你可以支付一个有限的金额作为罚款。不，圣经说，每个人的生命都是无限价值的。每一个。为什么？
+
+因为，看看这节经文的后半部分，因为神造人，是照自己的形象造的。
+
+---
+
+## 神的形象：我们像镜子 / The Image of God: We Are Like Mirrors
 
 What does that mean? Well, the image of God is that which makes us different than the plants and the animals. The image of God is that which makes us rational, that which makes us personal, that which makes us capable of love and communication, and of creativity, the ability to envision that which is not.
 
@@ -100,7 +172,29 @@ It was built a thousand years ago. And even though it's a ruin, even though it c
 
 Usually it is treated sacredly, it's landmarked usually, you see. And that's how God looks at us and that's how we look at one another. If you're a Christian, you realize even when you see a wicked person, even when you see a messed up person, it's like the ruin of a castle and you say, oh, how I would love to see this thing restored.
 
-Imagine what it could be like. **The Weight of Your Neighbor's Glory:**
+Imagine what it could be like.
+
+---
+
+这是什么意思？嗯，神的形象是使我们与植物和动物不同的东西。神的形象是使我们理性的东西，是使我们有个性、能够爱和交流、能够创造的东西，能够想象不存在的东西。
+
+但也许解释我们是按照神的形象造的最好的方法是把我们想象成镜子。二十年前，我读到这段经文，我没有把它打印在这里，但这是C.S.路易斯的一段话，可能是我最喜欢的引用，可能是永远改变了我对人类的看法的东西。路易斯在某个时候说，神可以把我们中最虚弱和最肮脏的人变成耀眼、光辉、永生的生物，充满我们现在无法想象的爱、能量、喜悦和智慧。我们将成为明亮、无瑕的镜子，反映回给神他自己无尽的力量、喜悦和美好。
+
+这就是我们所期待的，他说，绝不止于此。现在，你听到了吗？你看，如果你看一块石头，石头无法反射回给我我给它的光。但当你看一面镜子时，镜子是被建造的，它有一种性质，它被建造得可以在较小的规模上，在一维或二维的规模上反射回给我进入的光。
+
+而圣经告诉我们，这就是我们被造为神的形象的意义。我们有能力像神一样，像他的圣洁、他的爱、他的喜悦。我们有可能像他一样，认识他，享受他，与他建立关系，你看。然而，圣经告诉我们，我们已经转离了。
+
+当我们决定成为自己的主人时，这就像镜子转离太阳，面向黑暗。你知道吗？在黑暗中，镜子和石头有什么区别？没有区别。
+
+因为即使它有能力，它也没有面对任何可以反射的东西。因为我们已经转离了他，我们的镜子在某种意义上，神的形象在我们里面已经变得破裂、扭曲和黑暗。如果你曾经看过一面美丽的旧镜子，华丽的大东西，但它全是破裂和黑暗的，你只能看到自己脸的扭曲，这就是神看我们的方式。事实上，这就是我们应该看待自己和他人的方式。
+
+当你看一个人时，就像看一个欧洲的古堡，甚至没有屋顶了。它是一千年前建造的。即使它是一片废墟，即使它不能再作为它被建造的东西运作，它仍然有一种宏伟感。它仍然有一种高贵感，你想以一种神圣的方式对待它。
+
+通常它是被神圣对待的，通常是被标记的，你看。这就是神看我们的方式，这就是我们看待彼此的方式。如果你是基督徒，你意识到即使你看到一个邪恶的人，即使你看到一个搞砸的人，就像一个城堡的废墟，你会说，哦，我多么希望看到这个东西被恢复。想象一下它可能会是什么样子。
+
+---
+
+## 邻舍荣耀的重量 / The Weight of Your Neighbor's Glory
 
 Now, are you beginning to feel the weight of your neighbor's glory? The Bible says that every human being is that, in the image of God, an immortal being.
 
@@ -120,7 +214,25 @@ It's a serious thing to live in a society of immortals, to remember that million
 
 There are no ordinary people. You have never talked to a mere mortal. Nations, cultures, arts, civilization, these are mortal and their life is to our life as the life of a gnat.
 
-But it is immortals with whom we joke, work, marry, snub, and exploit. Immortal horrors or everlasting splendors, your neighbor is the holiest object presented to your senses. **Practical Implications:**
+But it is immortals with whom we joke, work, marry, snub, and exploit. Immortal horrors or everlasting splendors, your neighbor is the holiest object presented to your senses.
+
+---
+
+现在，你开始感受到你邻居的荣耀的重量了吗？圣经说每个人都是那样的，按照神的形象，是一个不朽的存在。当我们说你感受到你邻居的荣耀的重量时，**这意味着要考虑每个其他人在长椅上的人，你可能坐在或靠近你甚至不认识的人旁边。**现在，听着，为什么古人总是把黄金视为如此有价值？
+
+不是因为它如此稀有，而是因为它是永恒的。因为它不会消失，它不会分解，它不会生锈，它不会破碎。它是永恒的。听着，朋友们，数十亿年后，当外面看起来如此巨大的山脉被磨成鹅卵石时，当看起来如此明亮和强大的太阳已经燃烧殆尽，只是一个小小的，三英寸半乘五英寸的红矮星时。
+
+数十亿年后，当山脉变成鹅卵石，太阳几乎耗尽时，坐在你周围长椅上的人仍然会存在。这就是基督教的信息。基督教的信息是人类是不朽的。自然是凡人的。
+
+我们将比她活得更久。让我给你另一个C.S.路易斯的引用，向你展示这种对人类的看法是多么激进。C.S.路易斯说，也许可能过多地考虑你自己在此后的潜在荣耀，但不可能过于频繁或过于深入地考虑你邻居的荣耀。我邻居的荣耀的重量应该每天放在我的背上，这样的重量只有谦卑才能承载。
+
+生活在不朽者的社会中是一件严肃的事情，记住数百万年后，你遇到的最迟钝和最无趣的人可能有一天会成为一个令人难以置信的生物，如果你现在看到他，你会强烈地想要崇拜，或者是一个你现在只在噩梦中遇到的恐怖。整天我们在某种程度上帮助彼此走向这些目的地之一。因此，考虑到这些压倒性的可能性，我们应该以适当的敬畏和谨慎来处理我们与他人的所有交往，所有的友谊，所有的爱，所有的游戏，所有的政治。没有普通人。
+
+你从未与一个普通的凡人交谈过。国家、文化、艺术、文明，这些都是凡人的，它们的生命与我们的生命相比如同蚊子的生命。但与你开玩笑、工作、结婚、冷落和剥削的是不朽者。不朽的恐怖或永恒的辉煌，你的邻居是呈现给你感官的最神圣的对象。
+
+---
+
+## 实际意义 / Practical Implications
 
 Now maybe that's mind-numbing and a little bit hard to take in, but it has the most absolutely practical ramifications, both in terms of politics and lofty international policy down to the way in which you treat the people you meet today.
 
@@ -146,7 +258,29 @@ The truth is that we've made lesser gods of good things, things that can't give 
 
 You can request your copy at gospelandlife.com slash give. That's gospelandlife.com slash give. Now here's Dr.
 
-Keller with the rest of today's teaching. **Do You Honor People?**
+Keller with the rest of today's teaching.
+
+---
+
+现在，也许这让人头晕目眩，有点难以接受，但它有最绝对实际的影响，无论是在政治和崇高的国际政策方面，还是在你今天对待你遇到的人的方式方面。听着，如果一个政府理解基督教的理解，拥有基督教对人类的理解，他们是不朽的，他们永远存在，他们是按照神的形象造的，这将对他们如何制定公共政策产生很大影响。如果一个政府没有基督教的观点，它可以这样推理，好吧，我们在这里是为了建立一个将持续一千年的伟大文明。如果为了做到这一点，我们必须消灭一些麻烦制造者，我们必须扼杀一些只活六七十年的人类生命，而我们正在为数百万将持续一千年的人建立一个文明，当然可以扼杀一些人。
+
+但你看，基督教的观点是每个人都是按照神的形象造的，每个人都将比不仅一个文明，还将比文明本身活得更久。我们将比一千个文明活得更久，因此没有一个人可以被扼杀，因为没有什么东西在地球上值得那样做。没有什么东西像一个按照神的形象造的人那样有价值。你不明白吗，这改变了一切。
+
+你明白吗？但它也改变了你对待个体的方式。你感受到你邻居的荣耀的重量吗？如果我刚才说，你知道，当我们传递奉献盘时，如果我说，哦，顺便说一下，我们今天早上的奉献盘是从大都会艺术博物馆借来的。
+
+它们是纯金制成的。它们有两千年的历史。它们是绝对无价的。你可能会对那些东西比你对那些经过的东西看得更不同吗？
+
+你会以不同的方式对待它们吗？你会不会只是说，哦，给你，而是可能会以最大的关心对待它们？你知道，会有一种敬畏感。你会说，想想。
+
+你知道，想想法老们从中吃过东西。想想它的价值有多大。看看它的美丽。你会以敬畏和颤抖对待它，你看，既有一点焦虑，关心真正地对待它，一种神圣感，同时也有一种能够甚至有荣幸触摸这样的东西的喜悦。
+
+亲爱的朋友们，那些东西与一个人相比什么都不是，如果你理解你邻居的荣耀的重量。我们都追逐成功、真爱或完美生活这样的东西，这些好东西很容易成为最终的东西。当我们把信仰放在它们上时，内心深处我们知道它们无法满足我们最深的渴望。事实是，我们把好的东西变成了较小的神，那些不能给我们我们真正需要的东西。
+
+在他的书《假神：金钱、性和权力的空虚承诺以及唯一重要的希望》中，蒂姆·凯勒向我们展示了如何正确理解圣经揭示了社会理想和我们自己内心的真相，并向我们展示只有一个神可以完全满足我们的愿望。本月，我们将把《假神》作为我们对您帮助福音生活与世界各地的人分享基督之爱的感谢赠送给您。您可以在gospelandlife.com/give请求您的副本。这是gospelandlife.com/give.现在这里是凯勒博士，带来今天教学的其余部分。
+
+---
+
+## 你是否尊重人？ / Do You Honor People?
 
 Now let's be practical. Do people feel valued by you?
 
@@ -176,7 +310,35 @@ Every human being is in the image of God. And that leads to this remarkable stat
 
 The Bible tells us that God lays that weight on us very specifically and holds us accountable for the life of other people. You know the old, it's not in the Bible and I don't know where it originally came from, no man is an island, that's the fact. That's true.
 
-That's a biblical truth, even though it's not a biblical quote. You are connected, you are accountable, and you can't avoid it. **Five Ways to Break the Sixth Commandment:**
+That's a biblical truth, even though it's not a biblical quote. You are connected, you are accountable, and you can't avoid it.
+
+---
+
+现在让我们实际一点。人们是否感到被你重视？人们在与你相处后，是否感到你认真对待他们，你专注于他们，充满爱心，无论他们是谁？
+
+人们是否会觉得你让他们感到像百万富翁一样？现在你怎么知道你是否尊重人，是否真的以那种无限的价值对待人？这很简单。人们自己会回来。
+
+他们感到被肯定。他们感到被尊重。通常，他们会想和你谈论他们的问题。我的问题是，朋友们，你是否让人们有这种感觉，还是你很冷漠？
+
+你是否环顾四周，而不是说，哦，看看这些有价值的人，看看这些人，我想知道我能以什么方式向他们展示他们应得的荣誉？我如何专注于他们？我如何爱他们？我如何找到他们的需求，你看？
+
+你是否这样对待他们？还有什么？你是否起床，环顾四周说，我想在这里吗？这些是我想混在一起的人吗？
+
+我们在这里谈论的事情是我感兴趣的吗？你是利用人还是爱人？这是两种完全不同的生活哲学，它们建立在两种完全不同的对人类的理解上。你是否尊重人？
+
+你是否有勇气去发现？为什么不问问别人？问问人们你是否是那种可以接近的人。问问人们你是否是那种人们想要寻找的人。
+
+问问人们你是否重视人。问问你的配偶。问问你的父母。问问你的朋友，如果你敢的话。
+
+这是件可怕的事情。当然是。你是否感受到论据？你是否感受到积极同情生活的论据的重量？
+
+每个人都是按照神的形象造的。这导致了这句非凡的声明，神从每个人的形象逻辑地转到这一点，从每个人到，我将要求对他同胞的生命负责。这不仅仅是抽象地相信每个人都是按照神的形象造的。圣经告诉我们，神非常具体地将这个重量放在我们身上，并让我们对他人的生命负责。
+
+你知道那句老话，它不在圣经中，我不知道它最初来自哪里，没有人是孤岛，**这是事实。这是真的。这是一个圣经真理**，尽管它不是一个圣经引用。你是连接的，你是负责的，你无法避免。
+
+---
+
+## 违反第六诫的五种方式 / Five Ways to Break the Sixth Commandment
 
 Back in the 1600s, when the Protestant church was trying to get its bearings in England and was seeking to understand what the Bible taught was the duty of human beings to one another.
 
@@ -204,7 +366,33 @@ To say that you're accountable for the life of your fellow men means look around
 
 Could I find that there was one home like that that I would be able to make a contribution to, to at least keep the heat on? Have I even made the efforts to do that? I will hold you accountable for the life of your fellow man.
 
-Think about it. **A Lifestyle of Aggressive Compassion:**
+Think about it.
+
+---
+
+在十七世纪，当新教教会在英格兰试图找到它的立足点并试图理解圣经教导我们对彼此的责任时。它通过十诫工作，并有一个由许多圣经学生写的文件，该文件被称为威斯敏斯特信条。很有趣的是，当他们研究圣经时，当他们研究那个诫命时，你不可杀人，他们如何理解圣经告诉我们我们对彼此的责任。有一个叫托马斯·沃森的人写了一本关于十诫的有趣评论，他说，有五种方式可以违反第六诫。
+
+你想听吗？你有选择吗？第一，你可以用手杀人来违反诫命。好吧，我们都知道这一点。
+
+B,我们可以用心杀人来违反诫命。现在我们不会多谈这个。下周我们会。耶稣说过。
+
+如果你恨某人，如果你对某人怀有怨恨，那就是用心谋杀，违反了诫命，因为最终诫命是爱人的诫命。A,B,C,你可以用手杀人，你可以用心杀人，C,你可以用舌头杀人，或者用笔，或者用文字处理器。D,现在这里很有趣，托马斯·沃森说，如果你拒绝给予一个正在灭亡的人你有能力给予的帮助，你就违反了这个诫命。最后，E,他说，还有那些写威斯敏斯特信条的人几百年前说，当你拒绝或撤回或忽视给予某人维持和加强他们生命所必需的东西时，你就违反了这个诫命。
+
+他们在这一点上引用马太福音25章，耶稣说，我饿了，你没有给我吃的。我渴了，你没有给我喝的。我没有住所，你没有收留我。我病了，你没有来看我。
+
+我在监狱里，你没有来看我。你看，这里在创世记9章说，你必须照顾人，因为他们是按照神的形象造的。神的所有权印记在他们身上。在某种意义上，神在说，如果你不正确对待他们，我视之为对我的攻击，因为我的形象在他们身上。
+
+在马太福音25章，耶稣基督说，如果你看到某人饿了，你没有给他们吃的，你拒绝给予他们维持和支持他们生命所必需的东西，如果你有能力给予他们一些东西而你没有这样做，我视之为对我的个人冒犯。他说，如果你没有喂他们，你就没有喂我。如果你没有拜访他们，你就没有拜访我。你不明白吗，马太福音25章和创世记9章在说同样的事情。
+
+当你环顾世界时，你是否看到正在灭亡的人？被压迫的人，被剥夺权利的人，贫困的人，需要某些必需品来加强他们的生命的人，你是否有任何能力在你手中使那些人的生命得到加强，你是否有任何能力在你手中而你没有实际使用的？这就是托马斯·沃森，这就是过去的圣经学生理解诫命的方式，这是真的。说你对你同胞的生命负责意味着环顾自己，问，是否有人的生命正在灭亡，生命正在被削弱，而我是否有能力做些什么而我没有使用的？
+
+例如，我不知道纽约的统计数据是什么，但当我在费城时，我在学习中读到每年在费城，有3万个家庭，3万个有人居住的家庭整个冬天没有任何公用设施。现在，我记得当我读到这个时，我在学习这段经文时，我说，我是否有任何能力在我手中做些什么而我没有使用的？我是否可以找到一个这样的家庭，我可以为至少保持暖气运转做出贡献？我是否甚至努力去做到这一点？
+
+我会让你对你同胞的生命负责。想想看。
+
+---
+
+## 积极怜悯的生活方式 / A Lifestyle of Aggressive Compassion
 
 Now, don't you see, we come to this point, aggressive compassion, the Bible says. Oh, every human being is in the image of God.
 
@@ -216,7 +404,23 @@ And in New York, you're always in lines. How do you treat the people around you?
 
 And sometimes it's worse than that. How do you treat people? It affects everything.
 
-A lifestyle of aggressive compassion. **The Source of Strength:**
+A lifestyle of aggressive compassion.
+
+---
+
+现在，你不明白吗，我们来到这一点，积极的同情，圣经说。哦，每个人都是按照神的形象造的。
+
+你感受到你邻居的荣耀的重量吗？如果你这样做，你不明白这将对我们作为信徒产生什么影响吗？想想我们将会多么积极地参与社会活动。想想我们将会多么积极地参与政治活动。
+
+是的，因为如果你有任何能力在你手中帮助那些正在灭亡的人而你没有使用它，你就没有尊重这个诫命。但不仅如此，它不仅影响到崇高的东西，还影响到你在地铁里对待人的方式，你在排队时对待人的方式。在纽约，你总是在排队。你如何对待你周围的人？
+
+你是否以无限的价值对待他们，还是只是把他们当作家具？有时情况更糟。你如何对待人？它影响一切。
+
+积极同情的生活方式。
+
+---
+
+## 力量的源泉 / The Source of Strength
 
 Now, my question to you is, if you're thinking, why aren't you depressed yet? Listen, you should feel terrible by now.
 
@@ -230,13 +434,39 @@ In the New Testament, we're also told this. We are supposed to go into the world
 
 I believe when when God says be fruitful and multiply, he's talking about the image of God. He is saying, I don't want you just to protect the image of God. I want you to restore and propagate the image and spread it everywhere.
 
-**Jesus - The Image of God Restored:**
+---
+
+现在，我的问题是，如果你在思考，为什么你还没有沮丧？听着，你现在应该感到糟糕。我们生活在一个残酷的世界。
+
+即使有很多你可以做来帮助人，这将是非常困难的，你会发现自己一次又一次地被打败。你会说，我从哪里得到力量来做到这一点？这是这里的最后一点。它在这段经文中有所暗示，但在其他地方更明确。
+
+如果你注意到在这段经文的开头和结尾，我们被告知要生养众多。现在，这只是一个生孩子的命令吗？不，我不这么认为。不仅仅是这样。
+
+在新约中，我们也被告知这一点。我们应该进入世界，成为门徒。在使徒行传中，我们被告知，当福音开始在耶路撒冷城中传播时，门徒们到处增加。我相信当神说要生养众多时，他在谈论神的形象。
+
+他在说，我不希望你只是保护神的形象。我希望你恢复和传播形象，并传播到各地。
+
+---
+
+## 耶稣恢复神的形象 / Jesus Restores the Image of God
 
 Well, somebody says, how do you do that? And the answer is you have to go to Jesus, who is the image of God, meet him and have the image of God restored in you before you can restore and protect it in other people. Did you hear that?
 
 Listen, it says in Colossians 115, he is the image of the invisible God. And in Ephesians 424, it tells us that when we come to him, he is the image of God. We become like him and our image is renewed.
 
-It's like our mirror turns back to him and the reflection begins to happen. The most important thing is when you look at Jesus Christ and you come to know him personally, the image of God in you begins to get restored and it makes you capable of a lifestyle of aggressive compassion. **The Gospel Creates Knights:**
+It's like our mirror turns back to him and the reflection begins to happen. The most important thing is when you look at Jesus Christ and you come to know him personally, the image of God in you begins to get restored and it makes you capable of a lifestyle of aggressive compassion.
+
+---
+
+好吧，有人说，你怎么做到这一点？答案是你必须去找耶稣，他是神的形象，认识他，并在你里面恢复神的形象，然后你才能在其他人中恢复和保护它。
+
+你听到了吗？听着，歌罗西书1：15说，他是无形神的形象。在以弗所书4：24中，它告诉我们，当我们来到他面前时，他是神的形象。我们变得像他，我们的形象被更新。
+
+就像我们的镜子转回他，反射开始发生。最重要的是，当你看着耶稣基督并与他个人相识时，你里面的神的形象开始被恢复，这使你能够过一种积极同情的生活方式。
+
+---
+
+## 福音创造骑士 / The Gospel Creates Knights
 
 When you look, when you take a look at what a human being ought to be, you see something pretty interesting.
 
@@ -270,172 +500,9 @@ And you'll begin to treat people as valuable. It'll it'll affect you personally.
 
 It'll affect your politics. It'll affect everything. The Lord, the Lord's law is exceedingly broad, and yet it's sweeter than honey to our mouth.
 
-**Conclusion:**
-
-Listen, friends, where are you this morning? Hopefully, I hope that many of you are people who have received Christ as Savior and you and you're having the image of God renewed in you. And yet you're not very compassionate people.
-
-I just think that you need to get a grip on who the people are around you and who you are. If you see the value of the people around you and you recognize what Jesus has done for you, you will be enabled to a lifestyle of aggressive compassion. But there's probably, I would hope, some people here who may begin to realize that Christianity is more than being a good person.
-
-Friends, the good works that this passage calls you to, the good works that the Bible calls you to, you are incapable of unless the image of God is restored in you because you've met Jesus Christ as your Savior. Why are we messing around with sex and drugs and money when infinite joy is available? Come to him, know the king, and then you'll be able to treat others as kings because his royal life will be in your own veins.
-
-Let's bow in prayer. Thanks for joining us here on the Gospel in Life podcast. We hope that today's teaching encouraged you to go deeper into God's word.
-
-You can help others discover this podcast by rating and reviewing it. And to find more gospel-centered content by Tim Keller, visit gospelinlife.com. Today's sermon was recorded in 1989.
-
-The sermons and talks you hear on the Gospel in Life podcast were recorded between 1989 and 2017 while Dr.
-
 ---
 
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-**引言：** 欢迎来到福音生活。在一月份，我们邀请听众考虑成为福音生活的月度伙伴。如果您想了解更多信息，请在今天的播客结束时继续收听。您是否曾希望生活有一本使用手册，当您面临困难决策或只是试图在日常小事中保持正直时，可以遵循的指南？
-
-今天在福音生活中，蒂姆·凯勒向我们展示了十诫如何帮助我们将生活与神的旨意对齐，不是通过过时规则限制我们，而是通过奠定基础，使我们能够过上真正自由和繁荣的生活。创世记第九章，第一至第七节。当神赐福给挪亚和他的儿子们，对他们说：要生养众多，遍满地面。地上的走兽和空中的飞鸟，必因你们的缘故惊恐惧怕，连地上一切的昆虫并海里一切的鱼，都交付你们的手。
-
-凡活着的动物都可以作你们的食物，正如我将青菜赐给你们一样，现在把这一切都赐给你们。只是肉带着血，那就是它的生命，你们不可吃。流你们血、害你们命的，我必讨他的罪，就是向各样的走兽，我也必讨他的罪；向人，向各人的弟兄，我必讨人的命。凡流人血的，他的血也必被人所流；因为神造人，是照自己的形象造的。
-
-但你们要生养众多，在地上昌盛繁茂。这是主的话。**第六诫及其基础：** 我们正在进行一个关于十诫的系列。这周和下周，我们将研究第六诫。
-
-我们一直说十诫不仅仅是一堆规则，而是像建造摩天大楼的框架、基础设施。十诫是神为建立伟大生活的框架。而这个特别的诫命，第六诫，是不可杀人。不可杀人出现在出埃及记第二十章第十三节。
-
-然而，它首先在我刚刚读的经文中被阐述，创世记第九章第一至第七节。因为这是在洪水结束时，挪亚和他的家人跪在大自然面前，感到非常非常渺小。我想每当我们看到飓风或地震的灾难时，每个人都会突然感到极其渺小和微不足道。你会觉得自己像一只昆虫，像一只蚂蚁，随时可能被大自然的巨大力量踩死。
-
-这就是挪亚和他的家人刚刚看到的，巨大的洪水。因此，当他们在神面前跪下时，神在创世记八章和九章中来到他们面前。神是恩慈的，向他们保证了一件非常重要的事情，一个他放入宇宙结构中的规则、真理。这里有很多有趣的事情，我会克制自己不去深入探讨。
-
-例如，在我们没有读的第八章末尾，他说，我会保护你们的生命不受自然的侵害。他说，只要地还存留，稼穑、寒暑、冬夏、昼夜就永不停息。所以首先他说，我会保护你们的生命不受自然的侵害。然后他在第五章第一至第四节中说，我会保护你们的生命不受动物的侵害。
-
-我会对任何动物为你们的血负责。最后他说，如果任何人类夺取任何人类的生命，我也会让那个人负责。**每一个人的生命都是神圣的：** 现在不要问我他如何让动物为我们的血负责。我不知道。
-
-那里有很多有趣的事情，我不会试图深入探讨。我可以，如果我愿意，至少可以推测，但你知道，多年前我被教导要传讲你的确定性，而不是你的疑虑。除此之外，重要的事情是非常清楚的。经文的重要点是绝对清楚的。
-
-每一个人的生命都是神圣的。每一个人都是无限价值的。这个经文的目的是让房间里的每个人都感受到你邻居的荣耀的重量，感受到神赋予每个人的价值的重量。这是非常非常清楚的，绝对没有办法错过。
-
-因此，神在这里说，如果我们在研究这段经文时感受到这一点，真正的手术可以在我们的心上完成。如果你真的让这段经文产生影响，以及它所说的一切，你会出来对自己说，我不能像现在这样忽视人。我必须认真对待人。我必须尊重他们。
-
-我必须积极地同情。这段经文，如果你让它对我们产生作用，可以使我们成为一个人们，一个世界会惊叹的同情的人。**积极同情的论证：** 现在，让我们来看看。看这段经文如何为积极的同情做出论证。
-
-首先，它说论据是每个人都是按照神的形象造的。其次，每个人都要为这种形象负责。这就是论据。然后，除了仅仅提出一个论据，这段经文还呼召我们不仅要相信这一点，还要过一种积极同情的生活方式。
-
-因为我们在这里被两次呼召要生养众多，遍满地面。现在，让我们来看看。首先看看论据。这里告诉我们，在这非常有趣的经文中，凡流人血的，他的血也必被人所流，因为神造人，是照自己的形象造的。
-
-这是什么意思？首先，有些人立即质疑这一点。这看起来像是对死刑的论据，不是吗？而不是担心今天死刑是否是个好主意的问题。
-
-让我们记住，神在说一些让以色列成为一个激进仁慈、正义的国家的事情。因为在那些日子里，在一个社会中，如果一个富有或有权势的人被杀，他的谋杀者会被处死。而且通常，他的整个家庭也会被处死。但另一方面，如果一个农民被一个可能是更高阶层的人杀死，通常更高阶层的人会向农民的家人支付罚款，可能是一万舍客勒或类似的东西。
-
-现在，这里有个问题。这里的问题是，圣经说，如果你杀了某人，你支付一万美元的罚款，死者的生命值多少钱？答案是只有一万舍客勒。如果你坐牢二十年，死者的生命值多少钱？
-
-只有二十年。神在这里说，并且在整个圣经中说，不。每个人都是无限价值的。因此，没有人可以为生命付出代价。
-
-生命只能以自己的货币支付。因此，在以色列，我们有这样一条显著的法律，如果你杀了某人，你会被处死。这是一种保护生命神圣性的方式。因为在其他社会中，那些不被认为重要的人，你看，并不被视为无限价值的。
-
-你可以支付一个有限的金额作为罚款。不，圣经说，每个人的生命都是无限价值的。每一个。为什么？
-
-因为，看看这节经文的后半部分，因为神造人，是照自己的形象造的。**神的形象——我们像镜子：** 这是什么意思？嗯，神的形象是使我们与植物和动物不同的东西。神的形象是使我们理性的东西，是使我们有个性、能够爱和交流、能够创造的东西，能够想象不存在的东西。
-
-但也许解释我们是按照神的形象造的最好的方法是把我们想象成镜子。二十年前，我读到这段经文，我没有把它打印在这里，但这是C.S.路易斯的一段话，可能是我最喜欢的引用，可能是永远改变了我对人类的看法的东西。路易斯在某个时候说，神可以把我们中最虚弱和最肮脏的人变成耀眼、光辉、永生的生物，充满我们现在无法想象的爱、能量、喜悦和智慧。我们将成为明亮、无瑕的镜子，反映回给神他自己无尽的力量、喜悦和美好。
-
-这就是我们所期待的，他说，绝不止于此。现在，你听到了吗？你看，如果你看一块石头，石头无法反射回给我我给它的光。但当你看一面镜子时，镜子是被建造的，它有一种性质，它被建造得可以在较小的规模上，在一维或二维的规模上反射回给我进入的光。
-
-而圣经告诉我们，这就是我们被造为神的形象的意义。我们有能力像神一样，像他的圣洁、他的爱、他的喜悦。我们有可能像他一样，认识他，享受他，与他建立关系，你看。然而，圣经告诉我们，我们已经转离了。
-
-当我们决定成为自己的主人时，这就像镜子转离太阳，面向黑暗。你知道吗？在黑暗中，镜子和石头有什么区别？没有区别。
-
-因为即使它有能力，它也没有面对任何可以反射的东西。因为我们已经转离了他，我们的镜子在某种意义上，神的形象在我们里面已经变得破裂、扭曲和黑暗。如果你曾经看过一面美丽的旧镜子，华丽的大东西，但它全是破裂和黑暗的，你只能看到自己脸的扭曲，这就是神看我们的方式。事实上，这就是我们应该看待自己和他人的方式。
-
-当你看一个人时，就像看一个欧洲的古堡，甚至没有屋顶了。它是一千年前建造的。即使它是一片废墟，即使它不能再作为它被建造的东西运作，它仍然有一种宏伟感。它仍然有一种高贵感，你想以一种神圣的方式对待它。
-
-通常它是被神圣对待的，通常是被标记的，你看。这就是神看我们的方式，这就是我们看待彼此的方式。如果你是基督徒，你意识到即使你看到一个邪恶的人，即使你看到一个搞砸的人，就像一个城堡的废墟，你会说，哦，我多么希望看到这个东西被恢复。想象一下它可能会是什么样子。
-
-**你邻居的荣耀的重量：** 现在，你开始感受到你邻居的荣耀的重量了吗？圣经说每个人都是那样的，按照神的形象，是一个不朽的存在。当我们说你感受到你邻居的荣耀的重量时，**这意味着要考虑每个其他人在长椅上的人，你可能坐在或靠近你甚至不认识的人旁边。**现在，听着，为什么古人总是把黄金视为如此有价值？
-
-不是因为它如此稀有，而是因为它是永恒的。因为它不会消失，它不会分解，它不会生锈，它不会破碎。它是永恒的。听着，朋友们，数十亿年后，当外面看起来如此巨大的山脉被磨成鹅卵石时，当看起来如此明亮和强大的太阳已经燃烧殆尽，只是一个小小的，三英寸半乘五英寸的红矮星时。
-
-数十亿年后，当山脉变成鹅卵石，太阳几乎耗尽时，坐在你周围长椅上的人仍然会存在。这就是基督教的信息。基督教的信息是人类是不朽的。自然是凡人的。
-
-我们将比她活得更久。让我给你另一个C.S.路易斯的引用，向你展示这种对人类的看法是多么激进。C.S.路易斯说，也许可能过多地考虑你自己在此后的潜在荣耀，但不可能过于频繁或过于深入地考虑你邻居的荣耀。我邻居的荣耀的重量应该每天放在我的背上，这样的重量只有谦卑才能承载。
-
-生活在不朽者的社会中是一件严肃的事情，记住数百万年后，你遇到的最迟钝和最无趣的人可能有一天会成为一个令人难以置信的生物，如果你现在看到他，你会强烈地想要崇拜，或者是一个你现在只在噩梦中遇到的恐怖。整天我们在某种程度上帮助彼此走向这些目的地之一。因此，考虑到这些压倒性的可能性，我们应该以适当的敬畏和谨慎来处理我们与他人的所有交往，所有的友谊，所有的爱，所有的游戏，所有的政治。没有普通人。
-
-你从未与一个普通的凡人交谈过。国家、文化、艺术、文明，这些都是凡人的，它们的生命与我们的生命相比如同蚊子的生命。但与你开玩笑、工作、结婚、冷落和剥削的是不朽者。不朽的恐怖或永恒的辉煌，你的邻居是呈现给你感官的最神圣的对象。
-
-**实际意义：** 现在，也许这让人头晕目眩，有点难以接受，但它有最绝对实际的影响，无论是在政治和崇高的国际政策方面，还是在你今天对待你遇到的人的方式方面。听着，如果一个政府理解基督教的理解，拥有基督教对人类的理解，他们是不朽的，他们永远存在，他们是按照神的形象造的，这将对他们如何制定公共政策产生很大影响。如果一个政府没有基督教的观点，它可以这样推理，好吧，我们在这里是为了建立一个将持续一千年的伟大文明。如果为了做到这一点，我们必须消灭一些麻烦制造者，我们必须扼杀一些只活六七十年的人类生命，而我们正在为数百万将持续一千年的人建立一个文明，当然可以扼杀一些人。
-
-但你看，基督教的观点是每个人都是按照神的形象造的，每个人都将比不仅一个文明，还将比文明本身活得更久。我们将比一千个文明活得更久，因此没有一个人可以被扼杀，因为没有什么东西在地球上值得那样做。没有什么东西像一个按照神的形象造的人那样有价值。你不明白吗，这改变了一切。
-
-你明白吗？但它也改变了你对待个体的方式。你感受到你邻居的荣耀的重量吗？如果我刚才说，你知道，当我们传递奉献盘时，如果我说，哦，顺便说一下，我们今天早上的奉献盘是从大都会艺术博物馆借来的。
-
-它们是纯金制成的。它们有两千年的历史。它们是绝对无价的。你可能会对那些东西比你对那些经过的东西看得更不同吗？
-
-你会以不同的方式对待它们吗？你会不会只是说，哦，给你，而是可能会以最大的关心对待它们？你知道，会有一种敬畏感。你会说，想想。
-
-你知道，想想法老们从中吃过东西。想想它的价值有多大。看看它的美丽。你会以敬畏和颤抖对待它，你看，既有一点焦虑，关心真正地对待它，一种神圣感，同时也有一种能够甚至有荣幸触摸这样的东西的喜悦。
-
-亲爱的朋友们，那些东西与一个人相比什么都不是，如果你理解你邻居的荣耀的重量。我们都追逐成功、真爱或完美生活这样的东西，这些好东西很容易成为最终的东西。当我们把信仰放在它们上时，内心深处我们知道它们无法满足我们最深的渴望。事实是，我们把好的东西变成了较小的神，那些不能给我们我们真正需要的东西。
-
-在他的书《假神：金钱、性和权力的空虚承诺以及唯一重要的希望》中，蒂姆·凯勒向我们展示了如何正确理解圣经揭示了社会理想和我们自己内心的真相，并向我们展示只有一个神可以完全满足我们的愿望。本月，我们将把《假神》作为我们对您帮助福音生活与世界各地的人分享基督之爱的感谢赠送给您。您可以在gospelandlife.com/give请求您的副本。这是gospelandlife.com/give.现在这里是凯勒博士，带来今天教学的其余部分。
-
-**你是否尊重人？** 现在让我们实际一点。人们是否感到被你重视？人们在与你相处后，是否感到你认真对待他们，你专注于他们，充满爱心，无论他们是谁？
-
-人们是否会觉得你让他们感到像百万富翁一样？现在你怎么知道你是否尊重人，是否真的以那种无限的价值对待人？这很简单。人们自己会回来。
-
-他们感到被肯定。他们感到被尊重。通常，他们会想和你谈论他们的问题。我的问题是，朋友们，你是否让人们有这种感觉，还是你很冷漠？
-
-你是否环顾四周，而不是说，哦，看看这些有价值的人，看看这些人，我想知道我能以什么方式向他们展示他们应得的荣誉？我如何专注于他们？我如何爱他们？我如何找到他们的需求，你看？
-
-你是否这样对待他们？还有什么？你是否起床，环顾四周说，我想在这里吗？这些是我想混在一起的人吗？
-
-我们在这里谈论的事情是我感兴趣的吗？你是利用人还是爱人？这是两种完全不同的生活哲学，它们建立在两种完全不同的对人类的理解上。你是否尊重人？
-
-你是否有勇气去发现？为什么不问问别人？问问人们你是否是那种可以接近的人。问问人们你是否是那种人们想要寻找的人。
-
-问问人们你是否重视人。问问你的配偶。问问你的父母。问问你的朋友，如果你敢的话。
-
-这是件可怕的事情。当然是。你是否感受到论据？你是否感受到积极同情生活的论据的重量？
-
-每个人都是按照神的形象造的。这导致了这句非凡的声明，神从每个人的形象逻辑地转到这一点，从每个人到，我将要求对他同胞的生命负责。这不仅仅是抽象地相信每个人都是按照神的形象造的。圣经告诉我们，神非常具体地将这个重量放在我们身上，并让我们对他人的生命负责。
-
-你知道那句老话，它不在圣经中，我不知道它最初来自哪里，没有人是孤岛，**这是事实。这是真的。这是一个圣经真理**，尽管它不是一个圣经引用。你是连接的，你是负责的，你无法避免。
-
-**违反第六诫的五种方式：** 在十七世纪，当新教教会在英格兰试图找到它的立足点并试图理解圣经教导我们对彼此的责任时。它通过十诫工作，并有一个由许多圣经学生写的文件，该文件被称为威斯敏斯特信条。很有趣的是，当他们研究圣经时，当他们研究那个诫命时，你不可杀人，他们如何理解圣经告诉我们我们对彼此的责任。有一个叫托马斯·沃森的人写了一本关于十诫的有趣评论，他说，有五种方式可以违反第六诫。
-
-你想听吗？你有选择吗？第一，你可以用手杀人来违反诫命。好吧，我们都知道这一点。
-
-B,我们可以用心杀人来违反诫命。现在我们不会多谈这个。下周我们会。耶稣说过。
-
-如果你恨某人，如果你对某人怀有怨恨，那就是用心谋杀，违反了诫命，因为最终诫命是爱人的诫命。A,B,C,你可以用手杀人，你可以用心杀人，C,你可以用舌头杀人，或者用笔，或者用文字处理器。D,现在这里很有趣，托马斯·沃森说，如果你拒绝给予一个正在灭亡的人你有能力给予的帮助，你就违反了这个诫命。最后，E,他说，还有那些写威斯敏斯特信条的人几百年前说，当你拒绝或撤回或忽视给予某人维持和加强他们生命所必需的东西时，你就违反了这个诫命。
-
-他们在这一点上引用马太福音25章，耶稣说，我饿了，你没有给我吃的。我渴了，你没有给我喝的。我没有住所，你没有收留我。我病了，你没有来看我。
-
-我在监狱里，你没有来看我。你看，这里在创世记9章说，你必须照顾人，因为他们是按照神的形象造的。神的所有权印记在他们身上。在某种意义上，神在说，如果你不正确对待他们，我视之为对我的攻击，因为我的形象在他们身上。
-
-在马太福音25章，耶稣基督说，如果你看到某人饿了，你没有给他们吃的，你拒绝给予他们维持和支持他们生命所必需的东西，如果你有能力给予他们一些东西而你没有这样做，我视之为对我的个人冒犯。他说，如果你没有喂他们，你就没有喂我。如果你没有拜访他们，你就没有拜访我。你不明白吗，马太福音25章和创世记9章在说同样的事情。
-
-当你环顾世界时，你是否看到正在灭亡的人？被压迫的人，被剥夺权利的人，贫困的人，需要某些必需品来加强他们的生命的人，你是否有任何能力在你手中使那些人的生命得到加强，你是否有任何能力在你手中而你没有实际使用的？这就是托马斯·沃森，这就是过去的圣经学生理解诫命的方式，这是真的。说你对你同胞的生命负责意味着环顾自己，问，是否有人的生命正在灭亡，生命正在被削弱，而我是否有能力做些什么而我没有使用的？
-
-例如，我不知道纽约的统计数据是什么，但当我在费城时，我在学习中读到每年在费城，有3万个家庭，3万个有人居住的家庭整个冬天没有任何公用设施。现在，我记得当我读到这个时，我在学习这段经文时，我说，我是否有任何能力在我手中做些什么而我没有使用的？我是否可以找到一个这样的家庭，我可以为至少保持暖气运转做出贡献？我是否甚至努力去做到这一点？
-
-我会让你对你同胞的生命负责。想想看。**积极同情的生活方式：** 现在，你不明白吗，我们来到这一点，积极的同情，圣经说。哦，每个人都是按照神的形象造的。
-
-你感受到你邻居的荣耀的重量吗？如果你这样做，你不明白这将对我们作为信徒产生什么影响吗？想想我们将会多么积极地参与社会活动。想想我们将会多么积极地参与政治活动。
-
-是的，因为如果你有任何能力在你手中帮助那些正在灭亡的人而你没有使用它，你就没有尊重这个诫命。但不仅如此，它不仅影响到崇高的东西，还影响到你在地铁里对待人的方式，你在排队时对待人的方式。在纽约，你总是在排队。你如何对待你周围的人？
-
-你是否以无限的价值对待他们，还是只是把他们当作家具？有时情况更糟。你如何对待人？它影响一切。
-
-积极同情的生活方式。**力量的源泉：** 现在，我的问题是，如果你在思考，为什么你还没有沮丧？听着，你现在应该感到糟糕。我们生活在一个残酷的世界。
-
-即使有很多你可以做来帮助人，这将是非常困难的，你会发现自己一次又一次地被打败。你会说，我从哪里得到力量来做到这一点？这是这里的最后一点。它在这段经文中有所暗示，但在其他地方更明确。
-
-如果你注意到在这段经文的开头和结尾，我们被告知要生养众多。现在，这只是一个生孩子的命令吗？不，我不这么认为。不仅仅是这样。
-
-在新约中，我们也被告知这一点。我们应该进入世界，成为门徒。在使徒行传中，我们被告知，当福音开始在耶路撒冷城中传播时，门徒们到处增加。我相信当神说要生养众多时，他在谈论神的形象。
-
-他在说，我不希望你只是保护神的形象。我希望你恢复和传播形象，并传播到各地。**耶稣——恢复神的形象：** 好吧，有人说，你怎么做到这一点？答案是你必须去找耶稣，他是神的形象，认识他，并在你里面恢复神的形象，然后你才能在其他人中恢复和保护它。
-
-你听到了吗？听着，歌罗西书1：15说，他是无形神的形象。在以弗所书4：24中，它告诉我们，当我们来到他面前时，他是神的形象。我们变得像他，我们的形象被更新。
-
-就像我们的镜子转回他，反射开始发生。最重要的是，当你看着耶稣基督并与他个人相识时，你里面的神的形象开始被恢复，这使你能够过一种积极同情的生活方式。**福音创造骑士：** 当你看，当你看看一个人应该是什么样子时，你会看到一些非常有趣的东西。最近，我在阅读中世纪的骑士理想，某人我在读的说，记住中世纪骑士的观念是一个特别的基督教理想是相当重要的。
+当你看，当你看看一个人应该是什么样子时，你会看到一些非常有趣的东西。最近，我在阅读中世纪的骑士理想，某人我在读的说，记住中世纪骑士的观念是一个特别的基督教理想是相当重要的。
 
 骑士是一个人。现在，听着，一个非常有趣的人，骑士是一个在战场上非常凶猛的人，不怕血和内脏。但也是一个有学问的人，一个温文尔雅的人，一个谦虚的人，一个有爱心的人，你看，一个在战场上和在艺术画廊里一样自在的人，你看。这就是高贵的理想，这就是为什么在亚瑟王之死中，当兰斯洛特死去时，谁是终极骑士，赫克托尔爵士看着他的尸体说，你是有史以来最温顺的骑士，与女士们一起在大厅里用餐，你是有史以来最严厉的骑士，曾从胸膛中拔出长矛。
 
@@ -457,7 +524,27 @@ B,我们可以用心杀人来违反诫命。现在我们不会多谈这个。下
 
 这会影响你个人。这会影响你在地铁里的方式。这会影响你的政治。这会影响一切。
 
-主的律法极其广泛，但对我们的口来说比蜜还甜。**结论：** 听着，朋友们，你今天早上在哪里？希望，我希望你们中的许多人是那些已经接受基督为救主并且你并且你正在恢复神的形象的人。然而，你不是一个非常有同情心的人。
+主的律法极其广泛，但对我们的口来说比蜜还甜。
+
+---
+
+## 结论：来认识这位君王 / Conclusion: Come to the King
+
+Listen, friends, where are you this morning? Hopefully, I hope that many of you are people who have received Christ as Savior and you and you're having the image of God renewed in you. And yet you're not very compassionate people.
+
+I just think that you need to get a grip on who the people are around you and who you are. If you see the value of the people around you and you recognize what Jesus has done for you, you will be enabled to a lifestyle of aggressive compassion. But there's probably, I would hope, some people here who may begin to realize that Christianity is more than being a good person.
+
+Friends, the good works that this passage calls you to, the good works that the Bible calls you to, you are incapable of unless the image of God is restored in you because you've met Jesus Christ as your Savior. Why are we messing around with sex and drugs and money when infinite joy is available? Come to him, know the king, and then you'll be able to treat others as kings because his royal life will be in your own veins.
+
+Let's bow in prayer. Thanks for joining us here on the Gospel in Life podcast. We hope that today's teaching encouraged you to go deeper into God's word.
+
+You can help others discover this podcast by rating and reviewing it. And to find more gospel-centered content by Tim Keller, visit gospelinlife.com. Today's sermon was recorded in 1989.
+
+The sermons and talks you hear on the Gospel in Life podcast were recorded between 1989 and 2017 while Dr.
+
+---
+
+听着，朋友们，你今天早上在哪里？希望，我希望你们中的许多人是那些已经接受基督为救主并且你并且你正在恢复神的形象的人。然而，你不是一个非常有同情心的人。
 
 我只是认为你需要掌握周围的人是谁以及你是谁。如果你看到周围人的价值并且你认识到耶稣为你所做的，你将能够过一种积极同情的生活方式。但可能，我希望，有些人可能开始意识到基督教不仅仅是一个好人。朋友们，这段经文呼召你的好行为，圣经呼召你的好行为，如果你没有通过认识耶稣基督为你的救主而恢复神的形象，你是无法做到的。
 

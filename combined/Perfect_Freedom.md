@@ -4,79 +4,7 @@
 
 ---
 
-Welcome to Gospel in Life. Are you longing to see real change in your life, in your habits, your relationships, your heart? Today, Tim Keller explores how lasting change actually happens in the life of a Christian and why the Gospel offers a radically different process of transformation than anything else.
-
-The Scripture is from Romans chapter 6. What shall we say then? Shall we go on sinning so that grace may increase?
-
-By no means. We died to sin. How can we live in it any longer?
-
-Or don't you know that all of us who were baptized into Christ Jesus were baptized into his death. We were therefore buried with him through baptism into death and order that just as Christ was raised in the dead through the glory of the Father, we too may have a new life. If we have been united with him like this in his death, we will certainly also be united with him in his resurrection.
-
-But we know that our old self was crucified with him so that the body of sin might be done away with, that we should no longer be slaves to sin because anyone who has died has been freed from sin in the same way count yourselves dead to sin but alive to God in Christ Jesus. Therefore do not let sin reign in your mortal body so that you obey its evil desires. Do not offer the parts of your body to sin as instruments of wickedness but rather offer yourselves to God as those who have been brought from death to life and offer the parts of your body to him as instruments of righteousness.
-
-For sin shall not be your master because you are not under law but under grace. But then shall we sin because we are not under law but under grace? By no means, don't you know that when you offer yourselves to someone to obey him as slaves, you are slaves to the one whom you obey whether you are slaves to sin which leads to death or to obedience which leads to righteousness.
-
-But thanks be to God that though you used to be slaves to sin you hoardedly obey the form of teaching to which you were entrusted. You have been set free from sin and have become slaves to righteousness. This is God's word.
-
-We just completed a series on why and how to believe in Jesus. And now I'd like to do a short series on how if you believe in Jesus, that faith actually changes you. What is the process by which change really happens?
-
-If you need to see changes in your life, how does that flow from belief in Jesus? When I first embraced faith which would be late college, right after college, I had a number of things in my life that needed profound change. And nothing seemed to work until two Christian writers, one from the 16th century, excuse me John Owen, and one from the 20th century John Stott, I just really met, both directed me in their writings to Romans chapter 6, 7 and 8.
-
-Paul there, more fully than any other place in his writings or the Bible, lays out how faith in Christ concretely leads to changes, what the process really consists of. It's more succinctly put by the way in Colossians 3 but it's most fully put in Romans 6, 7 and 8. And that's what we're going to look at.
-
-I'm going to take you there. It's like kind of going home for me in a way and I take you there over the next brief handful of weeks. And the whole chapter, chapter 6, 7 and 8, that whole section revolves around the question that you heard posed twice, both in verse 1 and 15, you heard it read.
-
-And the question arises from Paul's teaching about the gospel, in chapters 1 through 5 of Romans, he lays out the gospel. And the gospel has a theme in it that's unique to all the world religions and all the philosophies of the world. That is, that salvation is received, it's not achieved.
-
-It's received not on the basis of your merit or your goodness or anything in you at all. That's radical. And whenever you hear that form of teaching, whenever that gospel teaching is laid out, immediately and inevitably at first hearing anyway, the question arises, wait a minute.
-
-If that's the case, if salvation is surely by grace is nothing to do with how you live, not live any way you want, why would you want to change? Why would this kind of message change you at all, it seems to me, somebody might say, that this message would leave you exactly the way you were? Paul answers that question.
-
-See, if you understand the gospel, why would you change? How do you change? Why would you want to change?
-
-Paul answers that. And in the process, he gives us three principles, in my experience and my pastoral work with people over the years, and in my understanding, studying in the Bible, are absolutely crucial. Three keys, three secrets, three principles, I don't know, I really want you to listen to them.
-
-Three keys to real profound life change, and here's what they are. You have to recognize the shape of your spiritual slavery. You have to realize the scope of your cosmic unity with Jesus.
-
-And you have to live daily out of your new identity. Recognize your spiritual slavery, the shape of it. Realize the breadth and scope of your cosmic unity with Jesus.
-
-And live daily out of your new identity. Slavery, unity identity. Let's look at these three things.
-
-And by the way, if you're done with the sermon, you say, I really need more detail. This is the introduction to a series to be continued. Come back.
-
-All right, so if I preach this well, I won't preach this well. I won't preach this fully because it's an introduction. First of all, this passage tells us you have to recognize your spiritual slavery.
-
-And I'm looking at verse 15 and 16. And 15 and 16, Paul says, especially 16, after saying, what? Shall we send that grace may abound, that we're not under a law but under grace?
-
-No, he says, don't you know that when you offer yourselves to someone to obey him as slaves, you are slaves to the one whom you obey. Whether you are slaves to sin, which leads to death, or to obedience, which leads to righteousness. Now, the first half of verse 16 isn't as shocking to the original readers as it seems to us.
-
-The reason why it seems somewhat shocking to us, when he says, offer yourselves as slaves, is because when we read what the Bible says about slavery, we read it through, I mentioned this a couple of weeks ago, right, we read it through the filter of our own experience of new world slavery and we think of slavery as race-based and for life. But in the first century, if you were facing a lifelong debt, an enormous debt, and you didn't want to be saddled with it the rest of your life, it wasn't uncommon for a person to actually sell themselves to a particular person for a period of time, for five years, for 10 years, in order to work off the debt, you know, as fast as possible. And therefore, you offer yourself into bond service, you offer yourself into slavery.
-
-But Paul says, the problem is that you're getting something which, of course, is getting rid of the debt. That person is now your master. That person has complete control over your life.
-
-Now that wasn't that surprising to the original readers. But the second half, after the dash, was. Because Paul proceeds then to bring this into the spiritual realm and he says, don't you realize that there's only two categories of people in the world.
-
-People who are obeying God and are in absolute unconditional service to God or people who are spiritually slaves to something else. And there's no other category, there's no third category, there's nothing in the middle. There's no alternative to that, those two.
-
-What Paul's doing is he's booting off of the first commandment of the 10 commandments. And in that first commandment, Paul, God says, I am the Lord God. I must be your God.
-
-Don't make anything else your God. But notice the first commandment only says there's two things, two categories. You either make God, God, or you make something else your God.
-
-But there is no third possibility, there's no alternative. You must, if you don't worship the true God, make something else a God in your life. Even if it's small G, even if it's small case G, there's no one without a God.
-
-Now, how can that be, you say, well, think. And this is what Paul's, this is his case. Everybody lives for something, what do I mean by that?
-
-Well, to live for something means everybody has a something that is your main way of significance and your main way of security, your main way to feel valuable, or like your life is worth anything, or that you have any significance. And there's always something that is the main way that you face the difficulties and dangers of life. Something is the main way, regardless of what your doctrinal beliefs are about, religion, and so on.
-
-Something is the main way that you get significance in the main way you get security. And that could be a career or family or achievement. It could be personal independence or the need to have people dependent on you.
-
-It could be power and influence or human approval. It could be a political cause. It could be money.
-
-It could be romance. It could be physical attractiveness. It could be any number of things, but here's what Paul is saying.
-
-You're going to live for something. There's going to be something that basically makes your life feel like it's meaningful. It makes you feel like you're worthwhile.
-
-But he says, here's what you don't seem to know. Whatever that is, is a spiritual master. It's controlling you.
+## 奴役的悖论 / The Paradox of Slavery
 
 You think it's doing something for you, and it is doing something for you. But you have offered yourself to it. You've offered yourself.
 
@@ -158,6 +86,62 @@ It's another thing to commit yourself, and that's the ring that's baptism. And s
 
 Verse five, they are united. We are united to him. And that word united is a strange word, actually.
 
+---
+
+你以为它是在为你做些什么，实际上你在向它奉献自己。你已经把自己交给了它，被它控制了。这是一种精神上的主人。为什么？
+
+答案就是这个希腊动词。那些听我演讲久一点的人，或者听过这堂课的人，知道每当谈到这个问题时，总有一个希腊动词在附近。这里就是那个词，在第12节中。他说：“不要让罪恶在你们的肉身中掌权，以至于顺从它的欲望。
+
+” 不要让罪恶掌权。你看，这就是精神上的主人。你会成为某种东西的奴隶。你所奉献给的东西，无论是什么，都是通过“邪恶的欲望”来控制你的。
+
+让我们对翻译者表示同情。这里有一个希腊词很难翻译。在旧钦定本圣经中，它通常被译为“肉欲的淫念”。问题在于，这个翻译其实并不差。
+
+对我们和你们今天来说，“肉欲的淫念”意味着性行为，但这并不是在谈论性。而且经文里并没有直接提到这个词。其中包含一个词thumia，意思是欲望或驱动力。但这个词前缀是epithumia，意思是过度的欲望或过分的驱动力。
+
+这并不是指对坏事的欲望，而是指对好事的一种正当的欲望。而正是这种正当的欲望让你失去控制。你生活中有好的东西，却把它们当作终极目标，从而控制了你的生活，因为如果这些是你生命的意义所在，那么它们就是真的对你有意义。你追求的是安全感。
+
+你需要拥有这些东西。你需要拥有它们。因此，它们通过一种正当的欲望来控制你。让我给你三个测试。
+
+我将给出三种类型的epi欲望或正当欲望。这会告诉你你的精神导师是谁。第一个是愤怒。如果某件事阻碍了你得到一个好东西，你会生气。
+
+但如果某件事阻碍了你得到一个终极目标——你生命的基础，你会变得epi愤怒。你会失去理智。你会说出事后后悔的话。我不知道自己为什么这么说。
+
+你会大发雷霆，或者变得极其怨恨。你有没有发现很难原谅别人？这背后的原因是某种精神导师通过过度的欲望控制着你。让我再给你第二个测试：恐惧。
+
+如果某件好事受到威胁——生活中的一件好事受到威胁，你会感到担忧。但如果生活中最重要的东西受到威胁，你会被恐惧彻底击垮。你无法控制自己的焦虑。你是否如此焦虑以至于无法集中思想？
+
+这让你害怕到你知道自己是被它驱使的。这是因为某种精神导师或某个事物在奴役着你，并控制着你。它是在测试你，或者第三个测试是悲伤。如果你失去了一件好事，你会悲伤、哭泣，那真是糟糕透了。
+
+这需要几个月的时间才能恢复过来。如果你失去了生命中最重要的东西，你会想要从桥上跳下去。你会觉得生活中没有意义。马丁·路德在他的《大要理问答》中，这篇杰出的作品，阐述了第一条诫命：“除了我以外，你不可有别的神。
+
+”在对这条诫命的解释中，他指出，第一条诫命是所有其他诫命的基础。他说，在你的一生中，你从没有做过任何错事。你从没有生气、害怕或沮丧过。你从不撒谎，从不杀人，从不偷窃，你从不做任何错事。
+
+除非首先，你在生活中树立了一个偶像，这是你生活中一切事情的原因所在。这就是一切的根源。如果你有饮食障碍，你就把自己献给了瘦削之神。在某个深层次上，你的内心认为，如果我瘦了，如果我看起来像那样，我就没事了。
+
+如果你是个工作狂，过度工作，并且你知道自己是在过度工作，你已经与金钱、地位或成就签订了契约，将自己献给了这些神明。有多种不同的方式。如果你处于一段关系中，你知道，大家都知道这段关系真的不好。但是你无法放手。
+
+你已经将男性或女性的爱变成了你的偶像。你根本无法想象没有某个人的生活。这些事情在困扰着你，而保罗在这里说：世界上每个人都有一位精神导师。世界上没有人是自由的。
+
+你以为自己在掌控一切。你以为你是自己的人，但其实不是。直到你摆脱了这种错觉，你才不会做出你需要在生活中改变的事情。所以你看他的第一个回答。
+
+当一个人说：“好吧，既然一切都是恩典，为什么神要这样安排？为什么不按照我的意愿来？”他说：“如果你说：‘为什么我不可以随心所欲地生活？’那你真是可笑。
+
+” 您对人性的内心世界有着致命的天真。如果您没有遵行神的心意，如果没有完全归属祂，您就是绝对失控的。而且每个人都有不同的形状。每个人的灵性导师都是不同的。
+
+因此，在任何重大改变的第一步是了解自己，并且要认识到自己的灵性服务的独特形态。第一点，第二点。其次，第二点和第三点紧密相连，但首先，如果您想获得基督赐给您的改变资源，您必须意识到与祂之间宇宙性的合一范围之广袤。这段经文的核心，在于这一章乃至这三章中的这些节次——从第三节到第五节。
+
+难道你们不知道，凡浸洗归入基督耶稣的人，按照第五节所说，若与祂同死，也必与祂同活吗？首先，他指的是谁？是那些受洗的人，那又意味着什么呢？这就是祂说的“被转化”的人。
+
+哪些人是受洗的呢？这些人是已经将生命献给基督的人。洗礼就像婚戒一样。坠入爱河是一件事，而将生命奉献给某个人又是另一回事。
+
+坠入爱河是一件事情，而全心投入则是另一回事，这就是婚戒所象征的意义——洗礼。因此，当他提到受洗时，并不是指超凡的基督徒，而是指那些真正将生命献给耶稣的人。这些人的哪些特质是真实的呢？第五节说，他们是被联合的。
+
+我们与祂同在。这个“联合”一词其实很特别。这是一个园艺术语，意味着我们已经被嫁接到主的生命之根上。根部。
+
+---
+
+## 与基督联合 / United with Christ
+
 It's a horticultural word, and it means that we've been engrafted into the root. The root. Not engrafted up here, even though there's other places in the Bible that talk about that.
 
 The metaphor is trying to say that our life has been inserted into the very roots of his life. What does that mean? Well, look at verse five, we have been united to the past and the future of Jesus Christ.
@@ -238,6 +222,62 @@ Get rid of your low goals. Get rid of all your goals. Get rid of your low goals 
 
 Get rid of your low goals. Instead of saying, what I am trying to say is people so often say, well, if I become a Christian, what I have to stop doing that, will I still be able to do that? Anticipate that you will not be able to anticipate the magnitude of the changes that when they begin to come, you will be so grateful for.
 
+---
+
+不是嫁接在这里面，虽然圣经中其他地方也有提到这一点。这个比喻试图说明我们的生命已经嵌入到耶稣生命的根源之中。**这意味着什么呢？看看第五节，我们与耶稣基督的过去和未来是联合在一起的。**
+
+耶稣的过去现在就是我们的过去。耶稣的未来并不是我们的未来。这就是它所要表达的意思。我有一系列的内容要来解释这个，但先给我几分钟时间。
+
+首先，它说我们在他里面死了。我们的过去就是他的过去。这什么意思？记得我在提到歌罗西书第三章时也提到了这一点，并且在那里保罗说得更为简洁。
+
+在歌罗西书第三章中，他说：“你们与基督一同复活了，已经和基督一同坐在天上；你们死在过犯和罪孽之中，如今与基督一同藏在神里面。” 我们在他里面死了，在他里面复活，现在与基督一同坐在天上的位置。这又意味着什么呢？想象一个人变得富有，他是怎么变得富有的呢？
+
+是通过他的聪明才智和勤奋努力。所以财富是通过他的聪明才智和勤奋努力得来的。但现在这个人结婚了，这些财富是如何转移到新配偶身上的呢？是通过合法的婚姻关系，就像恩典一样。
+
+一个人通过自己的努力积累了所有的财富，但另一个人只是通过婚姻关系就拥有了这一切。这就是为什么耶稣基督在父神的右边，那是荣耀的位置——你把首相放在那里，把凯旋归来的将军放在那里。他为什么在父神的右边？是因为看他所成就的一切。
+
+看他的生命，看他的高贵、善良、伟大和勇敢。父神看着儿子，心里充满了喜悦。这段经文正是说，耶稣基督所做的每一件事现在都合法地属于你了。决定你与神关系的因素不再是你的过去而是基督的过去。
+
+父神疼爱你，接纳你，并以极大的喜悦看待你，视你为拥有他儿子的一切美丽、伟大和荣耀。他视你为因信耶稣基督的死而得释放，不再受罪孽的定罪。你的罪孽仿佛是你自己已经死了，并且为你付上了赎罪的代价。诗篇可以深刻地塑造你与神交往的方式。
+
+甚至在面对死亡时，耶稣也依靠诗篇来应对每一个情况。在提摩太和凯瑟琳·基勒的《365日灵修》中，《耶稣之歌》，你会找到每天通过诗篇的新颖圣经见解。如果你没有固定的灵修习惯，这本书是一个很好的开始方式。而如果你已经花时间研读和祷告，那么阅读并祷告诗篇可以帮助你将最深的情感和疑问呈现在神面前，并发现与祂更深的亲密关系。
+
+作为您对福音和生命传播耶稣之爱的支持，我们将赠送您提摩太和凯瑟琳·基勒的灵修书籍。请访问gospelandlife.com/give获取您的副本。现在，请听基勒博士今天的教导继续。正如经文第五节所说，我们确实会在基督的复活中联合起来。
+
+注意这里说的是“确实”，而不是条件。如果你真的过着良好的生活，并且来教会、来赎罪堂参加提摩太和凯瑟琳·基勒的服侍，你当然会被联结到祂身上。这并不意味着任何条件性的说法。它说的就是“你已经”被联结了。
+
+**这意味着什么？圣经中有一个非常有趣的希腊词出现了两次。**这是一个哲学术语，也是这个术语的名字叫Palingenesia。你听到里面有个词Genesis（创世记），实际上它的意思是宇宙的重生、宇宙的重生。
+
+这个词源自斯多葛派哲学，他们认为当然历史是一个无尽的循环，世界会变得越来越糟，会有衰败和破灭，而斯多葛派相信每隔一段时间就会有一次净化，一场大火会来净化一切、净化一切，并带走旧的一切，使一切都焕然一新。这是斯多葛派的观点。宇宙不断重生和再重生，那么作为基督徒，我们相信什么呢？这就是我们的信仰。
+
+在马太福音19章28节，耶稣基督故意用这个词，在最令人震惊和惊异的方式使用了它。他说：“在Palingenesia（重生）的时候”，通常被译为“万物更新”的时候。当人子坐在他荣耀的宝座上时，所有为了我的缘故而失去房屋、兄弟姐妹、父亲母亲、儿女或田地的人，都会获得百倍的回报，并且得到永生。许多原本是第一的将会变成最后，许多原本是最后的将会成为第一。
+
+耶稣说会有Palingenesia（重生），但在某个特定的时刻，所有历史都将变得不再真实。一切将被净化。一切都将成为新的，一切都将欢腾，一切都将充满完整和丰满。什么火焰足够强大？
+
+什么力量给予生命足以做到这一切？答案是：当耶稣基督展示出他的王权，当人子坐在他荣耀的宝座上时，在未来，整个世界都将被净化、重生。宇宙的重生，一切都会变得不再真实。历史本身将被改变。
+
+这不是很令人惊叹吗？更令人惊奇的是，这个词在圣经中出现了一次，而且是在一个更加意想不到的地方。提多书第三章第五节，保罗在谈论我们的救赎，个人的救赎。他这样说：“我们是因着他的恩典得救，并不是因为行为上的义，乃是因着信主耶稣基督的洗。
+
+”你知道这个“重生”是什么意思吗？这个词叫Palingenesia。乍一看，这似乎不太合适。因为Palingenesia指的是宇宙的重生，而不是个人的更新，但你知道保罗在说什么吗？
+
+保罗说，当你成为基督徒的一刻，圣灵就进入你的生命中了，你们懂了吗？但是现在你们明白这句话的意思了吗？未来的强大力量，超越现世的秩序的力量，那赋予绝对终极生命的强大能力，有一天会再生整个宇宙，现在就已经进入了你的生命并开始运作。所以当我们说一切都是恩典时，为什么还要过好生活呢？
+
+保罗说，你有没有想过发生了什么？他不只是给了你们一张“免罪卡”，不是只赦免了你们的罪吗？你们与基督过去的一切和未来的一切都联合在一起了。你知道这意味着什么吗？
+
+我们知道，当你和我来到基督面前，事实上也是我，当你来到基督面前，当任何人来到基督面前时，我们怀着最不可思议的小愿望：我们想要内心的平静。我们想要一点点重新定向，想要一点点提升，我们希望感觉自己的生命有意义，**我们需要一些灵感。**但天哪，这远远不止这些。对于凯西和我来说，《基督教的常理》一书中的这段话对我们的人生产生了深远的影响，引用一下，听我说，路易斯说：“想象你自己是一栋房子，上帝进来要重建它。
+
+起初你能理解他在做什么：疏通下水道，堵住漏水的地方，修好屋顶等等。这些工作需要做，所以你并不感到惊讶。但不久之后，他开始以一种极其痛苦且毫无道理的方式摇晃这栋房子。他在干什么？
+
+天哪，这是什么意思？” 答案是，他正在这里建新的翼楼，在那里加一层，建造塔楼，开辟庭院。你以为你会变成一座体面的小别墅。但他是在建造一座宫殿。
+
+他打算自己住进去。如果我们让他这么做，他会把我们中最软弱、最肮脏的人变成闪耀着光芒的不朽生物，充满如此的能量、喜悦、智慧和爱——我们现在都无法想象。一面明亮无瑕的镜子，完美地反射出上帝无穷的力量、欢乐和善良，当然只是在较小的尺度上。这个过程将会漫长且部分痛苦，但这正是我们在所面临的。
+
+没有比这更少了。如果成为基督徒意味着与基督联合，我建议两件事。抛弃你的低目标。抛弃你所有的目标。
+
+---
+
+## 超越想象的自由 / Freedom Beyond Imagination
+
 But they are way beyond anything that you could ever dare ask or think. Nor, when you are getting started, is your mind open enough and alive enough and that, frankly, spiritually smart enough to know what it is you need. So first of all, you have to recognize the shape of your spiritual slavery.
 
 Secondly, you have to begin to grasp the scope and the breadth of your cosmic unity with him. But lastly, you must, and here is the secret, you must live daily out of your new identity. You must live daily out of your new identity.
@@ -317,6 +357,62 @@ And he decrees emancipation for all the slaves. And he sets up his soldiers and 
 But the illustration goes on, do you think that's all it takes? It says the reality is that whenever a member of the enslaved group haven't been enslaved all their lives haven't been enslaved for centuries. Whenever a member of the enslaved group would meet a member of the oppressing group, they would tremble and quake.
 
 And when the members of the impressing group would still order around the members of the enslaved group and tell them what to do and say, go here and go there. They did it. They did it.
+
+---
+
+抛弃你的低目标，也抛弃你的所有目标。抛弃你的低目标。人们常说：“如果我成为基督徒，我要停止做某事，那我还能继续做那些事吗？”你应该预料到会有巨大的变化，当它们开始到来时，你会非常感激这些变化。
+
+但这些变化远远超出了你所能想象或请求的范围。而且，在刚开始的时候，你的思想还不够开放、活跃和灵性敏锐，以至于无法知道你需要什么。所以首先，你要认识到自己精神上的奴役状态。其次，你必须开始理解与他的宇宙统一的广度和深度。
+
+最后，你也必须做到这一点——这里有一个秘密：你必须每天从新的身份中生活。你必须每天从新的身份中生活。两节经文告诉你这一点，在这里，第六节说：“我们知道我们的旧人已经与他同钉十字架，使罪的身体灭绝了，叫我们不再作罪的奴仆。”你的旧我——你以前的身份——已经被钉死在十字架上。
+
+这是一个过去式。它已经完成了。你的旧我、你以前的身份已经消失了。当你成为基督徒，你不再是原来的人。
+
+所以你的旧身份已经不存在了，你有了新的身份。从这个新的身份出发，保罗说要除去身体中的罪。这并不是指你的肉体有罪，而是指在灵性导师的统治下，你的身体和行为有罪。你看完整句话了吗？
+
+它是指你的生活、你的决定，也就是保罗用来描述你在世界上的生活方式的方式。通过你新的身份，你可以打破旧的精神导师对你的影响。这就是第六节的意思。但第十一节说，这个身份是秘密。
+
+看看第十一节。这并不是自动发生的。同样，你们要认为自己已经死于罪。你们已经死于罪了。
+
+你们现在与神同活，但你们必须把自己视为已死于罪、活于神的人。你们必须提醒自己是谁。第十二节说，因此，不要让罪在你们的肉身中掌权，使你们顺服罪。这指的是邪恶的欲望。
+
+**这意味着，一方面，如果你没有按照需要改变，作为基督徒你并不缺乏资源。**你都有了，你需要的一切都有了。另一方面，这些资源需要被运用，并不是自动发生的。如果你有时未能按应有的方式生活，未能改变，那是因为你忘记了你是谁。
+
+你意识不到你是谁。你忘了你在耶稣里的身份。这就是重点。这是关键。
+
+让我用三个问题来结束今天的讲道，当然我会在接下来的几周里解开这些问题的答案。因为当你听到这些时，你会问这三个问题：这怎么可能？为什么需要这么长时间？为什么这么难？
+
+这怎么可能呢？现在，你们中有些人可能知道我最喜欢的例子之一是奥古斯丁。圣奥古斯丁，在他成为基督徒之前，有一个性自控的问题。但有一天，他在街上走着，他的一个旧情人出现了，还追了上来。
+
+她是他特别感兴趣的人之一。而且，她想把他拉到一起，那种关系在当时通常会持续几周。于是她开始试着邀请他去她的住处，并试图吸引和接近他。而他说得非常客气、非常友善、也非常有礼貌：“谢谢您。
+
+谢谢。” “那真是太好了，很高兴见到你。”但他回答说，“不，不用了，谢谢。”然后他就走了。
+
+突然间，她意识到了一个问题。也许他没有认出我来。于是她转向他，说道：“奥古斯丁，是我啊。”奥古斯丁转过身来笑了笑，说：“是的，我知道。
+
+” 但她又说：“不，我是你认识的那个我。”奥古斯丁回答道：“嗯，我知道。” 但这不是我。这是什么意思？
+
+他说的是： “过去我是一个必须依赖女性关爱的人。这就是为什么我会进入那些关系的原因，无论这些关系对你还是对我有多大的破坏性，它们都不是出于爱。它们都是关于我自己，是利用你来填补那个永远无法被填满的黑洞。” “过去我是那种必须依赖别人的人。
+
+我曾被驱使，可以说是一个精神导师。但现在我有了新的主人。当我想到自己在他心中的位置以及他如何看待我的时候，我不再需要这些了。我已经自由地爱上了他人。
+
+我不再需要那些曾经让我依赖的东西了。” 这就是他说的话。你知道的，你可以填上空白。这正是你如何改变的方式。
+
+你可以这样说：“过去我是那种在批评面前崩溃的人，因为我总是需要完美的认可。”或者“过去我是一个无法分手的人，但现在我可以自由地去做对自己和对方最好的事情。” 我在耶稣里成了另一个人。就是这样运作的。
+
+好的。所以第二个问题来了：为什么这个过程会这么漫长呢？因为让我们诚实面对一个事实吧——有很多人接受了耶稣，并且他们得到了新的身份认同，理解了这一点。然而，年复一年过去，他们并没有改变。
+
+或者说，我们没有改变。为什么会这样？大卫·马丁·罗杰斯在50多岁和60多岁时，在伦敦布道时，曾对罗马书第六章进行了长篇系列讲解。他在这系列讲道的核心是帮助人们理解罗马书第六章的内容，并用了一个生动的比喻来说明这一点。
+
+他说：“想象一个国家，其中一部分人几百年来一直奴役另一部分人。这很容易让美国人联想到现实。”尽管这个比喻并不完全贴切。听好了。
+
+所以想象一下，在一个地方，有一部分人几百年来一直在奴役另一部分人。因此，每当被奴役群体中的一员在街上遇到压迫者群体中的一员时，后者可以命令前者做任何事情。如果对方不顺从，前者就有被打或被杀的权利和权力，可以这么做。但然后，一位仁慈的国王登上了王位。
+
+他颁布了解放所有奴隶的法令，并在他的每一个城镇部署了他的士兵和警察，在他的法庭上安插了自己的法官。他们获得了自由。但这个比喻继续说道：你认为这就足够了吗？实际上，当被奴役群体中的一员几百年来一直生活在奴役之中时，每当他们遇到压迫者群体中的成员，他们仍然会颤抖、战栗。
+
+---
+
+## 真正的释放 / True Liberation
 
 Now, the member of the oppressing group didn't have the power really to do that anymore. And if they'd stood up, they couldn't have done a thing. And yet over and over and over again, the member of the enslaved group continued to act like slaves because though their status had changed, really changed.
 
@@ -399,209 +495,6 @@ If you'd like to see more people encouraged by the Gospel Center teaching and re
 That website again is gospelandlife.com slash partner. Today's sermon was recorded in 2006. The sermons and talks you hear on the Gospel and Life podcast were recorded between 1989 and 2017 while Dr.
 
 ---
-
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《生命中的福音》。你是否渴望在自己的生活、习惯、关系和心灵中看到**真正的改变？今天，提姆·凯勒将探讨基督徒生活中持久改变是**如何发生的，以及福音如何提供一种与任何其他方式截然不同的转化过程。经文出自罗马书第六章。
-
-那么我们该说什么呢？难道我们可以继续犯罪以致恩典增多吗？当然不可以。我们已经与罪死了。
-
-我们还能再在罪中活着吗？或者你不知道吗？所有受洗归入基督耶稣的人，都归入了他的死。因此我们在洗礼中与他一同埋葬了，好叫我们因着信，在基督复活的时候，也与他一同复活。
-
-因为我们若在他死的形状上与他联合，也要在他复活的形状上与他联合。我们知道我们的旧人已经与他同钉十字架，使罪身的道理灭绝，叫我们不再作罪的奴仆。因为那已经死了的，就脱离了罪。我们既然因信称义，就藉着我们的主耶稣基督得与神相和。
-
-所以我们应当从今以后，不拘在肉身上还是在心里，都不可犯罪献给那能叫我们死、不能叫我们活的罪。岂不知你们献上自己作奴仆，顺从所学的道理，结果必然顺从，或者在罪上加罪吗？当然不可以。难道你们不知道，你们既然从罪中释放出来，归于顺命，就因着信，都作了义的奴仆吗？
-
-所以不要让罪在你们必死的身体上有权柄，使你们顺从身体的私欲。也不要将肢体献给罪作不义的器具；倒要像从死里复活的人，将自己献给神，并将肢体作义的器具献给神。因为罪必不能作你们的主，因你们不在律法之下，乃在恩典之中。岂不知我们若作罪的奴仆，就必死；若作基督的奴仆，就必得着生命吗？
-
-当然不可以。难道你们不知道，你们交付出去的时候，就是顺服了所传给你们的命令吗？感谢神，你们虽然作罪的奴仆，现今却从罪中释放出来，作了义的奴仆。这是神的话语。
-
-我们刚刚完成了一个系列，探讨了为什么以及如何相信耶稣。现在我想做一个简短的系列，探讨如果你相信耶稣，这种信仰是如何改变你的。这个变化的过程究竟是怎样的？如果你希望在生命中看到改变，这种改变又是如何从相信耶稣而来？
-
-在我大学后期第一次接受信仰时，我生活中有很多需要深刻改变的地方。直到读了两位基督教作家的作品——一位是16世纪的约翰·欧文（John Owen），另一位是20世纪的约翰·斯托得（John Stott）——我才找到了方向。他们在著作中引导我去阅读罗马书第六、七和八章。保罗在那里，比他在任何其他地方或圣经中的描述都更详细地阐述了基督信仰如何具体导致改变的过程，以及这一过程究竟包含什么内容。
-
-顺便说一句，在《歌罗西书》第三章里，这种表达更为简洁，但在罗马书第六、七和八章中阐述得最为全面。这就是我们要探讨的内容。我要带你去那里。对我来说有点像回家的感觉，接下来的几个星期我会带你一起探索这一部分。
-
-整个第六、七和八章都围绕着你在罗马书1:1和7:15两处听到的问题展开。这个问题源自保罗在罗马书1至5章中关于福音的教学。他阐述了福音的主题，这是世界上所有宗教和哲学所独有的：救恩是被接受的，而不是通过你的努力或善行获得的。这种教义非常激进。
-
-每当听到这样的教导时，在第一次听的时候，人们会立刻提出疑问：“如果真是这样，如果救恩完全是恩典，与你如何生活无关，那为什么你会想要改变？为什么这种信息会让你有任何不同呢？”有人可能会说，这似乎会让你们保持原样。保罗回答了这个问题。
-
-看看，如果你明白了福音的道理，为什么还要改变？要怎么改变？为什么要改变？保罗给出了答案。
-
-在这个过程中，他还给我们提供了三个原则，在我多年的牧养工作中，以及我在圣经中的研究中，这些原则至关重要。这三个关键点、秘密和原则，我真的希望你们能认真听。三个关键点，能够带来深刻的、根本性的生命变化，它们是什么？首先，你要认识到你灵性奴隶的形态；其次，要意识到你与耶稣宇宙间的一体性；最后，要在日常生活中活出你的新身份。
-
-先说第一点：认识你灵性奴隶的形态。再说第二点：意识到你与耶稣宇宙间的一体性。最后一点：在日常生活中活出你的新身份。奴隶、一体、身份。
-
-让我们来看看这三点。顺便提一句，如果你觉得这个讲道不够详细，那是因为这只是系列讲道的引子，后续还会继续。欢迎大家回来听接下来的内容。好了，如果我讲得好，就不会讲得这么好，因为这是个引子。
-
-首先，这段经文告诉我们，你必须认识到你的灵性奴隶状态。我正在看第15节和第16节，特别是第16节中说：既然如此，你们还有什么不能受的呢？既然我们不在律法之下，只在恩典之中？保罗接着说：难道你们不知道，当你们把自己献给某人去顺从他时，就是把自己当作奴隶了。
-
-你们是顺从谁就归谁管辖。你们或是顺从罪，以致于死亡；或是顺从义，以致于生命。第16节的前半部分对原读者来说并不像对我们这么令人震惊。这段话对我们来说似乎有些震惊，因为当他说到要成为奴隶时，我们读圣经关于奴隶制的内容时，我们会通过自己对新世界奴隶制的经历来过滤这些内容，认为奴隶制是基于种族的，并且是一辈子的事。
-
-但在一世纪的时候，如果你面对的是长期债务，巨大的债务，而且你不想一辈子背负这笔债务，那么人们通常会把自己卖给某个人一段时间——可能是五年、十年，以此来尽快还清债务。因此，你会把自己投入奴役，把自己变成奴隶。但保罗说，问题在于，这样做可以消除债务，那个人现在成了你的主人，对你的人生有完全的控制权。这对最初的读者来说并不奇怪，但是后面的部分却让他们感到惊讶。
-
-因为保罗随后将这一概念引入灵性领域，并说：“你们难道没有意识到世界上只有两类人吗？一类是绝对无条件地服侍神的人，另一类则是被其他事物奴役的精神奴隶。没有第三种情况，也没有中间地带。”没有任何选择，就只有这两种。
-
-保罗引用了十诫中的第一条诫命。在这条诫命中，神说：“我是耶和华你的神，你必须事奉我。” 不要让任何东西成为你的神。但是请注意，第一诫命只提到了两种情况：要么是神，要么是其他的东西。
-
-没有第三种选择。如果你不崇拜真神，就必须在生命中为其他事物设定一个神的地位，哪怕只是小写的G。没有人可以没有神。那么，你怎么会这样呢？
-
-你可能会问。让我们想一想。这就是保罗的观点。每个人都有所追求，我指的是什么？
-
-活出意义，每个人都有一个主要的意义来源和安全感。这个来源让你觉得有价值，觉得生活有意义，有存在的价值。无论你的信仰体系如何，总有一种方式帮助你面对生活的困难与危险。这种意义和安全感可能来源于事业、家庭或成就；可能是个人独立性，也可能是需要别人依赖你；可能是权力和影响力，或者是他人的认可；可能是政治理念，也可能是金钱；可能是浪漫关系，也可能是外在的吸引力。
-
-但保罗在这里说： 你会活出某种意义。你的生活会有一种让你觉得有意义的方式。它会让你觉得自己有价值。但他指出，你们似乎没有意识到的是，无论是什么东西，都是一个精神上的主人，控制着你。
-
-你以为它是在为你做些什么，实际上你在向它奉献自己。你已经把自己交给了它，被它控制了。这是一种精神上的主人。为什么？
-
-答案就是这个希腊动词。那些听我演讲久一点的人，或者听过这堂课的人，知道每当谈到这个问题时，总有一个希腊动词在附近。这里就是那个词，在第12节中。他说：“不要让罪恶在你们的肉身中掌权，以至于顺从它的欲望。
-
-” 不要让罪恶掌权。你看，这就是精神上的主人。你会成为某种东西的奴隶。你所奉献给的东西，无论是什么，都是通过“邪恶的欲望”来控制你的。
-
-让我们对翻译者表示同情。这里有一个希腊词很难翻译。在旧钦定本圣经中，它通常被译为“肉欲的淫念”。问题在于，这个翻译其实并不差。
-
-对我们和你们今天来说，“肉欲的淫念”意味着性行为，但这并不是在谈论性。而且经文里并没有直接提到这个词。其中包含一个词thumia，意思是欲望或驱动力。但这个词前缀是epithumia，意思是过度的欲望或过分的驱动力。
-
-这并不是指对坏事的欲望，而是指对好事的一种正当的欲望。而正是这种正当的欲望让你失去控制。你生活中有好的东西，却把它们当作终极目标，从而控制了你的生活，因为如果这些是你生命的意义所在，那么它们就是真的对你有意义。你追求的是安全感。
-
-你需要拥有这些东西。你需要拥有它们。因此，它们通过一种正当的欲望来控制你。让我给你三个测试。
-
-我将给出三种类型的epi欲望或正当欲望。这会告诉你你的精神导师是谁。第一个是愤怒。如果某件事阻碍了你得到一个好东西，你会生气。
-
-但如果某件事阻碍了你得到一个终极目标——你生命的基础，你会变得epi愤怒。你会失去理智。你会说出事后后悔的话。我不知道自己为什么这么说。
-
-你会大发雷霆，或者变得极其怨恨。你有没有发现很难原谅别人？这背后的原因是某种精神导师通过过度的欲望控制着你。让我再给你第二个测试：恐惧。
-
-如果某件好事受到威胁——生活中的一件好事受到威胁，你会感到担忧。但如果生活中最重要的东西受到威胁，你会被恐惧彻底击垮。你无法控制自己的焦虑。你是否如此焦虑以至于无法集中思想？
-
-这让你害怕到你知道自己是被它驱使的。这是因为某种精神导师或某个事物在奴役着你，并控制着你。它是在测试你，或者第三个测试是悲伤。如果你失去了一件好事，你会悲伤、哭泣，那真是糟糕透了。
-
-这需要几个月的时间才能恢复过来。如果你失去了生命中最重要的东西，你会想要从桥上跳下去。你会觉得生活中没有意义。马丁·路德在他的《大要理问答》中，这篇杰出的作品，阐述了第一条诫命：“除了我以外，你不可有别的神。
-
-”在对这条诫命的解释中，他指出，第一条诫命是所有其他诫命的基础。他说，在你的一生中，你从没有做过任何错事。你从没有生气、害怕或沮丧过。你从不撒谎，从不杀人，从不偷窃，你从不做任何错事。
-
-除非首先，你在生活中树立了一个偶像，这是你生活中一切事情的原因所在。这就是一切的根源。如果你有饮食障碍，你就把自己献给了瘦削之神。在某个深层次上，你的内心认为，如果我瘦了，如果我看起来像那样，我就没事了。
-
-如果你是个工作狂，过度工作，并且你知道自己是在过度工作，你已经与金钱、地位或成就签订了契约，将自己献给了这些神明。有多种不同的方式。如果你处于一段关系中，你知道，大家都知道这段关系真的不好。但是你无法放手。
-
-你已经将男性或女性的爱变成了你的偶像。你根本无法想象没有某个人的生活。这些事情在困扰着你，而保罗在这里说：世界上每个人都有一位精神导师。世界上没有人是自由的。
-
-你以为自己在掌控一切。你以为你是自己的人，但其实不是。直到你摆脱了这种错觉，你才不会做出你需要在生活中改变的事情。所以你看他的第一个回答。
-
-当一个人说：“好吧，既然一切都是恩典，为什么神要这样安排？为什么不按照我的意愿来？”他说：“如果你说：‘为什么我不可以随心所欲地生活？’那你真是可笑。
-
-” 您对人性的内心世界有着致命的天真。如果您没有遵行神的心意，如果没有完全归属祂，您就是绝对失控的。而且每个人都有不同的形状。每个人的灵性导师都是不同的。
-
-因此，在任何重大改变的第一步是了解自己，并且要认识到自己的灵性服务的独特形态。第一点，第二点。其次，第二点和第三点紧密相连，但首先，如果您想获得基督赐给您的改变资源，您必须意识到与祂之间宇宙性的合一范围之广袤。这段经文的核心，在于这一章乃至这三章中的这些节次——从第三节到第五节。
-
-难道你们不知道，凡浸洗归入基督耶稣的人，按照第五节所说，若与祂同死，也必与祂同活吗？首先，他指的是谁？是那些受洗的人，那又意味着什么呢？这就是祂说的“被转化”的人。
-
-哪些人是受洗的呢？这些人是已经将生命献给基督的人。洗礼就像婚戒一样。坠入爱河是一件事，而将生命奉献给某个人又是另一回事。
-
-坠入爱河是一件事情，而全心投入则是另一回事，这就是婚戒所象征的意义——洗礼。因此，当他提到受洗时，并不是指超凡的基督徒，而是指那些真正将生命献给耶稣的人。这些人的哪些特质是真实的呢？第五节说，他们是被联合的。
-
-我们与祂同在。这个“联合”一词其实很特别。这是一个园艺术语，意味着我们已经被嫁接到主的生命之根上。根部。
-
-不是嫁接在这里面，虽然圣经中其他地方也有提到这一点。这个比喻试图说明我们的生命已经嵌入到耶稣生命的根源之中。**这意味着什么呢？看看第五节，我们与耶稣基督的过去和未来是联合在一起的。**
-
-耶稣的过去现在就是我们的过去。耶稣的未来并不是我们的未来。这就是它所要表达的意思。我有一系列的内容要来解释这个，但先给我几分钟时间。
-
-首先，它说我们在他里面死了。我们的过去就是他的过去。这什么意思？记得我在提到歌罗西书第三章时也提到了这一点，并且在那里保罗说得更为简洁。
-
-在歌罗西书第三章中，他说：“你们与基督一同复活了，已经和基督一同坐在天上；你们死在过犯和罪孽之中，如今与基督一同藏在神里面。” 我们在他里面死了，在他里面复活，现在与基督一同坐在天上的位置。这又意味着什么呢？想象一个人变得富有，他是怎么变得富有的呢？
-
-是通过他的聪明才智和勤奋努力。所以财富是通过他的聪明才智和勤奋努力得来的。但现在这个人结婚了，这些财富是如何转移到新配偶身上的呢？是通过合法的婚姻关系，就像恩典一样。
-
-一个人通过自己的努力积累了所有的财富，但另一个人只是通过婚姻关系就拥有了这一切。这就是为什么耶稣基督在父神的右边，那是荣耀的位置——你把首相放在那里，把凯旋归来的将军放在那里。他为什么在父神的右边？是因为看他所成就的一切。
-
-看他的生命，看他的高贵、善良、伟大和勇敢。父神看着儿子，心里充满了喜悦。这段经文正是说，耶稣基督所做的每一件事现在都合法地属于你了。决定你与神关系的因素不再是你的过去而是基督的过去。
-
-父神疼爱你，接纳你，并以极大的喜悦看待你，视你为拥有他儿子的一切美丽、伟大和荣耀。他视你为因信耶稣基督的死而得释放，不再受罪孽的定罪。你的罪孽仿佛是你自己已经死了，并且为你付上了赎罪的代价。诗篇可以深刻地塑造你与神交往的方式。
-
-甚至在面对死亡时，耶稣也依靠诗篇来应对每一个情况。在提摩太和凯瑟琳·基勒的《365日灵修》中，《耶稣之歌》，你会找到每天通过诗篇的新颖圣经见解。如果你没有固定的灵修习惯，这本书是一个很好的开始方式。而如果你已经花时间研读和祷告，那么阅读并祷告诗篇可以帮助你将最深的情感和疑问呈现在神面前，并发现与祂更深的亲密关系。
-
-作为您对福音和生命传播耶稣之爱的支持，我们将赠送您提摩太和凯瑟琳·基勒的灵修书籍。请访问gospelandlife.com/give获取您的副本。现在，请听基勒博士今天的教导继续。正如经文第五节所说，我们确实会在基督的复活中联合起来。
-
-注意这里说的是“确实”，而不是条件。如果你真的过着良好的生活，并且来教会、来赎罪堂参加提摩太和凯瑟琳·基勒的服侍，你当然会被联结到祂身上。这并不意味着任何条件性的说法。它说的就是“你已经”被联结了。
-
-**这意味着什么？圣经中有一个非常有趣的希腊词出现了两次。**这是一个哲学术语，也是这个术语的名字叫Palingenesia。你听到里面有个词Genesis（创世记），实际上它的意思是宇宙的重生、宇宙的重生。
-
-这个词源自斯多葛派哲学，他们认为当然历史是一个无尽的循环，世界会变得越来越糟，会有衰败和破灭，而斯多葛派相信每隔一段时间就会有一次净化，一场大火会来净化一切、净化一切，并带走旧的一切，使一切都焕然一新。这是斯多葛派的观点。宇宙不断重生和再重生，那么作为基督徒，我们相信什么呢？这就是我们的信仰。
-
-在马太福音19章28节，耶稣基督故意用这个词，在最令人震惊和惊异的方式使用了它。他说：“在Palingenesia（重生）的时候”，通常被译为“万物更新”的时候。当人子坐在他荣耀的宝座上时，所有为了我的缘故而失去房屋、兄弟姐妹、父亲母亲、儿女或田地的人，都会获得百倍的回报，并且得到永生。许多原本是第一的将会变成最后，许多原本是最后的将会成为第一。
-
-耶稣说会有Palingenesia（重生），但在某个特定的时刻，所有历史都将变得不再真实。一切将被净化。一切都将成为新的，一切都将欢腾，一切都将充满完整和丰满。什么火焰足够强大？
-
-什么力量给予生命足以做到这一切？答案是：当耶稣基督展示出他的王权，当人子坐在他荣耀的宝座上时，在未来，整个世界都将被净化、重生。宇宙的重生，一切都会变得不再真实。历史本身将被改变。
-
-这不是很令人惊叹吗？更令人惊奇的是，这个词在圣经中出现了一次，而且是在一个更加意想不到的地方。提多书第三章第五节，保罗在谈论我们的救赎，个人的救赎。他这样说：“我们是因着他的恩典得救，并不是因为行为上的义，乃是因着信主耶稣基督的洗。
-
-”你知道这个“重生”是什么意思吗？这个词叫Palingenesia。乍一看，这似乎不太合适。因为Palingenesia指的是宇宙的重生，而不是个人的更新，但你知道保罗在说什么吗？
-
-保罗说，当你成为基督徒的一刻，圣灵就进入你的生命中了，你们懂了吗？但是现在你们明白这句话的意思了吗？未来的强大力量，超越现世的秩序的力量，那赋予绝对终极生命的强大能力，有一天会再生整个宇宙，现在就已经进入了你的生命并开始运作。所以当我们说一切都是恩典时，为什么还要过好生活呢？
-
-保罗说，你有没有想过发生了什么？他不只是给了你们一张“免罪卡”，不是只赦免了你们的罪吗？你们与基督过去的一切和未来的一切都联合在一起了。你知道这意味着什么吗？
-
-我们知道，当你和我来到基督面前，事实上也是我，当你来到基督面前，当任何人来到基督面前时，我们怀着最不可思议的小愿望：我们想要内心的平静。我们想要一点点重新定向，想要一点点提升，我们希望感觉自己的生命有意义，**我们需要一些灵感。**但天哪，这远远不止这些。对于凯西和我来说，《基督教的常理》一书中的这段话对我们的人生产生了深远的影响，引用一下，听我说，路易斯说：“想象你自己是一栋房子，上帝进来要重建它。
-
-起初你能理解他在做什么：疏通下水道，堵住漏水的地方，修好屋顶等等。这些工作需要做，所以你并不感到惊讶。但不久之后，他开始以一种极其痛苦且毫无道理的方式摇晃这栋房子。他在干什么？
-
-天哪，这是什么意思？” 答案是，他正在这里建新的翼楼，在那里加一层，建造塔楼，开辟庭院。你以为你会变成一座体面的小别墅。但他是在建造一座宫殿。
-
-他打算自己住进去。如果我们让他这么做，他会把我们中最软弱、最肮脏的人变成闪耀着光芒的不朽生物，充满如此的能量、喜悦、智慧和爱——我们现在都无法想象。一面明亮无瑕的镜子，完美地反射出上帝无穷的力量、欢乐和善良，当然只是在较小的尺度上。这个过程将会漫长且部分痛苦，但这正是我们在所面临的。
-
-没有比这更少了。如果成为基督徒意味着与基督联合，我建议两件事。抛弃你的低目标。抛弃你所有的目标。
-
-抛弃你的低目标，也抛弃你的所有目标。抛弃你的低目标。人们常说：“如果我成为基督徒，我要停止做某事，那我还能继续做那些事吗？”你应该预料到会有巨大的变化，当它们开始到来时，你会非常感激这些变化。
-
-但这些变化远远超出了你所能想象或请求的范围。而且，在刚开始的时候，你的思想还不够开放、活跃和灵性敏锐，以至于无法知道你需要什么。所以首先，你要认识到自己精神上的奴役状态。其次，你必须开始理解与他的宇宙统一的广度和深度。
-
-最后，你也必须做到这一点——这里有一个秘密：你必须每天从新的身份中生活。你必须每天从新的身份中生活。两节经文告诉你这一点，在这里，第六节说：“我们知道我们的旧人已经与他同钉十字架，使罪的身体灭绝了，叫我们不再作罪的奴仆。”你的旧我——你以前的身份——已经被钉死在十字架上。
-
-这是一个过去式。它已经完成了。你的旧我、你以前的身份已经消失了。当你成为基督徒，你不再是原来的人。
-
-所以你的旧身份已经不存在了，你有了新的身份。从这个新的身份出发，保罗说要除去身体中的罪。这并不是指你的肉体有罪，而是指在灵性导师的统治下，你的身体和行为有罪。你看完整句话了吗？
-
-它是指你的生活、你的决定，也就是保罗用来描述你在世界上的生活方式的方式。通过你新的身份，你可以打破旧的精神导师对你的影响。这就是第六节的意思。但第十一节说，这个身份是秘密。
-
-看看第十一节。这并不是自动发生的。同样，你们要认为自己已经死于罪。你们已经死于罪了。
-
-你们现在与神同活，但你们必须把自己视为已死于罪、活于神的人。你们必须提醒自己是谁。第十二节说，因此，不要让罪在你们的肉身中掌权，使你们顺服罪。这指的是邪恶的欲望。
-
-**这意味着，一方面，如果你没有按照需要改变，作为基督徒你并不缺乏资源。**你都有了，你需要的一切都有了。另一方面，这些资源需要被运用，并不是自动发生的。如果你有时未能按应有的方式生活，未能改变，那是因为你忘记了你是谁。
-
-你意识不到你是谁。你忘了你在耶稣里的身份。这就是重点。这是关键。
-
-让我用三个问题来结束今天的讲道，当然我会在接下来的几周里解开这些问题的答案。因为当你听到这些时，你会问这三个问题：这怎么可能？为什么需要这么长时间？为什么这么难？
-
-这怎么可能呢？现在，你们中有些人可能知道我最喜欢的例子之一是奥古斯丁。圣奥古斯丁，在他成为基督徒之前，有一个性自控的问题。但有一天，他在街上走着，他的一个旧情人出现了，还追了上来。
-
-她是他特别感兴趣的人之一。而且，她想把他拉到一起，那种关系在当时通常会持续几周。于是她开始试着邀请他去她的住处，并试图吸引和接近他。而他说得非常客气、非常友善、也非常有礼貌：“谢谢您。
-
-谢谢。” “那真是太好了，很高兴见到你。”但他回答说，“不，不用了，谢谢。”然后他就走了。
-
-突然间，她意识到了一个问题。也许他没有认出我来。于是她转向他，说道：“奥古斯丁，是我啊。”奥古斯丁转过身来笑了笑，说：“是的，我知道。
-
-” 但她又说：“不，我是你认识的那个我。”奥古斯丁回答道：“嗯，我知道。” 但这不是我。这是什么意思？
-
-他说的是： “过去我是一个必须依赖女性关爱的人。这就是为什么我会进入那些关系的原因，无论这些关系对你还是对我有多大的破坏性，它们都不是出于爱。它们都是关于我自己，是利用你来填补那个永远无法被填满的黑洞。” “过去我是那种必须依赖别人的人。
-
-我曾被驱使，可以说是一个精神导师。但现在我有了新的主人。当我想到自己在他心中的位置以及他如何看待我的时候，我不再需要这些了。我已经自由地爱上了他人。
-
-我不再需要那些曾经让我依赖的东西了。” 这就是他说的话。你知道的，你可以填上空白。这正是你如何改变的方式。
-
-你可以这样说：“过去我是那种在批评面前崩溃的人，因为我总是需要完美的认可。”或者“过去我是一个无法分手的人，但现在我可以自由地去做对自己和对方最好的事情。” 我在耶稣里成了另一个人。就是这样运作的。
-
-好的。所以第二个问题来了：为什么这个过程会这么漫长呢？因为让我们诚实面对一个事实吧——有很多人接受了耶稣，并且他们得到了新的身份认同，理解了这一点。然而，年复一年过去，他们并没有改变。
-
-或者说，我们没有改变。为什么会这样？大卫·马丁·罗杰斯在50多岁和60多岁时，在伦敦布道时，曾对罗马书第六章进行了长篇系列讲解。他在这系列讲道的核心是帮助人们理解罗马书第六章的内容，并用了一个生动的比喻来说明这一点。
-
-他说：“想象一个国家，其中一部分人几百年来一直奴役另一部分人。这很容易让美国人联想到现实。”尽管这个比喻并不完全贴切。听好了。
-
-所以想象一下，在一个地方，有一部分人几百年来一直在奴役另一部分人。因此，每当被奴役群体中的一员在街上遇到压迫者群体中的一员时，后者可以命令前者做任何事情。如果对方不顺从，前者就有被打或被杀的权利和权力，可以这么做。但然后，一位仁慈的国王登上了王位。
-
-他颁布了解放所有奴隶的法令，并在他的每一个城镇部署了他的士兵和警察，在他的法庭上安插了自己的法官。他们获得了自由。但这个比喻继续说道：你认为这就足够了吗？实际上，当被奴役群体中的一员几百年来一直生活在奴役之中时，每当他们遇到压迫者群体中的成员，他们仍然会颤抖、战栗。
 
 而当压迫者群体的成员依然命令被奴役群体的人做这做那时，后者还是会照做。他们会去这里，去做那里。实际上，压迫者群体的成员已经没有真正的权力这样做。如果他们站出来，也无计可施。
 

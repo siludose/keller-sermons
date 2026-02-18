@@ -48,6 +48,9 @@ He was willing to face the truth. He was willing to tell the truth. But as soon 
 
 He wasn't going to do any of that stuff. All his fears rushed back and flooded him and kept him a slave. So being brave and being happy, evidently, is something that being drunk brings and also something that the spirit brings.
 
+### Filled with the Spirit
+
+
 However, being filled with the spirit and being drunk are very unlike, of course, of course. And here's how. Paul seems to intuit what we know today empirically.
 
 And that is that alcohol makes you brave and happy because it's a depressant. Did you know that? You can go look it up.
@@ -100,6 +103,9 @@ What are the marks of a person who has it? Now, usually when people teach or pre
 
 And the reason I did is because there you have Paul talking about wisdom and then saying, now, if you want wisdom, be filled with the Spirit. What I see in verses 15 all the way to 21 is the results of the fullness of the Spirit is a kind of almost what looks to us like a contradiction. There is a humble realism along with a surging joy, a humble realism along with a surging joy.
 
+### Spiritual Wisdom
+
+
 So for example, wisdom, what is that? Now, you know, that's a huge subject, but at least we know this from the Bible. To be wisdom means to be down to earth, to be wise means to be realistic, not idealistic, not naive, not having rosy colored glasses.
 
 A wise person is savvy, a wise person knows how things work. A wise person knows what life is really like, reality, words and all. And look at the very end of the passage where it says, submit to one another out of reverence for Christ.
@@ -149,6 +155,9 @@ Part of me, he brings life out of death. He brings glory out of suffering. He br
 All these awful things. It grieves God to see evil. And it has particularly grieved God to see evil fall in his only son.
 
 And yet when the Holy Spirit, as the years go by, shows you more and more and more of the genius of the cross, of the genius of what God has done and the wisdom of what has God has done on the cross. And when you see how God brings more glory and more joy into the world because of the suffering of Jesus when suffering hits you, you're going to start to say, I don't know what you're doing, but I thank you. I know you're working.
+
+### Gratitude in Everything
+
 
 And see, if you have that, if the Spirit has glorified Jesus to the place where you can thank God, always in everything, then you become a person who sings and makes music in your heart to the Lord. Actually, I love that verse. If you read right by that, and it looks a little bit fru-fru, doesn't it kind of sing and make melody in your heart, but however, notice it's not saying this is a person who's thinking about God, but who is communicating to God.
 
@@ -201,6 +210,9 @@ All I know is that even Jesus needed the fullness of the Holy Spirit to get thro
 He looked at grace. He looked at the gospel. Okay, look at this.
 
 Let's do it right now. Psalm 51, David says to God, desperately, do not take your Holy Spirit from me. Oh, Lord, do not take your Holy Spirit from me.
+
+### The Spirit and the Psalms
+
 
 Take not the Holy Spirit from me. Why? Why was he afraid?
 

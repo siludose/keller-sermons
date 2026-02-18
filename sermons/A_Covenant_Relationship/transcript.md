@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel and Life. How do we share what it means to truly know Jesus? Not just as a historical figure or moral teacher, but as Savior and King.
 
 This month Tim Keller explores what the Bible shows us about being public with our faith and sharing the hope we have in Christ. Our scripture comes from Deuteronomy 29-23. Moses summoned all the Israelites and said to them, your eyes have seen all that the Lord did in Egypt to Pharaoh to all his officials and all to all in his land.
@@ -14,7 +16,11 @@ To confirm you this day as his people that he may be your God as he promised you
 
 You saw among them their detestable images and idols of wood and stone, of silver and gold. Make sure there is no man or woman clan or tribe among you today whose hearts turn away from the Lord our God to go and worship the gods of those nations. Make sure there is no root among you that produces such bitter poison.
 
-This is the word of the Lord. We've been saying that Deuteronomy is a series of sermons that Moses preached just before he died. And if the last thing practically that Moses said because here we are at almost at the end of the end before he died was you need to be in a covenant relationship with God.
+This is the word of the Lord.
+
+### The Uniqueness of the Covenant
+
+We've been saying that Deuteronomy is a series of sermons that Moses preached just before he died. And if the last thing practically that Moses said because here we are at almost at the end of the end before he died was you need to be in a covenant relationship with God.
 
 If Moses thought it was that important that it would be almost the last thing he says, then it would be who of us to figure out what that is. What's a covenant relationship with God? If we read the passage with that question in mind, we'll learn three things.
 
@@ -34,7 +40,11 @@ See, sealing with an oath to confirm and there you have it. What's a covenant? A
 
 It's a stunning blend. The covenant is a stunning blend of law and love. It's stunning because it's a personal relationship made more loving and intimate because it's legal through voluntary, mutual, binding promises and vows to be loving and to be faithful, no matter what the circumstances.
 
-That's a covenant. Now, modern society doesn't really have a category for this, because modern society makes everything be ordered around the experiencing individual self and the happiness and fulfillment of the individual self. In modern society, your individual happiness and fulfillment and rights is the absolute and everything else is a means to an end.
+That's a covenant.
+
+### Covenant vs. Consumer Relationships
+
+Now, modern society doesn't really have a category for this, because modern society makes everything be ordered around the experiencing individual self and the happiness and fulfillment of the individual self. In modern society, your individual happiness and fulfillment and rights is the absolute and everything else is a means to an end.
 
 All other institutions, all other relationships. So in modern society, relationships more and more start like this. Two people look at each other and they say, I will be what I should be as long as and to the degree that you are what you should be.
 
@@ -62,6 +72,8 @@ You have covenant relationships. And in the middle, you have various kinds of re
 
 Some are not so much. But here's my point. Here's the point.
 
+### The Only Way to Relate to God
+
 If the most profound, most joyful, most life-changing, most deep and glorious relationships are covenantal relationships, then your relationship with God has got to be through and through a covenantal relationship. That has to be. Now, here's the problem.
 
 Modern people, as I said, they can't have trouble mixing law and love together. And what they say is, oh, I'm spiritual, but I'm not religious. Sociologists for years, and I've been finding modern people like to say, I'm spiritual, but not religious, and what does that mean?
@@ -74,7 +86,11 @@ I don't want to give up my right to determine what is right or wrong for me. In 
 
 Every time he relates to somebody, Adam, Abraham, Isaac, Jacob, David, Moses, it's always covenantal. And so that's point one. The uniqueness, a category-busting thing is a covenantal relationship, a mixture of law and love that creates the most profound, fulfilling, life-changing relationships, and above all, the only way to relate to God.
 
-That's the first point. The second point, however, the second thing we learned here is there's a mystery surrounding this covenantal relationship. Now, what do I mean?
+That's the first point.
+
+### The Mystery of the Covenant
+
+The second point, however, the second thing we learned here is there's a mystery surrounding this covenantal relationship. Now, what do I mean?
 
 All covenants have terms or conditions, because all contracts have terms and conditions. A covenant is more than a contract, but not less. All contracts have terms or conditions, and if you meet the terms or conditions, there are rewards or blessings.
 
@@ -126,6 +142,8 @@ It's our thanks for your gift and provides a way you can do a small act to share
 
 Again, that's Gospel and Life.com-slash-give. Now, here's Dr. Keller with the remainder of today's teaching.
 
+### Are God's Blessings Conditional or Unconditional?
+
 There's a conditional rank addition. Now listen. The problem is that the Bible over and over and over again seems to give contradictory answers.
 
 And this is so pervasive and it's so apparently irreconcilable that almost every one of us tends to come down on one side of the other instead of following the biblical balance. What do I mean by that? Most people either fall into one or the other.
@@ -145,6 +163,8 @@ But the Bible doesn't resolve it all through the Hebrew scriptures, all through 
 Michael Wilcock, who is a commentator, writing a comment here on the book of Judges, puts it like this. It's almost as if God is saying, I have sworn to bless you, and I also have sworn not to bless a disobedient people. What is this you have done to me?
 
 And by what fearful means do you think I am to solve this situation? Well, how do you resolve it? How do you resolve it?
+
+### The Hero of the Covenant: Genesis 15
 
 The answer is in the second half of verse 13, because in the second half of verse 13 it says that he may be your God as he promised you and as he swore to your father's Abraham, Isaac, and Jacob. Now, where did God take the covenant oath? Where did God take the oath?
 
@@ -174,7 +194,11 @@ I'll be torn to pieces if you don't. Oh, Abraham, Abraham, God is saying, and to
 
 Even if my glory must be drowned in darkness, even if I have to literally be torn to pieces, and he was. Because centuries later, darkness came down on Mount Calvary, thick darkness, and the midst of the darkness, there was God in the person of Jesus Christ, and he was literally being torn to pieces, nails, spears, thorns. Why?
 
-He was taking the covenant curse. And it's Paul, who says, Christ redeemed us from the curse of the law by becoming a curse for us. He redeemed us in order that the blessing given to Abraham might come to us all through Jesus Christ.
+He was taking the covenant curse.
+
+### Christ Fulfills the Covenant on the Cross
+
+And it's Paul, who says, Christ redeemed us from the curse of the law by becoming a curse for us. He redeemed us in order that the blessing given to Abraham might come to us all through Jesus Christ.
 
 You know what that means? This is the answer to all the riddles. Paul says in Romans 4, this is how God can be both just and justifier of those who believe.
 
@@ -189,6 +213,8 @@ But with his sacrificial death, he completely fulfilled the curse of the covenan
 And that is the reason why when my wife and I, 33 years ago, Kathy and I walked out of a class in Old Testament covenant theology, 33 years ago this month. And for the first time that was explained to us, Jesus' perfect life earned the blessing, his sacrificial death, took the curse, that leaves the blessing for you. That's what God Paul is saying in Genesis in Galatians 3.
 
 When we walked out, we looked at each other and we said, I think I finally understand the gospel. We said it to each other. Do you?
+
+### Application: Paradoxical Obedience and Absolute Trust
 
 And if you do, let me just quickly apply this. If you understand this finally, number one, it will lead you into paradoxical obedience. What do I mean by paradoxical obedience?
 
@@ -220,7 +246,11 @@ But when Jesus Christ calls you into a covenant relationship, you know what He's
 
 I want to marry you, but you don't have to be uncertain because I've already taken the plunge of love. I've already gone to the mat. I've already died for you.
 
-Oh, trust him. What more could anyone do than that? Thirdly, covenant theology not only gives you paradoxical obedience and absolute trust, it also leads to church membership.
+Oh, trust him. What more could anyone do than that?
+
+### Church Membership and Encountering the Living God
+
+Thirdly, covenant theology not only gives you paradoxical obedience and absolute trust, it also leads to church membership.
 
 Oh yeah, you know why? Because once you understand the gospel, accountability is not this horrible thing. In fact, you also understand accountability is good for you.
 

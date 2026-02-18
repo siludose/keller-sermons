@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel in Life. Why does the Bible talk about money so much? How we think about and use our money is one of the most common subjects throughout Scripture.
 
 And the Bible tells us something striking. You cannot experience deep spiritual growth without putting your money and your attitude toward it in God's hands. Listen as Tim Keller shows us why generosity is not optional for Christians, but a vital mark of authentic faith.
@@ -33,6 +35,8 @@ How should I relate my giving to my spending? How much should I spend on my self
 So first of all, I actually only have two points to this sermon, not three, no, two. So maybe don't count on getting out early, but it is still two. The first point is that Jesus Christ in the middle of this chapter lays out an astonishing standard for sacrificial giving, absolutely astonishing, so astonishing, that it will seem unreasonable to us.
 
 Then that is point one, secondly, I am going to show how Jesus actually shows how reasonable that kind of giving is because of the logic of the gospel. So point one, an astonishing standard that Jesus lays out there for sacrificial giving from us, his people, disciples, and then secondly, how he rationalizes that, how he grounds it in the logic of the gospel. So first of all, let's look at this amazing standard in the middle of the passage.
+
+### The Patronage System and Jesus' Astonishing Standard
 
 He says, it says, then Jesus said to his host, now who's the host? Jesus has been invited into the home of a very prominent man. It doesn't tell us that in the part that we read, but it's in the very beginning of the chapter.
 
@@ -94,6 +98,8 @@ You're giving to ministry and charity should be massively more than the money yo
 
 More. What does that mean? That's what he's saying.
 
+### Sacrificial Giving: Priority Not Optional
+
 What are the implications of that? The implications are that you're giving to ministry and charity must have a priority and it must be sacrificial. Now think about this now.
 
 By the way, I've never understood the implications of this passage until the last couple of weeks getting ready to preach it to you. First of all, he's talking about priority. When he says, love, hate your father and mother and love me, he's not saying you shouldn't love your father and mother.
@@ -109,6 +115,8 @@ Switch it. Right now, for most of us, we have certain financial goals. We have c
 There are certain ways in which we want to live. There's vacations we want to take, there's clothes we want to buy, there's things we want to do. And if we have enough money to do that and to give to ministry and charity, then we do.
 
 But that's the optional whereas spending money on you, that's the priority. That's the necessity. But it's, Jesus says, switch them.
+
+### The Lord's Calf Always Dies
 
 Some years ago, there was a British farmer who raised livestock. And he had a cow who was pregnant. He was very happy about that.
 
@@ -172,6 +180,8 @@ This Giving Tuesday, we have a goal to raise $150,000 to help sponsor the church
 
 Every dollar we receive today will go directly to the work City to City is doing to help start new churches in Africa in 2026. To make a gift today, visit gospelonlife.com slash Tuesday, again as gospelonlife.com slash Tuesday. And thank you for your generous and faithful support of this ministry.
 
+### Gospel Logic: New Inner Spiritual Wealth
+
 Now, here's Dr. Keller with the rest of today's message. Here's the first one.
 
 In verses 7 through 11, 7, we already saw this. He sees how the guests are picking places of honor at the table. And then he says this, when someone invites you to a feast, don't take the higher, the more honored seats, let somebody there will ask you to move, and then you're humiliated.
@@ -199,6 +209,8 @@ If you have the praise of God in your heart, if you've repented, if you've taken
 It's security, it's self-esteem, I've got money, so I know, I'm important, I've got money, so I know I'm secure. If you don't have God in the center of your life, if you don't have the praise of God in the center of your life, you're like these people scrambling to get to the top, always trying to connect to people who are a little better off than you, trying to get more money, trying to get more security, trying to get more prosperity, trying to get more status, but Jesus says, my disciples have the praise of God in the center of their being, they've been exalted, and as a result they're not scrambling. You know what, there's something very balanced about verses 8, 9, and 10, what he's actually saying there is, I don't want my people, I don't want my disciples to be passionate about getting up the ladder and getting admitted into those inner circles.
 
 That should not drive your life, but if somebody invites you in, fine, he's, I'm not against Christians being successful, it shouldn't be the passion of your life, if it happens, that's great, but you should have such an incredible inner spiritual wealth that it makes it easy for you to give away your external wealth because now your external wealth money is just money to you, it's nothing more. So that's the first way in which the logic of the gospel makes giving away your money in radical portions more sensible, but that's not all, secondly, the second speech we already looked at, but we didn't look at the end of it. It's in verse 12 to 14, and he's telling the host, don't invite these people, invite the poor, the cripple, the lame in the blind, and you'll be blessed, and then he says, although they cannot repay you, you will be repaid at the resurrection of the righteous.
+
+### Gospel Logic: Guaranteed Future Wealth
 
 Again, I would love to spend a whole sermon on this, but I'll just tell you this. You know what he's saying? He says, here's the problem with living life the way Jesus says, you ought to live.
 
@@ -247,6 +259,8 @@ Why? Because of the resurrection. They will not repay you in this life is what h
 But the resurrection, and that makes it very sensible to give away. You won't miss out on anything. Lastly, so see what he's saying.
 
 He's saying, here's why you can give away your money. First of all, you've got a new internal wealth according to the gospel. Secondly, you've got a guaranteed future wealth according to the gospel.
+
+### Gospel Logic: Christ's Sacrifice for the Feast
 
 The resurrection, but one more thing, you need to see the sacrifice of Jesus Christ that was required for you to get into the feast. Look at this great banquet story. This is the last story.
 

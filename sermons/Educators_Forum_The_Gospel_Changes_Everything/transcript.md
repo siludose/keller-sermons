@@ -6,7 +6,11 @@ Welcome to the Gospel and Life Podcast. What if the Gospel didn't just shape you
 
 Join us as Tim Keller teaches on how the Gospel reshapes the way we approach our jobs. After you listen to today's teaching, we invite you to go online to GospelandLife.com and sign up for email updates. When you sign up, you'll receive our quarterly journal and other valuable Gospel-centered resources.
 
-Subscribe today at GospelandLife.com. Yeah, I was actually a real-life formal teacher for five years at Graduate School Seminary actually lectured and I created tests and I graded tests and papers for five years. I said, get me back in the ministry where you can teach and teach you nobody knows whether the people are learning or not.
+Subscribe today at GospelandLife.com.
+
+### The Abolition of Man and the Fact-Value Divide
+
+Yeah, I was actually a real-life formal teacher for five years at Graduate School Seminary actually lectured and I created tests and I graded tests and papers for five years. I said, get me back in the ministry where you can teach and teach you nobody knows whether the people are learning or not.
 
 It's wonderful. There's no way to find out. It seems like so, took all the pressure off.
 
@@ -39,6 +43,8 @@ He says, you can't educate people like that. So what's the answer? He actually b
 And what he means by the Dow, T-A-O, taken by way from the Chinese idea that there is a kind of, it's natural law. He says he believes that, and most all religions believe, that the religions actually differ on many things like how you're saved. All human beings have some basic understanding of God and some basic understanding of right and wrong that we kind of know intuitively.
 
 And Lewis makes a case that on the basis of that, what Catholics would call natural law and what Protestants would call common grace. On the basis of the fact that people know some things intuitively, you can educate and you can appeal on the basis of this understanding that there's such a thing as common grace. Now, what do I mean by that?
+
+### Sin, Grace, and Common Grace in Education
 
 It's actually very important for both people who are in Christian schools or private schools as well as public schools. And I'm here, by the way, I'm giving you a more Protestant view of natural, long common grace. The Protestant view is if you have a thin understanding of sin that is just breaking certain rules, you should make that more robust, a thick understanding of sin according to the Bible, a thick, robust view of sin, is that sin is making anything more central than God.
 
@@ -85,6 +91,8 @@ He was an African-American Protestant, and within his understanding, the reason,
 did came out of a particular understanding of human nature and of God and of right and wrong, because everybody who says anything, even people who believe in human rights, that comes out of an enlightenment view of what life is like. Increasingly, you're going to be able, you're going to have to tell people these stories and let your students recognize how every moral claim, every claim of any sort is embedded in a worldview. You have to be able to say that, increasingly, the people at the top, the philosophers know there's no such thing as reason that is just unembedded in a particular understanding of ultimate reality, and increasingly, you're going to be able to do it too.
 
 So on the basis of common grace, on the basis of this understanding of things, I actually think that it means those of us in Christian education, like me, have to recognize the limited nature of our Christian education. Those of you who are Christians in public education have to realize, I think, real possibilities for instructing people in wisdom, and maybe increasing possibilities in talking openly about various faith views. So now, I've saying that because my guess is that when I get these questions now, I'm going to tend to refer to this basic insight that comes from the abolition of men.
+
+### Choosing Schools: Public, Christian, and Homeschool
 
 Okay? So I'm supposed to lead for the next 45 minutes. Well, I'm supposed to take questions and I think what this means is panel.
 
@@ -234,6 +242,8 @@ In his book, every good endeavor, Tim Keller draws from decades of teaching on v
 
 Visit gospel and life dot com slash give that's gospel and life dot com slash give. Now here's Dr. Keller with the remainder of today's teaching.
 
+### Faith, Worldview, and the Classroom
+
 One of the things I've noticed in reading New York Times magazine recently, I'm sure Tony being a journalist has noticed this, that increasingly when reporters are doing when they're writing articles about hot topics, instead of acting like they're the all-knowing objective omnipotent omnipresent narrator, they are making disclaimer of what where their own position is. It was interesting this article on faith in the marketplace, it was in the cover story of New York Times magazine last Sunday. The report did a great job and he came out and said in full disclosure disclaimer, here's my view.
 
 This is my religious view. Nevertheless, I'm going to say this, I'm going to try to really be fair-minded and recognize the advantages over here. And I think that's increasingly possible.
@@ -281,6 +291,8 @@ Here's justice. Here's equity. Here's love.
 Here's patience. But unless they see equity and love and patience modeled for them, they're not going to learn it. And they have to see it affirmed and reinforced that way.
 
 So if your teachers don't believe it, to the degree, your teachers believe it, and to the degree you make it a community, to that degree will be an effective school. I know it's a big fight. You want to have people ask questions?
+
+### Sustaining Faith and Wisdom in Teaching
 
 I teach high school in the South Bronx, and luckily everyone in the Bronx knows they need God, so, or something, so they let me pray for their kids. I don't really have an issue. I teach in public school.
 

@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel in Life. Why is the world so broken? And why are we capable of inflicting such harm even toward those we love?
 
 People point to politics, poverty, or psychology, but none of these fully explain what we see in ourselves and in history. This month on the podcast, Tim Keller is teaching from a series exploring the question, what's wrong with us? Knowing us how the Bible's teaching unsin offers the only explanation deep enough to face the truth in all its complexity, and the only hope powerfully enough to transform us.
@@ -18,7 +20,11 @@ I will punish her for the day she burned incense to the veils. She decked hersel
 
 Therefore, I am now going to allure her. I will lead her into the desert and speak tenderly to her. Therefore I will give her back her vineyards and I will make the valley of a core, a door of hope.
 
-There she will sing as in the days of her youth, as in the days she came up from Egypt. And this is God's word. You know, the seven deadly sins were cataloged by, especially Thomas Aquinas who was a medieval theologian.
+There she will sing as in the days of her youth, as in the days she came up from Egypt. And this is God's word.
+
+### Gluttony and the Disorder of Desire
+
+You know, the seven deadly sins were cataloged by, especially Thomas Aquinas who was a medieval theologian.
 
 And one of the seven deadly sins that he cataloged was the sin of gluttony. Now gluttony in his technical sense, the technical meaning of the word gluttony is to eat and drink immoderately. When food and drink becomes too important to you and you use it immoderately.
 
@@ -52,7 +58,11 @@ We all crave something and we do it in such a way as I'm going to show you that 
 
 That's sin that does it. And the three things we see, let's learn these three things. The depth of our craving, the structure of our craving, and the healing.
 
-We learn the depth of our craving, the structure of our craving, and the healing of our craving. First of all, let's look at the depth of the craving. When Joshua comes to Akin, it says, my son, give glory to the Lord, the God of Israel, and give him the praise.
+We learn the depth of our craving, the structure of our craving, and the healing of our craving.
+
+### The Depth of Our Craving: Achan's Suicidal Desire
+
+First of all, let's look at the depth of the craving. When Joshua comes to Akin, it says, my son, give glory to the Lord, the God of Israel, and give him the praise.
 
 Tell me what you have done. Do not hide it from me. And Akin says, it's true.
 
@@ -126,6 +136,8 @@ If you even showed them some interest, they would say, oh, good, you want to be 
 
 They were so afraid. They wanted them so badly, they never got it. They were so afraid of losing it, they were always losing them.
 
+### Hidden Cravings Beneath Our Despair
+
 There are things that we crave, and because we crave them, we crave them out of proportion. It hurts us now. One of the things that's a little hard to talk about here is to point out that it's easier when you're kind of craving or addicted to very concrete things.
 
 There's people here, for example, this is New York, so I'm sure there's people here who are addicted to nice concrete things like there's various sorts of sexual addictions, liaisons or pornography or something like that. There's gambling, there's drink, there's eating disorders, and in some ways, you know, hypochondra I mentioned that in some ways, those are a little easier to at least deal with. You know they're there, they're concrete, they're visible, they're physical in many cases.
@@ -153,6 +165,8 @@ And yet, Agen committed suicide. He knew what the things were, he knew it was go
 That takes good in this, good desires, and it disorders them to come to cupasins. Now, what are the principles for getting out? First you have to understand the structure, you can take a look and see how Agen fell into it, and then secondly you have to see the basic principles for the healing.
 
 And I must tell you that there's basically the same, even though I don't want anybody to think that in every situation your craving doesn't have particular issues that have to be addressed, as well as the general ones that I'm going to mention now. I don't think that the general ones I'm going to mention would ever be enough to deal with any particular craving, because every craving has both particular and general aspects to it. But I'm going to lay out that which we all have got to deal with if we're going to not be overwhelmed by the temptations that come because of our cravings.
+
+### The Four Steps of Temptation
 
 First of all, look at the structure, there are four steps. Agen does not immediately get in the grip of this thing, there's four steps. You see what he does?
 
@@ -188,6 +202,8 @@ In other words, one of the ways some of you may be heard me say it, he knew abou
 
 Is to worship something, coveting is to adore something, because whatever you glorify, you will worship, you'll feel drawn to it. His heart was inflamed now, and there's really virtually no stopping it because in the fourth step is, I took them. In other words, what craving does to you, we might think that I can't stop it, but you see this is slow motion, this is great, this is what's great about this verse, it shows us in slow motion, that what craving does, craving knows that there is a glory-fying apparatus in the center of your being, and it takes it over, and therefore drives your life.
 
+### The Healing: Breaking the Chain of Craving
+
 Now how do we heal ourselves from it, that's the question then, okay, if that's how it works, if that's how the craving works, in fact you can see there's even stages there, how are we healed from it. For some of you, this is very, very practical, some of you right now have a real problem with self-control in certain areas, sometimes it's very, very physical, is it not a particular sexual problem, a particular physical problem, a particular substance abuse. For others of us it's, you know, this desire, this desperate desire just to be loved, and as a result our lives are being run by it, we want it so much that you see our lives are being run by it, how do we get healed?
 
 I said in a sense there's three steps before you take it, I gazed, I wade, I coveted, and I took, at any one of those three places you can break the chain, you can, you know, you can get off the road, you can get, there's always, there's an exit ramp just before every one of these toll booths, and here's the way, here's the way they work, and after the service, if there's anybody who wants to go in a more detail on them, I have a question answer time downstairs, but I'll just outline them now. The first one is number one, be aware of what you're gazing at, so just notice these things don't gaze at them, and you know, people who, be aware what you're gazing at, nip it in the bud, don't let your mind, don't be in a situation where these things can happen. Now that's maybe too easy, so I'll move right along, people in 12 step programs have already gotten on to that, right?
@@ -199,6 +215,8 @@ And if you've got anything like that, and most of us do, whatever that is is mor
 Thomas Chalmers in the early 19th century was a Scotsman, he was a pastor, and he was also a Thaithman, and he lived in Edinburgh, and he was very upset with the poverty that he saw in certain parts of the city, and he worked with these people, and he found many of them had these life-dominating habits, and as a result of that work, he wrote a fascinating chapter, which was originally a sermon, and he called it the expulsive power of a new affection, and he said there, this, he said, the only way you can ever release the soul from the power of a beautiful object is to give it a more beautiful object. He says, there's no way you can simply say, turn your mind away from the beautiful object on which you're fixed. The only way to break the power of a beautiful object on your heart is to give it a more beautiful object, and that's the reason why John Dunn put it this way.
 
 He spoke to the Lord, and he says, take me to you, imprison me, for I accept you and you throw me, never shall be free, nor ever chased, except you ravish me. What a risqué thing to say. I, he says, and throw me, take me to you, and prison me, because if you don't imprison me, I'll be imprisoned by something else, and if you don't ravish me, I'll be ravished by something else.
+
+### The Expulsive Power of a New Affection
 
 What is it? The heart. Look it, look it, look it.
 

@@ -4,65 +4,7 @@
 
 ---
 
-## 为什么讲故事？
-
-Welcome to Gospel and Life. Are you struggling to find meaning and purpose in your work? We spend much of our lives at our jobs, but our work can often be the area where we feel the most frustration and futility in our lives.
-
-Today on the podcast, Tim Keller helps us understand how the Gospel frees us to have hope and joy in our vocations. This is a sermon with a nice climax moving on. This is a string of random thoughts.
-
-It's possible you get more out of the questions and answers afterwards than whatever I tell you about now, but I think you need to know if you're Christian, what is the rationale for being an actor? You know, why should Christians be actors? Why should Christians be actors?
-
-What do actors do of any worth from a Christian point of view? That's what I want to talk about. So that's why I mean, I have a series of random thoughts on that.
-
-But let me start by getting you something out of the New York Times. I was intrigued by the fact that Bill T. Jones, the dancer and choreographer, etc, has a new piece that he's putting on based on Flannery O'Connor's, one of Flannery O'Connor's short stories.
-
-Now what's interesting is here's Bill T. Jones. He says, this is his interview.
-
-He says, I'm angry as hell at the Bush administration. I'm not pleased with the fundamentalist lineage in this country. And he's sort of ranting and raging as a sort of normal typical New York secular liberal person.
-
-However, he was utterly entranced with Flannery O'Connor's short stories. And he comes right out and says, he's just overwhelmed. He says, the best short stories.
-
-And he wanted to put them on stage, at least one of them. And what's intriguing is, first of all, number one, the stories, the one he used is incredibly overtly Christian. It's a story about a grandfather and a grandson who are living alone in the hinterland of Georgia in the probably in the 30s or 40s.
-
-And the boy is just getting uppity. So the grandfather says, I'm going to take him into Atlanta because he wants to go to the big city. And he's really almost never seen running water.
-
-He's never seen almost anything. And he's not going to take him to the big city until you get your fill of it. And then you'll see, you know, it's nothing special.
-
-And he takes him in and unfortunately the boy likes what he sees and he's getting more and more what he would consider uppity. And at one point, the grandfather, when the boy's taking a nap, abandons him, just runs away from him, gets around a corner just to show him, just to teach him a lesson. It's very mean-spirited.
-
-Also all during the, obviously all during the story, the grandfather is showing, you know, tremendously realistic but really venal racist attitudes, you know, everywhere. So he's, you don't like him at all. And when he abandons his grandson and he scares the grandson, there's a terrible incident which the boy just runs through the crowd just screaming, where is the grandfather, knocks a woman over the police come, the police want to know who's boy is this and the grandfather is so scared because he never deals with the police actually denies the boy, denies that he's the boy's grandfather and walks away.
-
-And there's this horrible rift. And in the end, in a very enigmatic and fascinating way, the boy forgives the grandfather. Now, Bill T.
-
-Jones, he comes right out and says, this is fascinating to me. And I'll reach at the end of it. He says, Flannery O'Connor is a non-ironic Catholic believer.
-
-Now, and she is a very strong Christian Catholic believer. And here's what Bill T. Jones said.
-
-He says, she believes that there's this thing called grace and that grace sometimes hits us right between the eyes when we are mostly based. Now she and I may disagree on this. He disagrees with the basic idea.
-
-And while O'Connor seems to make all these connections that I may not agree on, all I know is it's a tremendously powerful, overwhelmingly strong story and I wanted to put it on stage. In fact, here's how it ends. He just talked about how overtly Christian it is.
-
-The grandfather's name is Mr. Head, by the way. It's that Mr.
-
-Head stood very still and felt the action of mercy touch him because at the very end the boy forgives him and says, let's go home. He says, he felt the action of mercy touch him but this time he knew that there were no words in the world that could name it. He understood that mercy grew out of agony, which is not denied to any man and which is given in strange ways to children.
-
-He understood that it was all a man could carry into death to give his maker and he suddenly burned with shame that he had so little of it to take with him. He stood appalled judging himself with the thoroughness of God while the action of mercy covered his pride like a flame and consumed it. He had never thought himself a great sinner before but he now saw that his true depravity had been hidden from him lest it caused him to spare.
-
-He realized that he was forgiven for sins from the beginning of time when he had conceived in his own heart the sin of Adam until the present when he had denied poor Nelson, that's his grandson. He saw that Nelson was too monstrous for him to claim his own and since God loved in proportion as he forgave, he felt ready at that instant to enter paradise. Bilti Jones is putting this on.
-
-Now why it's a tremendously well told story. It's not an essay which he could have easily written on why there is a God and we are sinful and God does forgive us in proportion to our our sin and only if we understand where sinners can we turn and get the mercy and therefore the worst we know ourselves to be the more mercy we get. In other words, he could have written that essay and Bilti Jones wouldn't even have read it.
-
-It wouldn't even have turned it over but it's a story. If somebody at one point asked Flierry O'Connor, he said, I'm trying to understand this story I read of years and it's wonderful. Could you give me a nutshell what it means?
-
-Just in a nutshell, a sentence or two what it means. You know what she said? Very famous.
-
-She said, if I could give it to you in a nutshell, I wouldn't have had to write the story. If I could have told it to you in two sentences, I wouldn't have had to write the story. Now, what are actors?
-
-There's a difference between writers and actors. His actors are like Jesus making the word flesh. They're taking a story which is invisible and making it visible.
-
-You know, Jesus was the word made flesh. There was a word but it was invisible and he embodied it. Now what actors do is they tell stories but they don't just tell stories.
-
-They embody stories. Of course, you really can't tell a story without acting to some degree but you are embodying a story and people need stories and stories are just about the best possible way to change people's worldview, change people's understanding of things and that's what you do. Now let me back up and give you a couple random when I say random.
+## 故事的力量 / The Power of Stories
 
 They're not totally random because they're kind of, they're sort of logical but some ideas about what stories are and why they have the impact they have. First of all, what's the story? You might find this odd.
 
@@ -95,6 +37,30 @@ You know, they can have ambiguous endings, they can have like no endings, which 
 And so maybe the story, maybe the play, maybe the movie doesn't really tell you how it ends, but you know there should be an end. That's what a story is. Now, I already said this.
 
 That's the first thing. That's what a story is. Secondly, I already alluded to this.
+
+---
+
+但我会先告诉你一些关于故事的基本概念和它们为何有如此大的影响力。首先，什么是故事？你可能会觉得奇怪。我在哈佛商业评论中读到过对“故事”最精辟的定义。
+
+两位或三位好莱坞编剧写了一篇文章，因为哈佛商业评论认为CEO们试图说服别人时，愚蠢地使用图表、数据，只是给出事实和数字，并不能改变人们的想法。他说那不是真正能打动人心的东西。你必须讲故事。而MBA学校的学生对此一无所知。
+
+所以他们解释说，这就是故事：三个要点。首先，实际上有两个要点。生活中发生了什么打破平衡的事情。除非有某件事打破了生活的常态，否则你没有故事。
+
+比如经典的《小红帽》，她带着礼物去看奶奶——这是一个事实，一个图表，不是故事。但是，《小红帽》的故事是这样的：她去给奶奶送礼物，但大灰狼已经吃掉了奶奶，并且在床铺上等着她。这就是个故事。生活中发生了打破平衡的事情。
+
+然后因为生活被打乱了，你有了主人公和反派。主人公的意思就是积极行动的人。你在为某事而努力。反派是正派的对立面。
+
+正派试图让生活恢复平衡，而反派则是那些反对你的人或阻碍你实现目标的力量。没有正派和反派就没有故事。我说过这些年关于这个话题已经有很多讨论了，接下来我会告诉你，从自由派到保守派几乎所有人都意识到，故事之所以如此强大，是因为人类无法赋予任何事物意义除非将其置于一个故事情节中。而没有打破平衡的故事线是不存在的，总有人试图恢复平衡，也总有反对他们的人。
+
+没有好人和坏人的故事是不存在的，人们对此感到不满的原因在于，如果不能通过故事来赋予事物意义，而故事总是围绕着正派和反派展开，那么就无法将任何东西归类为好或坏。每一个帮助你组织现实的故事都必须有“另一方”，即一个我们视作坏人的角色。这也是我们现在面临的一个问题。故事是打破生活平衡的事物。
+
+正派试图恢复平衡，而反派则在对抗他们。第三点，故事的结局是否成功也是其重要组成部分。故事不一定非要有一个快乐的结尾。你知道，有些故事可以有模糊不清的结局，甚至没有明确的结局，这当然很酷也很前卫，不给故事一个结局。
+
+但关键在于，即使你没有给故事一个完美的结局，你也知道它应该有个结局。这就是故事的本质。我已经说过这一点了。这是第一点，这就是故事的定义。
+
+---
+
+## 故事即世界观 / Stories as Worldviews
 
 You cannot attach meaning to anything unless you put it in a storyline. Now my best examples of this, my favorite example, this is 9-11. There's a liberal storyline.
 
@@ -138,7 +104,41 @@ This is the antagonist. This is what's wrong. And here's what you have to do to 
 
 Everybody's got that. And they're called worldviews. No matter who you are, you can't live without one.
 
-But a worldview is actually just a master narrative of what you think is wrong with the world, who's on the right side to get it back, who's on the wrong side, who's against getting it back, and what do we have to do? Now, what this means for Christians is this. The biggest problem, of course, that actors have, unlike writers or maybe other kinds of artists, is generally speaking, unless you, I guess some of you have done this, you're acting out.
+But a worldview is actually just a master narrative of what you think is wrong with the world, who's on the right side to get it back, who's on the wrong side, who's against getting it back, and what do we have to do? Now, what this means for Christians is this.
+
+---
+
+第二点，我已经提到了这一点。你不能给任何事物赋予意义，除非把它放在一个故事框架里。我最喜欢的例子就是9-11事件，这里有两个不同的叙述方式：一个是自由派的故事线，认为美国是世界上作恶多端的人；而保守派则认为美国是好人，相信民主和正义。在他们看来，外面的世界充满了专制和低智商的人。
+
+因此，我们是好人，他们是坏人。当9-11事件发生时，发生了什么？有人说是这样的：他们恨我们是因为我们太强大了。保守派则说：他们恨我们是因为我们太好了。
+
+于是，我们必须采取行动。换句话说，他们立刻把这归结为一场反恐战争。自由派则认为**这意味着**我们需要承认我们在世界上的行为，并且认识到人们为什么恨我们。****他们将事件放入一个故事框架中才能理解其意义。
+
+而最好的故事线是吉尔根尼和帕塔基提出的：这场悲剧可以让我们变得更强大，如果我们团结起来，我们可以做到。于是，他们把事情放在了不同的叙述框架里。但没有人能单纯地谈论这些而不将其置于某个故事框架内。你不能仅靠事实来理解任何事物。
+
+除非将它放入一个叙事中，否则你无法给任何事物赋予意义。你看报纸、看戏剧，每个人背后都有一个假设：生活应该是一种特定的方式，而某些事情已经打破了这种平衡。这些人试图重新调整这种平衡，而另一些人则反对这样做。首先，**这意味着你不能给自己的一生赋予意义，除非有一个主导的故事线。**
+
+有些人说他们的主导故事线是他们从非常卑微的背景和虐待中走出来。我会成就一番事业。这就是他们的故事线。其他人则在追求真爱。
+
+毫无疑问，这就是他们的故事线。其他人则是自由精神的艺术家，试图让世界变得更适合像他们这样的自由精神艺术家生存。你知道，是那些压迫性的传统人们让这个世界变得糟糕。每个人都有一个关于自己生活的叙述，认为这就是生命的意义。
+
+如果你读过我推荐给路安的那本书的话，书里会这么说。那本书说，每个人都有一种世界观，也就是说，在没有一种宏观的世界观来解释世界故事之前，你是无法行动的。换句话说，当你放眼这个世界时，显然世界并不是它应有的样子。有些东西已经把世界搞乱了。
+
+贫穷不是好事。战争不是好事。种族也不是好事。你知道，心理问题也不是好事。
+
+这世界出了什么问题？我们要把它纠正过来。所以马克思有一个想法。他批评了资产阶级和生产资料的拥有者，并说基本上，经济上的国家控制会带来改变。
+
+弗洛伊德也有一个方法论。每个人都有自己的方法论。佛教徒认为，**真正的问题是**个体意识。你认为自己是独立的自我，却看不到你的灵魂的一部分。
+
+而柏拉图和希腊人则认为，**真正的问题是**物质世界如何把你拖累下来。每个人都说，这就是罪恶。这就是反派。这就是问题所在。
+
+你需要做什么来纠正它。每个人都有这样的世界观。无论你是谁，你都无法摆脱它。但世界观实际上只是一个关于你认为世界出了什么问题、谁站在正确的一方可以扭转局面、谁站在错误的一方反对扭转局面以及**我们需要做什么的主导叙述。**
+
+---
+
+## 基督教的主故事 / The Christian Master Story
+
+The biggest problem, of course, that actors have, unlike writers or maybe other kinds of artists, is generally speaking, unless you, I guess some of you have done this, you're acting out.
 
 You're embodying stories that somebody else has written. And you might say, was Christians, you say, I never act in a story that I feel like is a great Christian story with a Christian message to it. Well, I want you to consider something for a second.
 
@@ -206,7 +206,59 @@ And the story is so comprehensive. It takes in all other stories and resolves th
 
 It's not exaggerated. I absolutely believe it, but on the other hand, I realize it's a lot to take in. So, would you please, where I have been obscure, where you want me to elaborate, where I was actually totally obscure?
 
-Just raise a hand and let's start talking about what I just went through. So yeah, right here. What about the issue of holiness for actors?
+Just raise a hand and let's start talking about what I just went through. So yeah, right here.
+
+---
+
+对于基督徒来说，这意味着什么呢？当然，演员最大的问题是，与作家或其他类型的艺术家不同，除非你自己在表演（假设你们中有些人这样做过），否则他们通常没有这样的问题。你正演绎着别人写好的故事。或许你会说，作为基督徒，我从不表演那些我认为有正面基督教信息的故事。
+
+那么我想请你考虑一下。什么是基督教的主故事？我们对世界的看法是什么？我们认为主要的问题是什么？
+
+让我用一句话概括：一切原本都是美好的，但因罪而变得破碎。通过基督，一切都将被赎回。现在，让我告诉你**这意味着什么。**希腊世界观认为身体不好，精神是好的。
+
+佛教世界观则认为精神是好的，但物质现实只是幻象。你知道，马克思会说资本家不好，无产者好；很多保守派则认为相反，无产者、那些所谓的“未洗脑的人”，我们要小心他们，因为他们不了解真相。霍布斯和洛克的观点不同，每个人都在谈论世界的问题。基督教的故事拒绝污名化任何被造之物。
+
+我们不会说身体是好的而精神是坏的，因为我们相信身体和精神都受到了罪的影响。世界的问题在于罪，而不是某一群体对另一群体，不是文化与自然之间的对立，也不是自然与文化的对立。基督教的世界观从不污名化任何事物，也不崇拜任何东西。在马克思主义中，有些人可以无错，而另一些人则总是有错的。
+
+但每一个世界观都倾向于把事情黑白分明地描绘出来，因为主角总是这样的人，反派总是那样的人。如果你相信这个基督教的故事线，那么你就是罪人，不是好人；那些非基督徒的人并不是坏人，他们只是按照上帝的形象被造的。基督徒拥有一段最细腻的故事。我们应该是最不愿意给某些人戴上白帽子，给另一些人戴上黑帽子的人。
+
+我们应该最容易能够去审视几乎任何其他人的故事，无论其来自何种世界观，并说：“是的，我明白。”因为我们相信人类身体的每一部分都是堕落的，人类个性的每一部分都是堕落的。如果一个故事谈论性活动的危害，那可以；但如果一个故事真正赞美了性的美好，这也是可以接受的。我们不像佛教徒或希腊人那样仅仅把性视为一种诱人的东西，因为我们喜欢物质世界。
+
+我们认为它是一件好事。因为上帝创造了物质世界，耶稣也有血肉之躯，所以基督徒应该能够在几乎任何其他的故事中找到自己的元素。当然，有些故事你不想参与其中，它们实际上是故意要歌颂最坏的东西并庆祝它们。但一般来说，我认为基督教演员能够找到充分的理由去参与许多其他的故事，因为其他人的故事往往在某种程度上讲述了基督教的故事，因为基督教的故事是如此全面。
+
+一切都是好的，一切都被创造为好，因此没有什么东西值得我们去赞美。但是每样东西都是堕落的，所以没有什么东西值得我们去歌颂。因此，几乎任何展示任何问题的故事都是可能的；几乎任何展示任何美好事物的故事也是可能的。这些都是基督教故事的一部分。
+
+最后一点，在这之后，你基本上必须参与其他人的故事。但如果你有机会自己编排并演绎这些故事，我发现传福音非常有趣。在我年轻的时候，人们会告诉我如何分享信仰，并给出一些提纲。让我给你举个例子说明这种做法的问题。
+
+我的父母那一代人，现在都八十多岁了，他们成长的那个年代在美国经历了大萧条和二战，那个时代的文化叙事是：人生最重要的是不是你信什么，而是你要成为一个人很好的人——一个正直、诚实、对家庭好、勤奋的人。这就是他们的文化叙事。而我的孩子们现在二十多岁，甚至更年轻一些，我看到他们属于不同的世代，他们的文化叙事不再是“要成为一个好人”，对他们来说，“自由”才是最重要的，是能够真正做自己而不受奴役或压迫。如果你说我的孩子那一代人最重要的是做好人，他们会认为重要的是找到好的。
+
+而你如果这样对我的父母那一代人说，他们肯定不会认同。那么，福音到底是什么？当然你可以讲耶稣为我们的罪死了，没错，但什么是罪呢？你需要将恩典和罪联系起来，并且要将基督教的故事与自己所在世代的基本文化叙事结合起来。
+
+例如，我仍然会对我年长的人们这样说：你们觉得自己很好，但实际上你们并不够好。你们在各个方面都有所亏欠，只有通过耶稣才能得到赦免。而我会对我的孩子们这一代人说：你们觉得自己是自由的，但其实并不是真的自由。因为如果你不以耶稣基督为中心来生活，你就是那个中心以外的东西的奴隶。
+
+因此，只有透过基督，你才能获得**真正的自由。顺便提一下，在圣经中，保罗曾说过一段有趣的话：“犹太人要权柄，希腊人要智慧；我对他们却传基督的十字架，犹太人以为可耻，智慧人认为愚拙。”这里的意思是**：希腊人注重的是知识和理性，而犹太人则更看重实际应用。他们想知道的是，这一切是怎么运作的？
+
+他们想要力量，想要结果。保罗并没有用同样的方式向犹太人传讲基督。他所做的是一方面质疑了犹太人的基本文化故事，说耶稣基督在你们看来似乎很疯狂，因为他以软弱的形式来到这个世界，在十字架上是个软弱的弥赛亚。然而，这正是你们一直在寻找的力量。
+
+他对希腊人则说的是另一番话。他说，耶稣基督是愚拙的。换句话说，他没有受过教育，没有去正确的学校上学，也没有写过任何书籍。但是，他拥有你们真正需要的智慧。
+
+也就是说，保罗试图表达的是，在耶稣基督里，任何群体、世代或社会的基本文化故事才有圆满的结局。你们的社会想要什么——是智慧？是力量？是自由？
+
+是善良？无论他们追求什么，最终只有在耶稣里才能得到圆满。否则，它将会自我毁灭。因为这会让那些不足够的人成为主角，让那些虽然堕落但仍被创造出来的美好事物变成反派，变成偶像。
+
+所以我认为，如果你理解了基督教的故事，并且你是讲故事的人——演员就是讲故事的人——从长远来看，基督教是如此全面，你应该能够欣赏并参与其他人的故事，知道你实际上是在为人们的生命带来真理。最终，我认为深入地参与到我们自己的文化故事中去是非常重要的，这样我们才能理解它们，并最终将基督带入其中。如果你不进入文化，不去了解文化的故事情节，当你谈论耶稣时，只会是这样的——因为你回答的是他们没有问的问题。因为归根结底，福音是神通过一个故事拯救了你，而不是一串原则。
+
+神并没有带着一串原则出现，说如果你们这样做，就能上天堂。什么是真正发生的事情呢？就是上帝通过耶稣基督来到这个世界，借着祂所做的一切拯救了你。祂是透过一个故事来拯救你的，一个真实的、真实的故事，而不是因为你只是顺服、去教会和遵守规定。
+
+所以，得救是透过一个故事。而这个故事是如此全面，它涵盖了所有其他的故事，并解决了它们。我知道这听起来可能有点令人难以置信，甚至有些难以接受。但这并不是夸大其词。
+
+我确实相信这一点，但另一方面我也意识到这需要你消化一下。如果我在某个地方说得不够清楚，请举手让我详细解释；如果有任何模糊的地方，或者你觉得我不够清楚的地方，请告诉我。所以现在就在这里开始吧。
+
+---
+
+## 演员的圣洁与良知 / Holiness and Conscience for Actors
+
+What about the issue of holiness for actors?
 
 Because even in some of the best of stories, they're asked to do things like his or woman who's not their spouse. Maybe where something we're feeling or you take clothes off or even have to act out of lust or out of cruelty, have these feelings. And that seems to go against being holy because we don't really have any kind of standard for this in the Bible.
 
@@ -526,49 +578,7 @@ That website again is gospelandlife.com-slash-partner. Today's talk was recorded
 
 ---
 
-This translation maintains the original structure and tone of the sermon while ensuring it sounds natural in Simplified Chinese. 你正演绎着别人写好的故事。或许你会说，作为基督徒，我从不表演那些我认为有正面基督教信息的故事。
-
-那么我想请你考虑一下。什么是基督教的主故事？我们对世界的看法是什么？我们认为主要的问题是什么？
-
-让我用一句话概括：一切原本都是美好的，但因罪而变得破碎。通过基督，一切都将被赎回。现在，让我告诉你**这意味着什么。**希腊世界观认为身体不好，精神是好的。
-
-佛教世界观则认为精神是好的，但物质现实只是幻象。你知道，马克思会说资本家不好，无产者好；很多保守派则认为相反，无产者、那些所谓的“未洗脑的人”，我们要小心他们，因为他们不了解真相。霍布斯和洛克的观点不同，每个人都在谈论世界的问题。基督教的故事拒绝污名化任何被造之物。
-
-我们不会说身体是好的而精神是坏的，因为我们相信身体和精神都受到了罪的影响。世界的问题在于罪，而不是某一群体对另一群体，不是文化与自然之间的对立，也不是自然与文化的对立。基督教的世界观从不污名化任何事物，也不崇拜任何东西。在马克思主义中，有些人可以无错，而另一些人则总是有错的。
-
-但每一个世界观都倾向于把事情黑白分明地描绘出来，因为主角总是这样的人，反派总是那样的人。如果你相信这个基督教的故事线，那么你就是罪人，不是好人；那些非基督徒的人并不是坏人，他们只是按照上帝的形象被造的。基督徒拥有一段最细腻的故事。我们应该是最不愿意给某些人戴上白帽子，给另一些人戴上黑帽子的人。
-
-我们应该最容易能够去审视几乎任何其他人的故事，无论其来自何种世界观，并说：“是的，我明白。”因为我们相信人类身体的每一部分都是堕落的，人类个性的每一部分都是堕落的。如果一个故事谈论性活动的危害，那可以；但如果一个故事真正赞美了性的美好，这也是可以接受的。我们不像佛教徒或希腊人那样仅仅把性视为一种诱人的东西，因为我们喜欢物质世界。
-
-我们认为它是一件好事。因为上帝创造了物质世界，耶稣也有血肉之躯，所以基督徒应该能够在几乎任何其他的故事中找到自己的元素。当然，有些故事你不想参与其中，它们实际上是故意要歌颂最坏的东西并庆祝它们。但一般来说，我认为基督教演员能够找到充分的理由去参与许多其他的故事，因为其他人的故事往往在某种程度上讲述了基督教的故事，因为基督教的故事是如此全面。
-
-一切都是好的，一切都被创造为好，因此没有什么东西值得我们去赞美。但是每样东西都是堕落的，所以没有什么东西值得我们去歌颂。因此，几乎任何展示任何问题的故事都是可能的；几乎任何展示任何美好事物的故事也是可能的。这些都是基督教故事的一部分。
-
-最后一点，在这之后，你基本上必须参与其他人的故事。但如果你有机会自己编排并演绎这些故事，我发现传福音非常有趣。在我年轻的时候，人们会告诉我如何分享信仰，并给出一些提纲。让我给你举个例子说明这种做法的问题。
-
-我的父母那一代人，现在都八十多岁了，他们成长的那个年代在美国经历了大萧条和二战，那个时代的文化叙事是：人生最重要的是不是你信什么，而是你要成为一个人很好的人——一个正直、诚实、对家庭好、勤奋的人。这就是他们的文化叙事。而我的孩子们现在二十多岁，甚至更年轻一些，我看到他们属于不同的世代，他们的文化叙事不再是“要成为一个好人”，对他们来说，“自由”才是最重要的，是能够真正做自己而不受奴役或压迫。如果你说我的孩子那一代人最重要的是做好人，他们会认为重要的是找到好的。
-
-而你如果这样对我的父母那一代人说，他们肯定不会认同。那么，福音到底是什么？当然你可以讲耶稣为我们的罪死了，没错，但什么是罪呢？你需要将恩典和罪联系起来，并且要将基督教的故事与自己所在世代的基本文化叙事结合起来。
-
-例如，我仍然会对我年长的人们这样说：你们觉得自己很好，但实际上你们并不够好。你们在各个方面都有所亏欠，只有通过耶稣才能得到赦免。而我会对我的孩子们这一代人说：你们觉得自己是自由的，但其实并不是真的自由。因为如果你不以耶稣基督为中心来生活，你就是那个中心以外的东西的奴隶。
-
-因此，只有透过基督，你才能获得**真正的自由。顺便提一下，在圣经中，保罗曾说过一段有趣的话：“犹太人要权柄，希腊人要智慧；我对他们却传基督的十字架，犹太人以为可耻，智慧人认为愚拙。”这里的意思是**：希腊人注重的是知识和理性，而犹太人则更看重实际应用。他们想知道的是，这一切是怎么运作的？
-
-他们想要力量，想要结果。保罗并没有用同样的方式向犹太人传讲基督。他所做的是一方面质疑了犹太人的基本文化故事，说耶稣基督在你们看来似乎很疯狂，因为他以软弱的形式来到这个世界，在十字架上是个软弱的弥赛亚。然而，这正是你们一直在寻找的力量。
-
-他对希腊人则说的是另一番话。他说，耶稣基督是愚拙的。换句话说，他没有受过教育，没有去正确的学校上学，也没有写过任何书籍。但是，他拥有你们真正需要的智慧。
-
-也就是说，保罗试图表达的是，在耶稣基督里，任何群体、世代或社会的基本文化故事才有圆满的结局。你们的社会想要什么——是智慧？是力量？是自由？
-
-是善良？无论他们追求什么，最终只有在耶稣里才能得到圆满。否则，它将会自我毁灭。因为这会让那些不足够的人成为主角，让那些虽然堕落但仍被创造出来的美好事物变成反派，变成偶像。
-
-所以我认为，如果你理解了基督教的故事，并且你是讲故事的人——演员就是讲故事的人——从长远来看，基督教是如此全面，你应该能够欣赏并参与其他人的故事，知道你实际上是在为人们的生命带来真理。最终，我认为深入地参与到我们自己的文化故事中去是非常重要的，这样我们才能理解它们，并最终将基督带入其中。如果你不进入文化，不去了解文化的故事情节，当你谈论耶稣时，只会是这样的——因为你回答的是他们没有问的问题。因为归根结底，福音是神通过一个故事拯救了你，而不是一串原则。
-
-神并没有带着一串原则出现，说如果你们这样做，就能上天堂。什么是真正发生的事情呢？就是上帝通过耶稣基督来到这个世界，借着祂所做的一切拯救了你。祂是透过一个故事来拯救你的，一个真实的、真实的故事，而不是因为你只是顺服、去教会和遵守规定。
-
-所以，得救是透过一个故事。而这个故事是如此全面，它涵盖了所有其他的故事，并解决了它们。我知道这听起来可能有点令人难以置信，甚至有些难以接受。但这并不是夸大其词。
-
-我确实相信这一点，但另一方面我也意识到这需要你消化一下。如果我在某个地方说得不够清楚，请举手让我详细解释；如果有任何模糊的地方，或者你觉得我不够清楚的地方，请告诉我。所以现在就在这里开始吧。关于演员的圣洁问题，你们觉得如何？
+关于演员的圣洁问题，你们觉得如何？
 
 因为即使在最好的故事里，他们也可能会被要求做一些事情，比如和不是配偶的人发生关系，或者是脱衣服、甚至表现出淫欲或残忍的行为。这似乎与圣洁相悖，因为我们圣经中并没有这样的标准。你知道，使徒们从来都不是演员，他们似乎也不会让自己处于那种容易犯错的位置。换句话说，你觉得如果你在表演的时候真的在做这些事情，但你实际上没有真正去做这些事情，那是什么意思呢？
 
@@ -624,7 +634,7 @@ John Cleese 虽然现在很难找到他的读本，但他曾朗读过其中的�
 
 我想我需要调用一下我的记忆库。好的。问题在于，正如我之前所说的一样，我也同意这一点——很多基督徒在讲述基督教故事时的一个问题是，他们没有将叙事深深融入文化形式中。我认为托尔金的作品非常出色，他是一位盎格鲁-撒克逊语言学教授，在他的时代，他是世界上三四位最了解古英语、哥特语、冰岛语和芬兰语的人之一。
 
-他看到了这一点：例如，北欧神话。（原文中的英文部分保持不变） --- 这样翻译既保留了原始内容的格式，也尽量保持了原汁原味的表达方式，并且在必要时进行了适当的调整以确保自然流畅。你知道古德默尔顿是什么吗？你可能会说，哦，是瓦格纳的作品。
+他看到了这一点：例如，北欧神话。你知道古德默尔顿是什么吗？你可能会说，哦，是瓦格纳的作品。
 
 但在北欧神话中，达尼米尔斯的末日审判，就是诸神和历代英雄复活来与怪物、妖精和恶魔作战。在某个特定平面上有一场巨大的战斗，看谁能在永恒中赢得世界。最终，诸神和英雄们会死去。这就是所谓的古德默尔顿——诸神的黄昏。
 

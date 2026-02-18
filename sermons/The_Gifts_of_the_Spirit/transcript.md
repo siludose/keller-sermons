@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel and Life. Who is the Holy Spirit? And why is the Spirit's work so vital to the Christian life?
 
 The Bible tells us the Holy Spirit is not just a vague force, but a person who works in the lives of Christians in profound ways. Today Tim Keller is exploring how the Spirit calls us to faith, unites us together, equips us with gifts, and shapes us to be more like Christ. Our scripture reading this morning is from Ephesians 4 verses 7 through 16.
@@ -18,6 +20,8 @@ If this is your church, what this church should look like, if you come from some
 
 Then what are the practical implications of the theology of spiritual gifts? What are the implications for church life? And thirdly, how can we rightly use spiritual gifts?
 
+### What Are Spiritual Gifts
+
 First, what are they? Let me give you a definition drawn from years of thinking about what the Bible says about it. The definition is spiritual gifts are differing abilities given by a Holy Spirit to each believer to meet needs in such a way that it creates a community of people who are growing into the fullness of the character of Jesus Christ.
 
 Let me break that down into three parts for you. First of all, spiritual gifts are abilities to meet needs. There are five lists of spiritual gifts in the Bible.
@@ -29,6 +33,8 @@ Some gifts are the ability to communicate truth like evangelism, teaching. Some 
 But now look, there is no human need, spiritual, physical, psychological, relational that doesn't have some spiritual gift that can address it. Spiritual gifts are the ability to address those kinds of needs. See, some spiritual gifts heal us when we're wounded or some spiritual gifts encourage us where we're downcast.
 
 Some spiritual gifts challenge us when we're lagging or correct us when we're going astray or love us when we're being rejected or just inform us where we're ignorant. There is no human need that doesn't have some spiritual gift that can address it. So spiritual gifts are the abilities to address needs.
+
+### Every Believer Has a Unique Gift
 
 Secondly, these spiritual gifts are different and yet given to every believer. See, it says, to each Christ has given a portion of the Spirit's power to meet needs. In spite of the fact that we're all one, fundamentally in Christ, spiritual gifts create enormous diversity, not only as we're going to see this as we go along.
 
@@ -43,6 +49,8 @@ One of the reasons is this. Another reason is sin. One of the reasons is this.
 One of the reasons is this, but even though it makes it different, every believer, it does not say to some believers, to super-believers, to certain believers, you get spiritual gifts everyone. When it says to each one of us who's us Christians, Paul's not just saying us ministers or something like that, to each. So everybody gets a portion.
 
 Jesus has all the ministerial abilities to communicate truth, to bear burdens, to give direction. He has all. We get a portion of his ministry ability to meet needs, but everyone gets one, and only a portion.
+
+### The Goal: Christ's Likeness in Community
 
 Now, thirdly, and this is actually the most important thing I'm going to press two or three times here today. What is the goal of spiritual gifts? What is the goal of ministry?
 
@@ -88,6 +96,8 @@ Secondly, now, if that's true, there's your theology. What are some of the pract
 
 What kind of church does that create? Okay? Let me give you four, four practical implications, all right?
 
+### No Passive Christians in the Church
+
 The first one is, it means there will not be any passive unemployed Christians in a church. If this theology is embraced, there will not be any passive unemployed people in a church. And I want you to, for a minute, just to think about the implications of this theology.
 
 There's a place in Ephesians 2 where, verse 10, where it says, Because we are God's workmanship, created in Christ Jesus to do good works which God prepared in advance for us to do. You have been crafted and your unique abilities mean that there's certain great things that you are the, that God wants you to do or put it this way. Take your gifts, which will be everybody's gifts are different, and the fact that you're gender, your ethnicity, your experience in life, you put all those things together.
@@ -105,6 +115,8 @@ Spiritual gifts are output, ministry is output, ministry is spending yourself, g
 But if you come to a church and get mainly input and virtually no output meaning you are not making yourself accountable, getting involved in other people's lives, speaking the truth and loving to their lives, using your unique gifts in order to see them build into Christ likeness. See if you're coming and doing input and you're not doing output that is you're coming and you're not really doing anything else but attending, you are violating the will of the Holy Spirit for your life. To each is given a gift.
 
 You are God's workmanship there are certain things that you and you alone can do and if you and God's providence are here then the rest of us need you or you wouldn't be here. That doesn't waste people, he doesn't waste assets like the rest of us do. And therefore it's absolutely crucial if we embrace the theology of the spiritual gifts that there be no unemployed or passive Christians.
+
+### Expect Contention but Reject Jealousy
 
 That's the first implication, second implication. It also means we ought to expect, and I already kind of hinted at this, we ought to expect a certain amount of contention and conflict in the church because of spiritual gifts. We need to expect it to a certain degree.
 
@@ -166,7 +178,11 @@ And if you understand that, then A, if you end up getting elected, you will have
 
 That's what should happen. The weird thing about the theology of spiritual gifts is on the one hand. If you embrace it, it creates more contention in jostling in the church.
 
-On the other hand, it should actually be a kind of lubrication so that as we talk and as we contend and as we push, there is a great deal of respect. There's no jealousy, there's no resentment, there's no pride, there's no arrogance. And lastly, the last implication, though, of this theology of spiritual gifts is not just is, in a sense, we're getting there, fruit, spiritual fruit has got to be the real goal and spiritual gifts have got to be seen only as the means.
+On the other hand, it should actually be a kind of lubrication so that as we talk and as we contend and as we push, there is a great deal of respect. There's no jealousy, there's no resentment, there's no pride, there's no arrogance.
+
+### Never Mistake Gifts for Fruit
+
+And lastly, the last implication, though, of this theology of spiritual gifts is not just is, in a sense, we're getting there, fruit, spiritual fruit has got to be the real goal and spiritual gifts have got to be seen only as the means.
 
 The spiritual gifts are only a means of the end of the fullness of the stature of the character of Jesus Christ. Fruit and gifts are not the same thing, never mistake gifts for fruit. What do I mean?
 
@@ -203,6 +219,8 @@ Inside, there are all kinds of problems, difficulties, you know, evil sin, you k
 You must not do that. The point is Christ's likeness in you, the point of Christ's likeness in those other people. And therefore, never mistake gifts for fruit.
 
 Fruit is the center, fruit is the end, you know, gifts are only the means. That's the theology of Holy Spirit and what a different kind of church it's going to be if we embrace it. Now that brings us to our last point and here's what we see, we're on the verge of needing this last point.
+
+### Love: The Key to Using Gifts Rightly
 
 How can we use our spiritual gifts rightly? I like to show you, I just did show you, that there's all kinds of ways in which the exercise of spiritual gifts is problematic. It can lead to power struggles and jealousy.
 

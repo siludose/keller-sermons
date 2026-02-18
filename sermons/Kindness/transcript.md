@@ -14,7 +14,11 @@ My command is this, love each other as I have loved you. Greater love has no one
 
 I no longer call you servants because a servant does not know his Master's business. Instead, I have called you friends. For everything that I learned from my Father, I have made known to you.
 
-This is the word of the Lord. The marks of a supernaturally changed heart. A heart changed by the grace of God and the power of the Holy Spirit are listed in the classic text Galatians 5, verse 22 and 23, which lists what's called there, the fruit of the Spirit, and those traits are love, joy, peace, patience, kindness, goodness, and so on.
+This is the word of the Lord.
+
+### Souls Knit Together
+
+The marks of a supernaturally changed heart. A heart changed by the grace of God and the power of the Holy Spirit are listed in the classic text Galatians 5, verse 22 and 23, which lists what's called there, the fruit of the Spirit, and those traits are love, joy, peace, patience, kindness, goodness, and so on.
 
 And each week, we're taking one of those traits and looking at it in order that perhaps we could experience more of that supernatural change in our own lives. Now, tonight we get to the trait, the spiritual fruit of kindness. And whenever preachers are working through the fruit of the Spirit, this is a big challenge, this particular one because the word kindness, the Greek word translated kindness, in the New Testament has a real breadth of meaning, unfortunately.
 
@@ -85,6 +89,8 @@ There are some foods that were naturally sweet, but cooks couldn't create sweetn
 You like that movie? You like that music? You like that kind of book?
 
 You too? It's common beliefs, common bond. That's the beginning.
+
+### Forging a Friendship
 
 But it's only the beginning, because now, secondly, we need to go on to how you forge a friendship out of that beginning. Here's why you can't. When I say friends are discovered, don't take that too far, because there's always an initial sense of oneness with a person who can be a friend.
 
@@ -170,6 +176,8 @@ That can't be done on Facebook. It's got to be done face to face. You'll never l
 
 Friends, always let you in, never let you down. Are you applying this to potential friends to make them into actual friends? Now, we're not done.
 
+### The Ultimate Act of Friendship
+
 And here's the reason why. We've looked at the nature of friendship and we've looked at its power and we've looked at it. You know, it's forging.
 
 But where do you get the power for it? And here's what we have a lot against us. We have a lot against us.
@@ -245,6 +253,8 @@ Because you can afford. You like them. You want to encourage them and you can af
 That's exactly the way it is. If Jesus Christ friendship is the thing that just fills your heart, you can afford to open up to other people. You can afford to take a risk because all friendship is a risk.
 
 You can afford it because you've got the ultimate friend and the ultimate love of a friend. Now look, let me give, let me apply this in three ways. Three ways.
+
+### Bringing Friendship Back
 
 Number one, we need to bring the idea of friendship back into the center of our relationships between people of different races and different classes and different nationalities. Aristotle was right that in general friendships only happen between people of the same race. You can see it.
 

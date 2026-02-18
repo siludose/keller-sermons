@@ -4,45 +4,9 @@
 
 ---
 
-Welcome to Gospel in Life. Who is Jesus? The Bible says He's fully God, the Creator of the universe, and at the same time, fully human.
+## 上帝之子的祷告日记 / The Prayer Diary of the Son of God
 
-Lose one of those and you lose Christianity. Join us for today's podcast where Tim Keller explores the person and promises of Jesus Christ. A reading from Psalm 69.
-
-Save me, O God, for the waters have come up to my neck. I sink in the myoree depths where there is no foothold. I have come into the deep waters, the floods engulf me.
-
-I am worn out calling for help. My throat is parched. My eyes fail looking for my God.
-
-Those who hate me without reason outnumber the hairs of my head. Many are my enemies without cause. Those who seek to destroy me.
-
-I am forced to restore what I did not steal. You know my folly, O God. My guilt is not hidden from you.
-
-May those who open you not be disgraced because of me, O Lord, the Lord Almighty. May those who seek you not be put to shame because of me, O God of Israel. For I endure scorn for your sake and shame covers my face.
-
-I am a stranger to my brothers and alien to my own mother's sons, for zeal for your house consumes me and the insults of those who insult you fall on me. When I weep and fast, I must endure scorn. When I put on sackcloth, people make sport of me.
-
-Those who sit at the gate mock me and I am the song of the drunkards. But I pray to you, O Lord, in the time of your favor, in your great love, O God, answer me with your sure salvation. Rescue me from the mire.
-
-Do not let me sink. Deliver me from those who hate me from the deep waters. Do not let the floodwaters engulf me or the depths swallow me up or the pit close its mouth over me.
-
-Answer me, O Lord, out of the goodness of your love in your great mercy turned to me. Do not hide your face from your servant. Answer me quickly for I am in trouble.
-
-Come near and rescue me. Redeem me because of my foes. You know how I am scorned, disgraced and shamed.
-
-All my enemies are before you. God has broken my heart and has left me helpless. I looked for sympathy, but there was none, for comfortors, but I found none.
-
-They put gall in my food and gave me vinegar for my thirst. May the table set before them become a snare. May it become retribution and a trap.
-
-May their eyes be darkened so they cannot see and their backs be bent forever. Pour out your wrath on them, let your fierce anger overtake them. May their place be deserted, let there be no one to dwell in their tents.
-
-For they persecute those you wound and talk about the pain of those you hurt. Charge them with crime upon crime. Do not let them share in your salvation.
-
-May they be blotted out of the book of life and not be listed with the righteous. I am in pain and distress. May your salvation, O God, protect me.
-
-I will praise God's name in song and glorify him with thanksgiving. This will please the Lord more than an ox, more than a bull with its horns and hoofs. The poor will see and be glad, you who seek God may your hearts live.
-
-The Lord hears the needy and does not despise his captive people. Let heaven and earth praise him, the seas and all that move in them, for God will save Zion and rebuild the cities of Judah. Then people will settle there and possess it.
-
-The children of his servants will inherit it and those who love his name will dwell there. This is God's Word. Now, as we approach Christmas, if you come to a church, you are going to hear people asking the question, why did Jesus come and reflect on it?
+Now, as we approach Christmas, if you come to a church, you are going to hear people asking the question, why did Jesus come and reflect on it?
 
 Why did Jesus come? Now, we have been looking at the Psalms of the Old Testament all fall. My question, of course, to you would be, why would we look one more time at the Psalms to find out anything about Jesus?
 
@@ -57,6 +21,24 @@ If you've ever had a friend who's going through tremendous suffering, imagine yo
 Well, that's what you've got here. You've got the prayer diary of the Son of God and an expression in the first person of his anguish and his sufferings for us. Now, what we learned from it is much, but we only have time today, as we prepare to go to the Lord's table, to look at three things that we learned from the Psalm, from his prayer diary, about what he came to do.
 
 He came, first of all, to be a servant, second of all, to be hated and thirdly to be exchanged, to be a servant, to be hated to be exchanged. The first point is the longest, the second point is the shortest, the third point is the most important. First of all, he came to be a servant.
+
+---
+
+现在临近圣诞节了，如果你来到教堂，你会听到人们在思考一个问题：耶稣为什么来，并且会反思这个问题。
+
+耶稣为什么来？我们整个秋季都在研读旧约中的诗篇。当然，我会问你们：为什么我们要再看一次这些诗篇，从中找到有关耶稣的信息？刚刚读过的诗篇69篇，耶稣以一种有趣而显著的方式引用了它。
+
+在约翰福音15章中，他和他的门徒讨论到人们对他的反对和敌意。然后他在约翰福音15章25节说：“这是要应验经上的话。” 当它说他们恨我无故时，他引用诗篇69篇，这是什么意思？耶稣说：诗篇69篇当然由大卫所写，是关于大卫王和他的即刻问题以及那些恨他的人民。
+
+但其实它并不是只有一个视角，而是有两个视角，不只是一个参照点，而是有两个参照点。它不仅是指大卫和他的困境，更是指向一位比大卫更伟大的人——一位更伟大的战士、更伟大的君王，也是一位更为深重的受苦者。这诗篇所讲的是我。我们理解的意思是，并不是诗篇中的每一个部分都如此，但我们知道耶稣读过这首诗篇，一遍又一遍地读，从中找到了共鸣，理解了其中的语言正是在描述他将要经历的一切。
+
+如果你曾经有一个正遭受巨大痛苦的朋友，想象一下你发现她的日记本，你会不会去读？你知道，你会把它当作是神圣的东西来对待。或许你会犹豫是否应该拿起它，但一旦拿起，你会以极大的敬意来对待。现在，你就面对着上帝儿子的祈祷日记，以及他亲身表达的痛苦和为我们所受的苦难。
+
+从中学到的东西很多，但我们今天作为预备参加主餐的时候，只能看三个方面，从这首诗篇中了解到关于耶稣来做什么的信息。首先，他是来作仆人的；其次，是被人恨恶的；最后，是被交换的。这三个要点中，第一个最长，第二个最短，第三个最重要。首先是来作仆人。
+
+---
+
+## 他来是为了降卑 / He Came to Sink
 
 You know, you notice in verse 17, he says, why have you hidden your face from your servant? And in the very beginning of the paragraph, or the very beginning of the Psalm, he says, I sink. Save me, O Lord, for the waters have come up to my neck.
 
@@ -73,6 +55,22 @@ And what justifies that language is this, this very thing. Philippians 2, Psalm 
 Jesus actually took two huge steps down. That's what it means to be a servant, to go down. He goes, we're told, from heaven to earth.
 
 It says, though he was equal with God, he didn't hold on to that equality, but was found in the form of a servant, he became a human being. And you know, when you think of the incarnation, God becoming incarnate, in the flesh, God becoming human being, you've got to get out of your mind. The Christmas cards with little sweet baby Jesus asleep on the hay, it looks like an ivory soap commercial.
+
+---
+
+你注意，在第17节中，他说："为什么将你的脸隐藏不向你的仆人？"在诗篇的开头，他说道：“我下沉了，主啊，求你拯救我，因为水已漫到我的颈项。” 我沉入血泊之中，没有立足之地。耶稣来做什么？
+
+他来就是下沉，这是第一个要点。他来作仆人，下沉。仆人的本分就是要下沉。我们在礼拜中早些时候读了腓立比书2章。
+
+这一章节完全讲的是耶稣作为仆人降卑的意义。现在有一本新书非常流行，书名是《降卑的恩典》，作者是一位牧师，这本书也是基于腓立比书2章。几年前，另一位著名的牧师唐纳德·格林·巴诺斯在布道时常常这样开头：上路就是下路；要下路就要上路。而这种说法背后的依据正是这一段经文——腓立比书2章。
+
+圣经说，耶稣基督来降卑是因为仆人就是这样做的。当你读到腓立比书2章时，你就会明白这一点。耶稣实际上走了两步很大的降卑之路。这就是作为仆人的意义，就是去降卑。
+
+他从天上降到地上。经文说：“虽然他在神面前是平等的，却甘愿放弃这种平等，取了奴仆的形象，成为人的样式。”当你想到道成肉身，神成为人，你必须抛开那种想法。那些圣诞卡片上睡在稻草上的可爱小耶稣，看起来就像是象牙肥皂广告。
+
+---
+
+## 道成肉身的暴烈 / The Violence of the Incarnation
 
 I know you have to understand and you do understand it when you read Psalm 69. You have to understand the violence of the incarnation. The incarnation was an act of violence against Jesus.
 
@@ -98,11 +96,45 @@ He can't change himself. The violence of the incarnation, he sank. He came to si
 
 And he didn't just—Philippines II doesn't just tell us there's one step down. He took two steps. He didn't just come from heaven to earth.
 
+---
+
+我知道你们读诗篇69时会理解这一点。你们必须明白道成肉身的暴力性。道成肉身是对耶稣的一种暴力行为。这是一种他自愿接受的暴力。
+
+让我们想一想。监禁有什么如此暴力的地方？监禁有什么如此使人失去人性和可怕之处？你失去了自由，失去了个人财产。
+
+几年前发生在纽约地区的一件事件是多么令人震惊啊！一个男人因为对一位美丽的模特生气而毁掉了她的容貌，这件事并非发生在纽约地区，但同样令人震惊。这里有一个美丽的人被剥夺了她的美貌。让我告诉你，道成肉身是从未发生过的最大剥夺。
+
+最美好的人中最美的一员，神的儿子，他的美被夺走，他被塑造成一个卑微的形象。他的财富也被剥夺，他陷入贫困之中。And他与父神之间的爱被剥夺，被抛入孤独。他的喜乐被剥夺，被抛入悲伤；他的力量被剥夺，被抛入软弱。
+
+你们明白道成肉身的暴力吗？神成为人。**这意味着什么？他曾是一颗细胞。**
+
+你知道，我们每次说他是圣灵怀胎而生时都在承认这一点。神成为了宇宙中最脆弱的生命形式。这是一种易受伤害的形式，一个细胞。然后他成了婴儿。
+
+他的手是无助地挥动着的小手，你看，现在无能为力。全能的宇宙主宰在弄脏自己后必须被改变。他无法自我改变。道成肉身的暴力使他沉沦。
+
+他来就是为了沉沦。他不只是从天堂降到地上——腓立比书第二章告诉我们，他走了两步。他不只是从天上来到人间。
+
+---
+
+## 从摇篮到十字架 / From Cradle to Cross
+
 But once he got here, he went from the cradle to the cross. His role, his job here on earth, was not to become the head of a great political party and sweep into power. His job was to be tortured and to be killed.
 
 The one who knit us together in our mother's womb was deconstructed on the cross and he was torn limb from limb. He sunk. You know, Jesus Christ is the most blatant and the most blunt and the greatest contradiction to the world's understanding of greatness that there is.
 
 The world's understanding is promote yourself, advance your cause at the expense of other people. A crew, the wealth and power. Look out for number one.
+
+---
+
+但一旦到了这里，他就从摇篮走向了十字架。
+
+他的任务、他的使命是在地球上受苦并被杀戮。在我们母腹中将我们缝合在一起的那位，在十字架上被拆散，他的肢体被撕裂。他沉沦了。你知道吗？
+
+耶稣基督是世上最直接、最坦率、也最伟大的对世界理解伟大性的反证。世界的理解是自我提升，不惜牺牲他人来促进自己的事业。追求财富和权力。只顾自己。
+
+---
+
+## 上升之路在于下降 / The Way Up Is Down
 
 And Jesus, ascended by descending the way up, he taught us is the way down. The way to power, he taught us is to serve. The way to rule is to submit.
 
@@ -119,6 +151,24 @@ You will not go up unless you go down. Well, let me put it as stark as possible.
 I know who would like to say, yes, I make mistakes, I'm not perfect, but can you say to other people and to God that I am a helpless sinner, that I should be cast off, that I'm acting, even though I've been created by God, I act as if on my own creator, and even though God is my king, I act as if on my own king, I deserve to be cut off. I am a helpless sinner, I need a savior and a new master. Can you say that?
 
 Now, this is New York City, I know there's people out there who think that that is a most primitive thing, the most primitive kind of religion. How regressive you say, of course it's regressive, it's a step down. And if you feel that that's too primitive, and if you couldn't say that, then you're not a servant yet, and your intellectual pride is keeping you from going down and therefore from coming up.
+
+---
+
+而耶稣通过降卑的方式升到了高位，他教导我们的是谦卑的道路。通往权力的路是服务，统治的路是顺服。失去生命才能找到生命，寻找幸福不是为了寻求自己的幸福，而是为了别人的幸福。你知道一个基督徒是什么吗？
+
+一个基督徒是这样的人：在绝对与世间所有智慧相悖的情况下，他决定以此作为自己人生的模式。在我们继续之前，请大家想一想这一点。如果你是一个基督徒和仆人，当然仆人不应该比他的主人更高贵，那么你就是那位伟大仆人的仆人，显然**这意味着你已经决定了我的道路是向下的。**你们已经做出这个选择了没有？
+
+你们是否已经决定，我生命的本质是要下沉？让我举几个例子来说明什么是基督徒。例如，一个基督徒作为基督徒迈出的第一步、第一行动。换句话说，皈依本身。
+
+成为一个基督徒的最首要的事情就是：通过悔改而向上提升自己。你不会上升除非先下降。让我把话说得更直接一些。我知道在座有些人会说：“是的，我犯过错误，我不是完美的。
+
+” 但你们是否能够对他人和上帝说：“我是无助的罪人，应该被抛弃；即使是我由上帝创造，我也自认为自己是自己的创造者；即使上帝是我的王，我也自认为是自己的国王，我配不上任何东西。我是无助的罪人，需要救主和新的主人。” 能够说出这样的话吗？现在，这是纽约市，在这里有些人可能会认为这种想法是最原始、最落后的宗教观念。
+
+你们会说：“这太倒退了”，当然，这是一个向下的步骤。如果你觉得这太过原始，如果你们不能这样说，那么你们还没有成为仆人，而是在自己的智力优越感中阻止自己下降，从而无法上升。
+
+---
+
+## 在生活标准上降卑 / Going Down in Living Standards
 
 I'm going to give you another example, to be a Christian, you go down to repentance constantly. To be a Christian also, you go down in your living standards, let me get real practical about this. The Bible says, look at Jesus, though he was rich, he became poor, that through his poverty might become rich.
 
@@ -140,7 +190,35 @@ I work my fingers to the bone around this church and what thanks do I get. If th
 
 Lose your recognition and I'll give you another kind of honor. Lose your obsession with staying in control and I'll give you another kind of security. Lose your life and you'll find it.
 
-He came to sink and Christians are people who know that the way down is up and the way to go up is to go down. Secondly, he came to be hated. Now, remember, as I mentioned to you, he quotes in the New Testament, he quotes this verse.
+He came to sink and Christians are people who know that the way down is up and the way to go up is to go down.
+
+---
+
+我再举一个例子：成为一个基督徒意味着不断悔改；成为一个基督徒还意味着降低生活标准。让我们具体一点来说。
+
+圣经上说：“虽然耶稣富有，他却变贫穷了，为的是使我们因他的贫穷可以成为富足。” 圣经不断地告诉我们，基督徒是那些看到各种需要的人。你看到了有需要的人，看到了各种重要的事业，看到了教会的工作，看到了帮助人的事工。在你成为基督徒之前，在你明白这个原则之前，在基督耶稣里的这种服侍的精神和心态进入你之前，你只会给予你能负担的。
+
+现在你知道什么是“负担得起”吗？你的意思是说，只要我的捐赠不会降低我生活的实际标准，我就能够捐出钱来。换句话说，只要它不让我下降，只要它不影响我这个夏天能去哪些地方，只要它不影响我现在晚上出去吃饭有多少选择，只要它不改变我的生活水平。但耶稣不是这样做的。
+
+耶稣的生活标准发生了相当大的变化。当你成为基督徒时，你意识到你需要慷慨地给予，**这意味着，让我这样说吧：你是否把钱慷慨地捐给那些人和事业，以至于你的生活标准下降了？如果没有，你还不是一个仆人，是你对舒适生活的爱阻止了你下降，从而阻碍了你上升。**你可能知道浪子回头的故事，但这不仅仅是关于一个离家出走的弟弟。
+
+事实上，耶稣讲这个故事是想向那些远离上帝的人和那些试图通过做好事来赢得他爱的人说话。在《浪子的神》一书中，提摩太·凯勒展示了这个广为人知的故事揭示了福音的核心——一个对叛逆的弟弟和苛责的大哥都有希望的信息，并邀请所有人体验上帝无尽、慷慨的恩典。无论你是基督徒，还是仍在探索信仰，慈爱的天父都会帮助你以全新的视角看待与基督的关系。慈爱的天父是我们本月向福音和生命分享耶稣宽厚而不懈之爱的信息和喜悦的礼物。
+
+这就是今天你的赠礼，请访问 gospelandlife.com/give 获取。现在，让我们听听凯勒博士今天的教导。我再给你举一个例子。腓立比书2章提到，一个人在成为基督徒之前，在谦卑服侍的精神之前，在理解“下才是上”的原则之前，他可能会这样表现：只要得到感谢，只要获得肯定，只要有人认可你的付出，只要有人注意到你所做的一切，就很好。
+
+这是区分一个出于自私动机服务的人和真正不图回报的仆人之间的差异。你要甘愿失去名誉。你不为别人的感谢而活着，只是说你需要很多感谢吗？你是否总是因为觉得自己被忽视、没有得到应有的认可而感到不满？
+
+没有人知道你的辛苦工作？我在教会里辛勤耕耘，得到了什么回报呢？如果你有这种感觉，你还不是仆人，是你对认可的需求阻止了你往下走，从而无法向上。你看，神说：“失去你的财富，我将给你另一种富有。
+
+” 失去名声，我将给你另一种荣耀。失去控制的欲望，我将给你另一种安全感。失去生命，你会找到它。他来是为了受苦。
+
+基督徒知道"下才是上"，要上升就必须下降。
+
+---
+
+## 他来是为了无故被恨 / He Came to Be Hated Without Cause
+
+Secondly, he came to be hated. Now, remember, as I mentioned to you, he quotes in the New Testament, he quotes this verse.
 
 He doesn't quote the first couple of verses though. It's obvious that he's looking at all of this and he's thinking of himself. This is his language, this is his heart, but he quotes verse 4 where it says, those who hate me without reason out in number the hairs of my head, many of the enemies without cause.
 
@@ -162,7 +240,33 @@ If those people start coming in, it's going to sink down, you're going to ruin m
 
 What do I do? All I can tell you is not what these people did, but I can tell you is this, normal servanthood, normal, moral lives will bring you hatred without cause. Normal human living, normal moral behavior, normal Christian living is going to show up the racism in the neighborhood, it's going to show up the dishonesty at work, it's going to show up the gossip at the office, it's going to show up the promiscuity of the party and you will be hated with that cause, are you or you just blend into your surroundings?
 
-Does anybody hate you without cause? Then you're not following Jesus because servants sink and servants are hated with that cause. Number three, and the most important, Jesus Christ did not simply come to be a servant and come to be hated in a sense, that's the general gist of what it means to say he came as a servant, but he came very specifically to be exchanged.
+Does anybody hate you without cause? Then you're not following Jesus because servants sink and servants are hated with that cause.
+
+---
+
+其次，他来是为了被憎恨。记得我之前提到过，在新约中，他引用了这一节经文。他并没有引用前几节经文。
+
+很明显，他在看这一切时，想到的是自己。这是他的语言，这是他的心声，但他引用了第4节：“恨我的人比我头发的数目还多。”“许多没有理由恨我的仇敌。” 我刚才说过要简短，但这一点非常重要。
+
+在新约中，耶稣指出人们会无故地恨他。他们会出于非理性的原因恨他，因为他圣洁。人类心中有一种害怕真正圣洁的东西。几年前，有一部关于越南战争的电影上映了，讲述一个男人决定说出真相，即使这会危及他的生命、毁掉他的职业生涯，甚至会对他的生活产生巨大影响，但他还是坚持了下来。
+
+《纽约时报》的影评人文森特·卡贝指出这一点。他说：“无私的道德信念总是让一个人成为众矢之的，因为这种纯洁的精神对我们来说是完全可怕的。”他所说的正是我们心中有一种自我辩护的引擎，当我们接近一个表明自身缺点的神圣标准时，我们会逃避它或贬低它。我们会逃避它，或者贬低它。
+
+这不仅适用于任何人，任何过着正直生活、仆人般生活的人。现在当耶稣出现时，他的标准如此高，以至于人们无故地恨他。他没有无数的敌人，但我要告诉你，如果你和我想要跟随耶稣，如果你和我想要成为仆人，这就是仆人的标志。一个仆人总是会无故被憎恨。
+
+这里有几个例子。几年前，我的一位朋友在美国的一个大城市当警察。他成了基督徒。他在某方面遇到了麻烦，那就是辖区里的鸨母会进来给警长很多钱，然后警长再分发给所有警察，这样他们就不会抓那些把钱放进池子里的妓女了。
+
+我的朋友成为基督徒后，决定不再接受这笔钱。有一天，有人来找他说：“你最好开始收这个钱。” 这些人不喜欢他似乎认为自己比其他人更纯洁，并且告诉他如果继续不收钱，下次需要支援时可能会得不到帮助。我记得我在费城生活时与一个家庭交谈的情景。
+
+当第一个黑人家庭搬进那个白人社区时，他们作为基督徒前去拜访，带去了馅饼并友好地迎接了他们。但之后，其他白人邻居却对他们进行了无端的攻击和诋毁，并说：“我唯一的家就是我的房子，如果这些人开始进来，我的房子就会被破坏，你会毁了我的生活。” 你怎么能这样对我？后来有人来找我说，他成为基督徒后，如果如实申报收入并开始缴税，他的其他同事也会因为税务问题受到牵连。
+
+我只能告诉你，不是这些人的所作所为如何，我可以告诉你的是，正常的服侍、正常道德的生活会带来无端的仇恨。正常的日常生活、正常的道德行为、正常的基督徒生活会揭露社区中的种族主义、工作场所的不诚实、办公室里的流言蜚语以及聚会中的放纵，你会因此受到无端的憎恨，而不是融入周围的环境。有没有人因为无端的原因而恨你？那你就不是在跟随耶稣，因为仆人就是沉下去，并且因这种原因被憎恨。
+
+---
+
+## 他来是为了替代受苦 / He Came to Be Exchanged
+
+Number three, and the most important, Jesus Christ did not simply come to be a servant and come to be hated in a sense, that's the general gist of what it means to say he came as a servant, but he came very specifically to be exchanged.
 
 They put it to this way, in verse nine, now David, the guy who writes this song is very perplexed. He can't see what we can see, he can't read his own experience through Jesus. In verse nine, he says, Zeal for your house consumes me and the insults of those who insult you fall on me.
 
@@ -271,121 +375,6 @@ We hope that today's teaching encouraged you to go deeper into God's Word. You c
 The sermons and talks you hear on The Gospel and Life Podcast were recorded between 1989 and 2017, while Dr.
 
 ---
-
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到生命中的福音。耶稣是谁？圣经说他是全然的神，宇宙的创造者，同时又是全然的人。缺少其中任何一个方面，基督教就会失去其核心。
-
-今天，请和我们一起聆听提姆·凯勒探讨耶稣基督的身份与应许。现在，让我们一起诵读诗篇69章的一段经文： 拯救我吧，上帝！因为洪水已漫到我的脖子。我在深水中下沉，在无底深渊中找不到立足之地。
-
-我已经陷入深水之中，洪流将我淹没。我因呼求救援而疲惫不堪，喉咙干渴，双眼因寻找上帝而失明。恨我的人多如头上的头发；许多人都无缘无故地敌对我。他们寻求毁灭我。
-
-我被迫偿还我没有偷窃的东西。你，上帝啊，你知道我的愚昧和罪过，它们没有逃过你的视线。愿那些不敬畏你的人因为我的缘故蒙羞，主万军之神啊；愿那些寻找你的人因我的缘故蒙羞，以色列的上帝啊。因为我忍受了羞辱，耻辱遮盖了我的脸面。
-
-我成了兄弟眼中的外人，成了母亲儿女眼中的陌生人，因为我对你的圣殿充满热忱，那些侮辱你的人的侮辱也落在我身上。我在哀哭禁食时遭受羞辱，在披麻戴孝时被人取笑。坐在门口的人嘲笑我，我是醉鬼的歌谣。但我要向你祷告，主啊，在你恩典的时候，在你伟大的慈爱中，求你因着你的坚固拯救我。
-
-从泥泞中救拔我，不要让我沉沦。从恨我的人手中救我出来，从深水里救我出来。不要让洪水淹没我，不要让深渊吞没我，也不要让陷阱关闭它的口。主啊，在你慈爱的光中回答我吧！
-
-在你的大怜悯中转向我。不要隐藏你的脸，不要离弃你的仆人。快快应允我，因为我陷入困境。靠近我，拯救我；赎回我，因着我的仇敌的缘故。
-
-你知道我所受的羞辱、屈辱和耻辱。我的敌人全都在你面前。上帝已折断我的心，并使我无力。我寻求同情，却没有找到；寻求安慰的人，却找不到他们。
-
-他们在我食物中放了苦胆，在我渴时给我醋喝。愿设下的筵席成为他们的陷阱，愿它成为报应和网罗。这段经文出自《诗篇》69章，原文保持不变。愿他们的眼睛昏暗，看不见路；腰身弯曲，永远不能挺直。
-
-倾倒你的忿怒在他们身上，让他们的烈怒临到他们身上。愿他们在荒凉中居住，无人住在他们的帐篷里。因为他们虐待你所击伤的，谈论被你伤者的痛苦。要将罪孽归在他们身上，不要让他们与你的救恩同得其益。
-
-愿他们在生命册上被涂抹，不得列入义人的名册。我疼痛难忍，我的灵魂困苦，愿你的拯救保护我。我要用诗歌称谢耶和华的名，在神的圣殿中赞美他。我要在众民面前向耶和华还我的愿。
-
-贫穷人看见就要喜乐；寻求你的人，愿你们的心苏醒。耶和华听见穷人的呼求，并且怜恤他的困苦。愿天和地、海和其中一切的动物都称赞他！因为神要拯救锡安，重建犹大的城邑。
-
-那时人们必居住在里面，外人也要在那里耕种。儿女们将承受它；爱慕你名的人也要住在其中。这是耶和华的话。现在临近圣诞节了，如果你来到教堂，你会听到人们在思考一个问题：耶稣为什么来，并且会反思这个问题。
-
-耶稣为什么来？我们整个秋季都在研读旧约中的诗篇。当然，我会问你们：为什么我们要再看一次这些诗篇，从中找到有关耶稣的信息？刚刚读过的诗篇69篇，耶稣以一种有趣而显著的方式引用了它。
-
-在约翰福音15章中，他和他的门徒讨论到人们对他的反对和敌意。然后他在约翰福音15章25节说：“这是要应验经上的话。” 当它说他们恨我无故时，他引用诗篇69篇，这是什么意思？耶稣说：诗篇69篇当然由大卫所写，是关于大卫王和他的即刻问题以及那些恨他的人民。
-
-但其实它并不是只有一个视角，而是有两个视角，不只是一个参照点，而是有两个参照点。它不仅是指大卫和他的困境，更是指向一位比大卫更伟大的人——一位更伟大的战士、更伟大的君王，也是一位更为深重的受苦者。这诗篇所讲的是我。我们理解的意思是，并不是诗篇中的每一个部分都如此，但我们知道耶稣读过这首诗篇，一遍又一遍地读，从中找到了共鸣，理解了其中的语言正是在描述他将要经历的一切。
-
-如果你曾经有一个正遭受巨大痛苦的朋友，想象一下你发现她的日记本，你会不会去读？你知道，你会把它当作是神圣的东西来对待。或许你会犹豫是否应该拿起它，但一旦拿起，你会以极大的敬意来对待。现在，你就面对着上帝儿子的祈祷日记，以及他亲身表达的痛苦和为我们所受的苦难。
-
-从中学到的东西很多，但我们今天作为预备参加主餐的时候，只能看三个方面，从这首诗篇中了解到关于耶稣来做什么的信息。首先，他是来作仆人的；其次，是被人恨恶的；最后，是被交换的。这三个要点中，第一个最长，第二个最短，第三个最重要。首先是来作仆人。
-
-你注意，在第17节中，他说：“为什么将你的脸隐藏不向你的仆人？”在诗篇的开头，他说道：“我下沉了，主啊，求你拯救我，因为水已漫到我的颈项。” 我沉入血泊之中，没有立足之地。耶稣来做什么？
-
-他来就是下沉，这是第一个要点。他来作仆人，下沉。仆人的本分就是要下沉。我们在礼拜中早些时候读了腓立比书2章。
-
-这一章节完全讲的是耶稣作为仆人降卑的意义。现在有一本新书非常流行，书名是《降卑的恩典》，作者是一位牧师，这本书也是基于腓立比书2章。几年前，另一位著名的牧师唐纳德·格林·巴诺斯在布道时常常这样开头：上路就是下路；要下路就要上路。而这种说法背后的依据正是这一段经文——腓立比书2章。
-
-圣经说，耶稣基督来降卑是因为仆人就是这样做的。当你读到腓立比书2章时，你就会明白这一点。耶稣实际上走了两步很大的降卑之路。这就是作为仆人的意义，就是去降卑。
-
-他从天上降到地上。经文说：“虽然他在神面前是平等的，却甘愿放弃这种平等，取了奴仆的形象，成为人的样式。”当你想到道成肉身，神成为人，你必须抛开那种想法。那些圣诞卡片上睡在稻草上的可爱小耶稣，看起来就像是象牙肥皂广告。
-
-我知道你们读诗篇69时会理解这一点。你们必须明白道成肉身的暴力性。道成肉身是对耶稣的一种暴力行为。这是一种他自愿接受的暴力。
-
-让我们想一想。监禁有什么如此暴力的地方？监禁有什么如此使人失去人性和可怕之处？你失去了自由，失去了个人财产。
-
-几年前发生在纽约地区的一件事件是多么令人震惊啊！一个男人因为对一位美丽的模特生气而毁掉了她的容貌，这件事并非发生在纽约地区，但同样令人震惊。这里有一个美丽的人被剥夺了她的美貌。让我告诉你，道成肉身是从未发生过的最大剥夺。
-
-最美好的人中最美的一员，神的儿子，他的美被夺走，他被塑造成一个卑微的形象。他的财富也被剥夺，他陷入贫困之中。And他与父神之间的爱被剥夺，被抛入孤独。他的喜乐被剥夺，被抛入悲伤；他的力量被剥夺，被抛入软弱。
-
-你们明白道成肉身的暴力吗？神成为人。**这意味着什么？他曾是一颗细胞。**
-
-你知道，我们每次说他是圣灵怀胎而生时都在承认这一点。神成为了宇宙中最脆弱的生命形式。这是一种易受伤害的形式，一个细胞。然后他成了婴儿。
-
-他的手是无助地挥动着的小手，你看，现在无能为力。全能的宇宙主宰在弄脏自己后必须被改变。他无法自我改变。道成肉身的暴力使他沉沦。
-
-他来就是为了沉沦。他不只是从天堂降到地上——腓立比书第二章告诉我们，他走了两步。他不只是从天上来到人间。但一旦到了这里，他就从摇篮走向了十字架。
-
-他的任务、他的使命是在地球上受苦并被杀戮。在我们母腹中将我们缝合在一起的那位，在十字架上被拆散，他的肢体被撕裂。他沉沦了。你知道吗？
-
-耶稣基督是世上最直接、最坦率、也最伟大的对世界理解伟大性的反证。世界的理解是自我提升，不惜牺牲他人来促进自己的事业。追求财富和权力。只顾自己。
-
-而耶稣通过降卑的方式升到了高位，他教导我们的是谦卑的道路。通往权力的路是服务，统治的路是顺服。失去生命才能找到生命，寻找幸福不是为了寻求自己的幸福，而是为了别人的幸福。你知道一个基督徒是什么吗？
-
-一个基督徒是这样的人：在绝对与世间所有智慧相悖的情况下，他决定以此作为自己人生的模式。在我们继续之前，请大家想一想这一点。如果你是一个基督徒和仆人，当然仆人不应该比他的主人更高贵，那么你就是那位伟大仆人的仆人，显然**这意味着你已经决定了我的道路是向下的。**你们已经做出这个选择了没有？
-
-你们是否已经决定，我生命的本质是要下沉？让我举几个例子来说明什么是基督徒。例如，一个基督徒作为基督徒迈出的第一步、第一行动。换句话说，皈依本身。
-
-成为一个基督徒的最首要的事情就是：通过悔改而向上提升自己。你不会上升除非先下降。让我把话说得更直接一些。我知道在座有些人会说：“是的，我犯过错误，我不是完美的。
-
-” 但你们是否能够对他人和上帝说：“我是无助的罪人，应该被抛弃；即使是我由上帝创造，我也自认为自己是自己的创造者；即使上帝是我的王，我也自认为是自己的国王，我配不上任何东西。我是无助的罪人，需要救主和新的主人。” 能够说出这样的话吗？现在，这是纽约市，在这里有些人可能会认为这种想法是最原始、最落后的宗教观念。
-
-你们会说：“这太倒退了”，当然，这是一个向下的步骤。如果你觉得这太过原始，如果你们不能这样说，那么你们还没有成为仆人，而是在自己的智力优越感中阻止自己下降，从而无法上升。我再举一个例子：成为一个基督徒意味着不断悔改；成为一个基督徒还意味着降低生活标准。让我们具体一点来说。
-
-圣经上说：“虽然耶稣富有，他却变贫穷了，为的是使我们因他的贫穷可以成为富足。” 圣经不断地告诉我们，基督徒是那些看到各种需要的人。你看到了有需要的人，看到了各种重要的事业，看到了教会的工作，看到了帮助人的事工。在你成为基督徒之前，在你明白这个原则之前，在基督耶稣里的这种服侍的精神和心态进入你之前，你只会给予你能负担的。
-
-现在你知道什么是“负担得起”吗？你的意思是说，只要我的捐赠不会降低我生活的实际标准，我就能够捐出钱来。换句话说，只要它不让我下降，只要它不影响我这个夏天能去哪些地方，只要它不影响我现在晚上出去吃饭有多少选择，只要它不改变我的生活水平。但耶稣不是这样做的。
-
-耶稣的生活标准发生了相当大的变化。当你成为基督徒时，你意识到你需要慷慨地给予，**这意味着，让我这样说吧：你是否把钱慷慨地捐给那些人和事业，以至于你的生活标准下降了？如果没有，你还不是一个仆人，是你对舒适生活的爱阻止了你下降，从而阻碍了你上升。**你可能知道浪子回头的故事，但这不仅仅是关于一个离家出走的弟弟。
-
-事实上，耶稣讲这个故事是想向那些远离上帝的人和那些试图通过做好事来赢得他爱的人说话。在《浪子的神》一书中，提摩太·凯勒展示了这个广为人知的故事揭示了福音的核心——一个对叛逆的弟弟和苛责的大哥都有希望的信息，并邀请所有人体验上帝无尽、慷慨的恩典。无论你是基督徒，还是仍在探索信仰，慈爱的天父都会帮助你以全新的视角看待与基督的关系。慈爱的天父是我们本月向福音和生命分享耶稣宽厚而不懈之爱的信息和喜悦的礼物。
-
-这就是今天你的赠礼，请访问 gospelandlife.com/give 获取。现在，让我们听听凯勒博士今天的教导。我再给你举一个例子。腓立比书2章提到，一个人在成为基督徒之前，在谦卑服侍的精神之前，在理解“下才是上”的原则之前，他可能会这样表现：只要得到感谢，只要获得肯定，只要有人认可你的付出，只要有人注意到你所做的一切，就很好。
-
-这是区分一个出于自私动机服务的人和真正不图回报的仆人之间的差异。你要甘愿失去名誉。你不为别人的感谢而活着，只是说你需要很多感谢吗？你是否总是因为觉得自己被忽视、没有得到应有的认可而感到不满？
-
-没有人知道你的辛苦工作？我在教会里辛勤耕耘，得到了什么回报呢？如果你有这种感觉，你还不是仆人，是你对认可的需求阻止了你往下走，从而无法向上。你看，神说：“失去你的财富，我将给你另一种富有。
-
-” 失去名声，我将给你另一种荣耀。失去控制的欲望，我将给你另一种安全感。失去生命，你会找到它。他来是为了受苦。
-
-基督徒知道“下才是上”，要上升就必须下降。其次，他来是为了被憎恨。记得我之前提到过，在新约中，他引用了这一节经文。他并没有引用前几节经文。
-
-很明显，他在看这一切时，想到的是自己。这是他的语言，这是他的心声，但他引用了第4节：“恨我的人比我头发的数目还多。”“许多没有理由恨我的仇敌。” 我刚才说过要简短，但这一点非常重要。
-
-在新约中，耶稣指出人们会无故地恨他。他们会出于非理性的原因恨他，因为他圣洁。人类心中有一种害怕真正圣洁的东西。几年前，有一部关于越南战争的电影上映了，讲述一个男人决定说出真相，即使这会危及他的生命、毁掉他的职业生涯，甚至会对他的生活产生巨大影响，但他还是坚持了下来。
-
-《纽约时报》的影评人文森特·卡贝指出这一点。他说：“无私的道德信念总是让一个人成为众矢之的，因为这种纯洁的精神对我们来说是完全可怕的。”他所说的正是我们心中有一种自我辩护的引擎，当我们接近一个表明自身缺点的神圣标准时，我们会逃避它或贬低它。我们会逃避它，或者贬低它。
-
-这不仅适用于任何人，任何过着正直生活、仆人般生活的人。现在当耶稣出现时，他的标准如此高，以至于人们无故地恨他。他没有无数的敌人，但我要告诉你，如果你和我想要跟随耶稣，如果你和我想要成为仆人，这就是仆人的标志。一个仆人总是会无故被憎恨。
-
-这里有几个例子。几年前，我的一位朋友在美国的一个大城市当警察。他成了基督徒。他在某方面遇到了麻烦，那就是辖区里的鸨母会进来给警长很多钱，然后警长再分发给所有警察，这样他们就不会抓那些把钱放进池子里的妓女了。
-
-我的朋友成为基督徒后，决定不再接受这笔钱。有一天，有人来找他说：“你最好开始收这个钱。” 这些人不喜欢他似乎认为自己比其他人更纯洁，并且告诉他如果继续不收钱，下次需要支援时可能会得不到帮助。我记得我在费城生活时与一个家庭交谈的情景。
-
-当第一个黑人家庭搬进那个白人社区时，他们作为基督徒前去拜访，带去了馅饼并友好地迎接了他们。但之后，其他白人邻居却对他们进行了无端的攻击和诋毁，并说：“我唯一的家就是我的房子，如果这些人开始进来，我的房子就会被破坏，你会毁了我的生活。” 你怎么能这样对我？后来有人来找我说，他成为基督徒后，如果如实申报收入并开始缴税，他的其他同事也会因为税务问题受到牵连。
-
-我只能告诉你，不是这些人的所作所为如何，我可以告诉你的是，正常的服侍、正常道德的生活会带来无端的仇恨。正常的日常生活、正常的道德行为、正常的基督徒生活会揭露社区中的种族主义、工作场所的不诚实、办公室里的流言蜚语以及聚会中的放纵，你会因此受到无端的憎恨，而不是融入周围的环境。有没有人因为无端的原因而恨你？那你就不是在跟随耶稣，因为仆人就是沉下去，并且因这种原因被憎恨。
 
 第三点，也是最重要的一点，耶稣基督不仅仅来成为仆人并受到憎恨，虽然作为仆人的含义正是如此，但他非常具体地是来交换的。他们这样写道，在第九节，大卫——写下这首诗的那个人非常困惑。他看不到我们所看到的东西，无法通过耶稣来解读自己的经历。在第九节中，他说：“我为你的殿心里焦急，如同火烧，并且辱骂你的，就落在我身上。
 

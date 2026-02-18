@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel in Life. Why is the world so broken? And why are we capable of inflicting such harm even toward those we love?
 
 People point to politics, poverty, or psychology, but none of these fully explain what we see in ourselves and in history. This month on the podcast, Tim Keller is teaching from a series exploring the question, what's wrong with us? Knowing us how the Bible's teaching on sin offers the only explanation deep enough to face the truth in all its complexity, and the only hope powerfully enough to transform us.
@@ -31,6 +33,8 @@ You need an angry God. You need in your mind and in your heart a God that gets a
 You need an angry God to live with humility and you need an angry God to know how loved you are. And if you don't believe in an angry God, a really angry God who hates sin and is going to punish it, you're impoverishing yourself. You're taking away all sorts of hope and humility and love.
 
 That's what I'm here to tell you. And you know, you say, how does that work out? Well, okay, let's go.
+
+### Why You Need an Angry God for Hope
 
 First of all, and basically you just work right through the text on this. First of all, verses one to three tell us that you need an angry God, the biblical angry God, to live in hope. To be able to live in hope in a broken world.
 
@@ -66,7 +70,11 @@ Oh my work. That leads to intolerance and eventually the violence. What you real
 
 You have to believe that sin is in the eye of the beholder. You have to believe that sin is sort of a matter of perspective. This idea of a God of vengeance.
 
-That's going to lead to nothing but violence. Nothing but intolerance and violence. Well recently I read a book that is one of the most powerful refutations of that extremely common belief that we have to get beyond a God of vengeance if we're going to have a world of peace.
+That's going to lead to nothing but violence. Nothing but intolerance and violence.
+
+### Nonviolence Requires Divine Vengeance
+
+Well recently I read a book that is one of the most powerful refutations of that extremely common belief that we have to get beyond a God of vengeance if we're going to have a world of peace.
 
 Incredible book actually. In many ways, it's a book by written by Miroslav Wolf, whose Croatian and the name of the book is exclusion and embrace. And let me read you his thesis.
 

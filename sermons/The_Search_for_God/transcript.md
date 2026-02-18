@@ -82,6 +82,9 @@ The only intelligent way to find out how do I find God is to go to the Bible fir
 
 There's three things that we see here, not exactly three things. There's actually the same thing looked at more and more deeply. There's burning bush.
 
+### The Vision of Holiness
+
+
 At first, it's a distracting, disrupting site. At first, all it is to Moses is a disrupting site. When it gets closer, he sees it's an unmanageable power.
 
 And when it gets even closer, he sees there's a burning angel in the middle. And I would like to say to you, as you see each of these three, you are going to pass through the stages through which you have to go to find God. You have to see the same three things.
@@ -173,6 +176,9 @@ She was someone who never thought much about religion was an interested in relig
 And she was amazed. She said she had a number of bosses who would shift the blame to her. But she'd never had a boss who took the blame from her.
 
 And she was just astounded. And so she went and she thanked him, but then she kept pushing it. You know, why would you do that?
+
+### Encountering the Redeemer
+
 
 And that was awfully nice. Why would you do that? He tried to put her off a little bit and say, well, thank you.
 
@@ -267,6 +273,9 @@ It could be that you're in the very beginning. Something like this has come into
 Would you please turn aside? What does it mean to turn aside? If what if Moses had looked at his watch and said, I got to get the flock home by eight o'clock?
 
 You never would have heard of Moses. He never would have met God. Why?
+
+### The Path to More of God
+
 
 Because he was in ordinary life. He was just in the stream. You have to turn aside.
 
@@ -371,6 +380,9 @@ You don't even really want to know who I am. You've, you can't get to know me by
 I don't want to be narrow person. And what you're really saying is, I refuse to give to God the same deference I demand from anybody else who wants to get to know me. See, unless you take your shoes off from the beginning, that means unless you're willing to find a God who tells you things you don't want to hear and demands things that you don't want to do, you haven't even begun to search.
 
 You can't start the search objectively. And then hope that somehow we'll find a God. You've got to start up by saying, God, if you're there, I'm willing to agree that you may be holy.
+
+### Refined by Fire
+
 
 You may be fire. Now I said that and you say, wait a minute, if that's the case, oh my goodness, oh my goodness, oh my goodness, I don't want to God like that. But now the same God who says, stay back.
 

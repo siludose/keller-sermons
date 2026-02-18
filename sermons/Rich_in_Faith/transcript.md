@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 **Introduction:**
 
 Welcome to Gospel in Life. During January, we are inviting our listeners to consider becoming a Gospel in Life monthly partner. If you'd like to learn more, keep listening at the end of today's podcast for details.
@@ -23,6 +25,8 @@ If you commit adultery but do not commit murder, you have become a lawbreaker. H
 What good is it, my brothers, if a man claims to have faith but has no deeds? Can such a faith save him? Suppose a brother or sister is without clothes and daily food.
 
 If one of you says to him, go, I wish you well, keep warm and well fed, but does nothing about his physical needs, what good is it? In the same way, faith by itself, if it is not accompanied by action, is dead. This is God's Word.
+
+### The Eighth Commandment and Radical Generosity
 
 2. **The Eighth Commandment and Radical Generosity:**
 
@@ -62,6 +66,8 @@ Needing, human beings need to have a part of the world that is theirs to take ca
 
 But if that money is somebody else's and you're not generous with it, as the owner directs, it's robbery, it's embezzlement. And that's what we can say, a thief is no longer a thief when he's generous. That's when he stops being a thief, when he's radically generous.
 
+### Wealth, Possessions, and the Essence of Faith
+
 **Real Faith is Radically Generous:**
 
 Now, why spend another week on it? Because you know, the Bible is so full of this teaching, it's very, very, very difficult. A number of people said, why don't you get back and preach on sex again, and I will.
@@ -69,6 +75,8 @@ Now, why spend another week on it? Because you know, the Bible is so full of thi
 And yet, frankly, the Bible doesn't say as much about sex as it does about money. In fact, the entire gospel of Luke is almost about money. And the thing we're going to talk about today is a very important principle that we see here and it's throughout scripture, and that is, your attitude toward your wealth and your possessions is not an incidental or a peripheral or an optional issue.
 
 It's at the very essence of what faith is, and it's at the heart of what it is to be a Christian. It's not like, well, I can be a Christian and then what I do with my wealth and possessions is something I'll get to someday. This passage tells us, and the Bible tells us, that your attitude toward wealth and possessions is of the essence of faith, it's at the heart of being a Christian.
+
+### Persecution, Materialism, and the Early Church
 
 Recently I was talking to somebody, a friend of mine from England, called me and he said, pray for me. He called me a week ago. He says, I'm going to Romania.
 
@@ -104,6 +112,8 @@ They stand out. How do we do? How do we do?
 
 Do we stand out? Is the world marveling? Look, this particular passage we read, it's a long passage, very involved, and I just want to point out three important things that this passage teaches along the lines of what we've already been saying.
 
+### Three Marks of Real Faith
+
 This passage says, the way you can tell real faith, the way you can tell true saving faith, is that it inevitably leads to radical generosity. In fact, this passage says, real faith, not nominal faith, not just a claim or profession of Christianity, not just an emotional experience of Christianity, but real faith has three characteristics. It's radically generous, it's radically gracious, and it's radically practical.
 
 Those three things. Now, let's just take a look at them. Most of you usually get those three things written down on your sheet in the bullet, and they're not there.
@@ -115,6 +125,8 @@ I'm looking at these verses. He can act as those who are going to be judged by t
 And then it goes on in verse 14, and says, what good is it, my brothers, if a man claims to have faith but has no deeds? Can that faith save him? How do you know the difference between saving faith and just emotional or lip service?
 
 The answer is radical generosity. And it says, on judgment day, the way we can tell people who have got real faith is by their mercy. There will be judgment without mercy for those who have shown no mercy.
+
+### The Biblical Meaning of Mercy
 
 Now the word mercy is interesting here. In the New Testament, mercy can have a broader and a more specific meaning. It can have a broader meaning and a specialized meaning.
 
@@ -155,6 +167,8 @@ Paul never says we walk by faith, not by thinking, because faith and reason, fai
 When we put our faith in them, deep down, we know they can't satisfy our deepest longings. The truth is that we've made lesser gods of good things, things that can't give us what we really need. In his book, Counterfeit Gods, The Empty Promises of Money, Sex and Power and the Only Hope That Matters, Tim Keller shows us how a proper understanding of the Bible reveals the truth about societal ideals and our own hearts and shows us that there is only one God who can wholly satisfy our desires.
 
 This month, we'll send you Counterfeit Gods as our thank you for your gift to help Gospel & Life share the love of Christ with people all over the world. You can request your copy at gospelandlife.com slash give. That's gospelandlife.com slash give.
+
+### Walking by Faith, Not by Sight
 
 Now here's Dr. Keller with the rest of today's teaching. Let me give you a couple of illustrations.
 
@@ -246,7 +260,9 @@ You look at things and you say, wait a minute, look, if you have an opportunity 
 
 Are you looking at the ways or are you looking at Jesus? Are you walking by faith or by sight? Don't you see that the essence of faith is to be controlled by who God is and that will show itself up in your attitude toward your money and toward your possessions and toward things.
 
-Real faith is radically generous. That's the main thing that the Bible, this passage teaches. **Real Faith is Radically Gracious:**
+Real faith is radically generous. That's the main thing that the Bible, this passage teaches.
+
+**Real Faith is Radically Gracious:**
 
 The other two things I can be briefer about, number one.
 
@@ -308,7 +324,9 @@ My pride, my bad habits, my sins will all fall before his triumphant love. Becau
 
 Because he loves me. And anybody who's grabbed that becomes gracious to people around. Absolutely gracious.
 
-Absolutely. **Real Faith is Radically Practical:**
+Absolutely.
+
+**Real Faith is Radically Practical:**
 
 Last thing. Real faith is radically practical.
 

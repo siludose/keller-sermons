@@ -6,7 +6,7 @@
 
 ---
 
-## 引言：主祷文是一切问题的答案
+## 引言：主祷文是一切问题的答案 / Introduction: The Lord's Prayer Contains All Answers
 
 Welcome to Gospel in Life. In a world that leaves us exhausted, distracted, and searching for meaning, Jesus gives us the Lord's Prayer as a guide to true connection with God. Join us today as Tim Keller shows us why the Lord's Prayer isn't just a ritual to recite, but a pathway to deeper communion with God. On earth as it is in heaven, give us today our daily bread. Forgive us our debts, as we also have forgiven our debtors. And lead us not into temptation, but deliver us from the evil one. For if you forgive men when they sin against you, your heavenly Father will also forgive you.
 
@@ -15,8 +15,6 @@ But if you do not forgive men their sins, your Father will not forgive your sin.
 Those of you who know me realize that I've got a cynical streak in me that I've got to always keep under control. I don't tend to believe in large claims. I don't tend to believe testimonies. I've got a cynical streak in me.
 
 And yet I can say to you now, without any rather, without any reservations at all, that all of the answers to all of your problems, when they're rightly understood, are here. They're all in here. The answers to all of your problems, if you rightly understand them, are in the Lord's Prayer. If you would simply do what Jesus tells you to do, here. That's it.
-
-That's the answer. And that's from a cynic. Think of the wonder of that. And look, here, just remember, let's, because every week we're looking at a particular aspect of prayer, it's helpful occasionally, or at least in the beginning, to always give ourselves an overview and look at the theme. We said last week, and I'll repeat this, prayer is a healing process in which the heart is brought back into its true orbit. That is, to center on and worship and glorify God. If a satellite goes out of its true orbit, it might get too close to the atmosphere and begin to burn up, or it might come too close to the sun, and begin to burn up.
 
 ---
 
@@ -33,15 +31,15 @@ That's the answer. And that's from a cynic. Think of the wonder of that. And loo
 
 ---
 
-## 祷告是让心灵回归正确轨道
+## 祷告是让心灵回归正确轨道 / Prayer: Getting the Heart Back on Track
+
+That's the answer. And that's from a cynic. Think of the wonder of that. And look, here, just remember, let's, because every week we're looking at a particular aspect of prayer, it's helpful occasionally, or at least in the beginning, to always give ourselves an overview and look at the theme. We said last week, and I'll repeat this, prayer is a healing process in which the heart is brought back into its true orbit. That is, to center on and worship and glorify God. If a satellite goes out of its true orbit, it might get too close to the atmosphere and begin to burn up, or it might come too close to the sun, and begin to burn up.
 
 And the Bible says, literally, that's the reason all of us are burning out, if we are. We're burning out if we center on anything besides Him. If we center on anything or on our ego, we burn out.
 
 But prayer is healing the heart, bringing it back into its true orbit. Or, put another way, prayer, the Lord's Prayer is a vision of a whole new life, and it will not work for you until you see it as such. Did you hear that?
 
 The Lord's Prayer is actually a vision for a whole new kind of life, and it will not work for you until you see it as such. What is that vision?
-
-Well, the vision goes like this, that would have a life of such full-hearted response to the heavenly love of God, the fatherly love of God, that we would live, first of all, in complete peace, because we totally trust in Him for our daily bread, our daily needs. And secondly, we would also live with happy submission, glad anticipation. We would joyfully see God's loving purpose in everything that happens to us. I will be done, which we'll look at next week. And we would know tremendous freedom and power, because our conscience would always be totally clear. And all relationships would be perfect, because we are not only feeling forgiven by God, but we are forgiving. A life of absolute peace, a life of tremendous clarity, a life of total power and freedom, a life of high beauty.
 
 ---
 
@@ -55,15 +53,11 @@ Well, the vision goes like this, that would have a life of such full-hearted res
 
 ---
 
-## 全新生命的异象
+## 全新生命的异象 / A Vision of a Whole New Life
+
+Well, the vision goes like this, that would have a life of such full-hearted response to the heavenly love of God, the fatherly love of God, that we would live, first of all, in complete peace, because we totally trust in Him for our daily bread, our daily needs. And secondly, we would also live with happy submission, glad anticipation. We would joyfully see God's loving purpose in everything that happens to us. I will be done, which we'll look at next week. And we would know tremendous freedom and power, because our conscience would always be totally clear. And all relationships would be perfect, because we are not only feeling forgiven by God, but we are forgiving. A life of absolute peace, a life of tremendous clarity, a life of total power and freedom, a life of high beauty.
 
 That's the vision of the Lord's Prayer, a life that revolves around God. So the Lord's Prayer is not just a little how-to. It is a how-to manual on prayer, but it's a vision of a whole new life.
-
-So we come back to the central thing. Since prayer essentially is centering on God, it's essentially adoration. And we said everything starts with adoration, and everything has to be understood as flowing. When you ask for things, when you confess your sins, when you do anything else in prayer, it has to flow out of adoration. We said that it's so important to see that.
-
-I know personally that I have to constantly pull myself up. I've got to do this all the time. I run into God, and I sit down, and I start to say, God, you've got to help me. And I run right away to requests and asking instead of doing what Jesus says in the prayer, which is to sit down and to collect yourself. Collect yourself.
-
-And then say, Oh Lord, I remember and I rejoice in Your fatherly love and Your heavenly power. And I realize now, and I rejoice in the fact that You are more want to give me things than I am to ask for them. You are, as the Anglican Prayer Book says, He is want to give us more than we desire or deserve, and He has the power to do that. And as you adore, then you turn and you actually feel the fear and the anxiety and the resentment draining out your back. Like somebody came in and lanced a boil or lanced a sore. You feel the pus just coming out as you say, Lord, forgive me for forgetting your wisdom. Forgive me for forgetting your power.
 
 ---
 
@@ -73,23 +67,13 @@ And then say, Oh Lord, I remember and I rejoice in Your fatherly love and Your h
 
 ---
 
-## 一切始于敬拜赞美
+## 一切始于敬拜赞美 / It All Starts with Adoration
 
-And then you begin to just let your needs be known with quiet power. The Lord's Prayer is a process that if you obey it, if you discipline yourself according to it, you pass into a whole new way of life. Now, I think I mentioned last week that basically you can think of prayer in terms of three A's. That is, adoration or praise, admitting or confession of sin, repentance, and asking, which is petition or request. And even though the outline in the bulletin looks like I was going to hit on admitting and asking, I can't get to asking today. We're going to have to get to it next week. And today we're going to talk about admitting.
+So we come back to the central thing. Since prayer essentially is centering on God, it's essentially adoration. And we said everything starts with adoration, and everything has to be understood as flowing. When you ask for things, when you confess your sins, when you do anything else in prayer, it has to flow out of adoration. We said that it's so important to see that.
 
-But let me reiterate in the beginning, and I'll come back to end. If your repentance, if your admitting doesn't flow out of adoration, if your asking doesn't flow out of adoration, you're stuck. In fact, you're worse than stuck. If your repentance doesn't flow out of adoration of the Father, it will not only not deal with your guilt, it will make it worse. Do you hear me?
+I know personally that I have to constantly pull myself up. I've got to do this all the time. I run into God, and I sit down, and I start to say, God, you've got to help me. And I run right away to requests and asking instead of doing what Jesus says in the prayer, which is to sit down and to collect yourself. Collect yourself.
 
-If your repentance doesn't flow out of adoration of the Father, it will not just not deal with your guilt, it will make it worse. Your requests do not flow out of adoration of the Father. They will not only not deal with your anxiety, they'll make it worse. Because when you pray to God for your needs, that's supposed to get rid of anxiety. And when you confess your sins to God, it's supposed to get rid of your guilt.
-
-But I know from experience, and so do you, that praying over your sins can make you feel more guilty and praying about your needs can make you feel more anxious. Why?
-
-Because we don't fit into the Lord's Prayer, which is the perfect and ultimate and infallible model for this new kind of life and for prayer itself. And today we'll only talk about admitting, confession, repentance, and how Jesus Christ, in the context of the Lord's Prayer, tells us we should do it. And I just want to show you that Jesus teaches an awful lot in the Lord's Prayer about repenting and about confessing your sins before God.
-
-The first thing... Listen, let's deal with it under these headings. Number one, why do it?
-
-Second, the reason for repentance. I know they're not the headings in the bulletin. I changed my mind. I'm sorry. Okay?
-
-Repentance. Why?
+And then say, Oh Lord, I remember and I rejoice in Your fatherly love and Your heavenly power. And I realize now, and I rejoice in the fact that You are more want to give me things than I am to ask for them. You are, as the Anglican Prayer Book says, He is want to give us more than we desire or deserve, and He has the power to do that. And as you adore, then you turn and you actually feel the fear and the anxiety and the resentment draining out your back. Like somebody came in and lanced a boil or lanced a sore. You feel the pus just coming out as you say, Lord, forgive me for forgetting your wisdom. Forgive me for forgetting your power.
 
 ---
 
@@ -103,17 +87,15 @@ Repentance. Why?
 
 ---
 
-## 悔改必须从敬拜赞美中流出
+## 悔改必须从敬拜赞美中流出 / Repentance Must Flow from Adoration
 
-What's the reason for it? Surely some people out there, thoughtful, reflective, and sensitive people would say, isn't telling people to confess their sins and repent of their sins every time they pray, isn't that dangerous?
+And then you begin to just let your needs be known with quiet power. The Lord's Prayer is a process that if you obey it, if you discipline yourself according to it, you pass into a whole new way of life. Now, I think I mentioned last week that basically you can think of prayer in terms of three A's. That is, adoration or praise, admitting or confession of sin, repentance, and asking, which is petition or request. And even though the outline in the bulletin looks like I was going to hit on admitting and asking, I can't get to asking today. We're going to have to get to it next week. And today we're going to talk about admitting.
 
-Isn't that emotionally and psychologically dangerous? Aren't people already weighed down with their own guilt?
+But let me reiterate in the beginning, and I'll come back to end. If your repentance, if your admitting doesn't flow out of adoration, if your asking doesn't flow out of adoration, you're stuck. In fact, you're worse than stuck. If your repentance doesn't flow out of adoration of the Father, it will not only not deal with your guilt, it will make it worse. Do you hear me?
 
-Aren't people already full of self-loathing and self-hatred? Isn't this just going to make it worse?
+If your repentance doesn't flow out of adoration of the Father, it will not just not deal with your guilt, it will make it worse. Your requests do not flow out of adoration of the Father. They will not only not deal with your anxiety, they'll make it worse. Because when you pray to God for your needs, that's supposed to get rid of anxiety. And when you confess your sins to God, it's supposed to get rid of your guilt.
 
-To tell people they have to go to God and confess their sins all the time? Well, let me ask you. Let me ask you. You're thinking, people. You are.
-
-Let me ask you. How else do you deal with guilt?
+But I know from experience, and so do you, that praying over your sins can make you feel more guilty and praying about your needs can make you feel more anxious. Why?
 
 ---
 
@@ -127,21 +109,31 @@ Let me ask you. How else do you deal with guilt?
 
 ---
 
-## 为什么必须悔改？
+## 为什么必须悔改？ / Why Must We Repent?
+
+Because we don't fit into the Lord's Prayer, which is the perfect and ultimate and infallible model for this new kind of life and for prayer itself. And today we'll only talk about admitting, confession, repentance, and how Jesus Christ, in the context of the Lord's Prayer, tells us we should do it. And I just want to show you that Jesus teaches an awful lot in the Lord's Prayer about repenting and about confessing your sins before God.
+
+The first thing... Listen, let's deal with it under these headings. Number one, why do it?
+
+Second, the reason for repentance. I know they're not the headings in the bulletin. I changed my mind. I'm sorry. Okay?
+
+Repentance. Why?
+
+What's the reason for it? Surely some people out there, thoughtful, reflective, and sensitive people would say, isn't telling people to confess their sins and repent of their sins every time they pray, isn't that dangerous?
+
+Isn't that emotionally and psychologically dangerous? Aren't people already weighed down with their own guilt?
+
+Aren't people already full of self-loathing and self-hatred? Isn't this just going to make it worse?
+
+To tell people they have to go to God and confess their sins all the time? Well, let me ask you. Let me ask you. You're thinking, people. You are.
+
+Let me ask you. How else do you deal with guilt?
 
 Guilt is unavoidable. And I would like to propose to you that there is no way to deal with guilt except to go to God and be religious. There is no other way other than religion to deal with guilt. No way.
 
 There is no other way to deal inside religion with guilt except repentance. No way. A pastor friend of mine once was absolutely astonished when a psychiatrist approached him and asked him to go into practice together in the counseling. And my pastor friend said, why?
 
 I have no training in counseling at all. Not at all. This is a psychiatrist. He was not a Christian. And he said he wasn't a Christian. Not only that, he wasn't religious.
-
-And that really amazed the pastor. He said, well, why?
-
-Why would you want me? And here's what he said, quote, I'm finding that many, if not most of my patients need a priest more than they need a doctor. Because what they're dealing with is guilt. And they're all tied up over moral issues and God.
-
-Now, here's why he had to say that. He was smart and right. The key to dealing with guilt is to determine the difference between true guilt and false guilt. Right?
-
-That would have to be it. Because, you see, if guilt is false guilt, then you argue with the person. You say, cut it out.
 
 ---
 
@@ -173,7 +165,15 @@ That would have to be it. Because, you see, if guilt is false guilt, then you ar
 
 ---
 
-## 罪疚感只能在神面前解决
+## 罪疚感只能在神面前解决 / Guilt Can Only Be Resolved Before God
+
+And that really amazed the pastor. He said, well, why?
+
+Why would you want me? And here's what he said, quote, I'm finding that many, if not most of my patients need a priest more than they need a doctor. Because what they're dealing with is guilt. And they're all tied up over moral issues and God.
+
+Now, here's why he had to say that. He was smart and right. The key to dealing with guilt is to determine the difference between true guilt and false guilt. Right?
+
+That would have to be it. Because, you see, if guilt is false guilt, then you argue with the person. You say, cut it out.
 
 There's nothing wrong with what's going on here. You argue with the person and you argue lovingly with the person. And you show them that they're feeling guilty in inappropriate ways and they shouldn't do that.
 
@@ -198,16 +198,6 @@ It's making real. It's to end the denial. It's to admit those things which, if y
 And then go to the only possible person that could deal with 's God. The only possible person. You can't deal with it yourself. A good counselor can make it, a good counselor can bring it up and make it, make it helpful for you to see.
 
 But then in the end, they can't actually determine its validity unless you immediately jump out of the area of scientific psychology into the area of religion. You know, I think I may have mentioned this before. Becky Pippert, in her book, tells about how she was auditing a class at Harvard University in the School of Counseling. And a professor was saying, now here's how you help a man. He was giving a case study.
-
-Here's how you help a man surface the fact that he's angry at all, as all get out about his mother. That he hates his mother. He's hostile to his mother. He's angry at her. And he feels guilty for the way he's treated her. And he shows how you can surface that.
-
-And then somebody, I think Becky Pippert herself, the Christian writer, raised her hand and says, okay, what if he comes back and says, oh, doctor, this was very helpful to see that. And that's very enlightening and very important. And yet, I still... It doesn't seem to be helpful. I need more help. Because now that I see how angry I am at her, how do I forgive her?
-
-And now that I see how guilty I am for what I've done, and she won't forgive me, how do I overcome the guilt? In other words, how do I forgive, and how do I be forgiving?
-
-And the professor said, there's no way I'd know what to say. In fact, the professor literally said to Becky, I said, I would say to that man, lots of luck. And then what happened, well, the students started saying, but I thought the whole purpose of counseling was to... was to give people a cure. And the professor turned around and said, listen, there's only so far you can go, and what we've done is very helpful, but in the end, if you're looking for a changed heart, he said, and I'm quoting, you're looking in the wrong department. That's true. That's fair.
-
-So the question is, why repent? Is it unhealthy?
 
 ---
 
@@ -249,23 +239,23 @@ So the question is, why repent? Is it unhealthy?
 
 ---
 
-## 卓别林与球和链：我们无法自我拯救
+## 卓别林与球和链：我们无法自我拯救 / Chaplin and the Ball and Chain: We Cannot Save Ourselves
+
+Here's how you help a man surface the fact that he's angry at all, as all get out about his mother. That he hates his mother. He's hostile to his mother. He's angry at her. And he feels guilty for the way he's treated her. And he shows how you can surface that.
+
+And then somebody, I think Becky Pippert herself, the Christian writer, raised her hand and says, okay, what if he comes back and says, oh, doctor, this was very helpful to see that. And that's very enlightening and very important. And yet, I still... It doesn't seem to be helpful. I need more help. Because now that I see how angry I am at her, how do I forgive her?
+
+And now that I see how guilty I am for what I've done, and she won't forgive me, how do I overcome the guilt? In other words, how do I forgive, and how do I be forgiving?
+
+And the professor said, there's no way I'd know what to say. In fact, the professor literally said to Becky, I said, I would say to that man, lots of luck. And then what happened, well, the students started saying, but I thought the whole purpose of counseling was to... was to give people a cure. And the professor turned around and said, listen, there's only so far you can go, and what we've done is very helpful, but in the end, if you're looking for a changed heart, he said, and I'm quoting, you're looking in the wrong department. That's true. That's fair.
+
+So the question is, why repent? Is it unhealthy?
 
 Absolutely not. You know, Charles Chaplin, in the one... one of his great silent films, there's this great place where he's a... he's a prisoner, so he's got a ball and a chain on his foot, his leg, and he is shipwrecked on an island, and he says, here's my chance to escape. What he's going to do, what he has to do, but he has to deal with a ball and a chain.
 
 So the first thing you see him doing is you see him telling jokes to it. Tells a lot of jokes and tries to get it laughing, and then he tries to run away and immediately, wham, falls down, because, you know, the ball won't let him go. So he comes on back, he says, this time he'll fool it, so you see him, you know, you can just imagine Charles sort of whistling and acting like, maybe it may be... if he's not watching, maybe I can fool him.
 
 And then suddenly he runs, and of course, wham, falls down immediately, because the ball won't budge. Then finally we see him burying the ball. He just takes the sand, and he just starts to bury it. And he puts it down so he can't see it. Says, that will do it.
-
-And then he tries to run away, and wham, he falls down again, and it's only after this very funny and excellent little scene, at the end of it, he suddenly starts to realize, I can't escape. I have to be rescued. I can't escape. And he starts to look for a shift. And listen, that's... I see my... Do you see yourself in that?
-
-You see, you can spend a lot of time blaming other people for your problems and your sin. And you might go through another phase in which you justify and rationalize it. And you might go through another phase in which you analyze it, another phase in which you deny it.
-
-But in the end, unless you go to the only one who can deal with it, analysis won't work, even though it's helpful, it only goes so far. Ignoring it certainly won't work, and denying it, until you go to the only one that can deal with it, you're still chained to it. The only escape is rescue. In Greek, it means salvation, deliverance. Why repent?
-
-Because there's absolutely no other way, emotionally or spiritually, to get freedom. And I proved it, I hope, as much as I possibly could. There it is.
-
-Now, number one. Number two. Jesus Christ teaches us here also the motivation for repentance.
 
 ---
 
@@ -287,21 +277,23 @@ Now, number one. Number two. Jesus Christ teaches us here also the motivation fo
 
 ---
 
-## 悔改的动力：爱而非惧怕
+## 悔改的动力：爱而非惧怕 / The Motivation for Repentance: Love, Not Fear
+
+And then he tries to run away, and wham, he falls down again, and it's only after this very funny and excellent little scene, at the end of it, he suddenly starts to realize, I can't escape. I have to be rescued. I can't escape. And he starts to look for a shift. And listen, that's... I see my... Do you see yourself in that?
+
+You see, you can spend a lot of time blaming other people for your problems and your sin. And you might go through another phase in which you justify and rationalize it. And you might go through another phase in which you analyze it, another phase in which you deny it.
+
+But in the end, unless you go to the only one who can deal with it, analysis won't work, even though it's helpful, it only goes so far. Ignoring it certainly won't work, and denying it, until you go to the only one that can deal with it, you're still chained to it. The only escape is rescue. In Greek, it means salvation, deliverance. Why repent?
+
+Because there's absolutely no other way, emotionally or spiritually, to get freedom. And I proved it, I hope, as much as I possibly could. There it is.
+
+Now, number one. Number two. Jesus Christ teaches us here also the motivation for repentance.
 
 Now, the word motivation has in it a little word from which we get the word motor. And I would suggest to have to ask ourselves, what drives your repentance?
 
 What is the motor? What is the dynamic?
 
 What is the thing that drives your repentance? The reason we ask that is because Paul, in 2 Corinthians 7, says this. Godly repentance leads to deliverance and leaves no regret, but worldly sorrow brings death. This is a frightening verse. Do you know why?
-
-Paul tells us there's two ways to be repenting of your sin. And there's a certain way that brings freedom, and brings healing, and brings sweetness, and brings zeal and increased strength. And there's another way to be sorrowful about your wrongdoing that has to do with your sin. And there's another way to be sorrowful about your wrongdoing that actually leads to psychological and maybe even physical death. And they look alike.
-
-Now, here's the question. How do you know whether when you repent, or when you are repenting, how do you know whether it's healthy, spiritually liberating, or whether it's just a function of, an expression of, an unhealthy self-hatred, an overactive conscience that's full of unrealistic and unfair and unnecessary standards that have been put in there by your parents, or by your peer group, or by your culture?
-
-How do you know, in other words, whether your repentance is liberating you or killing you? And the answer, Jesus Christ tells us, is it flows out of adoration. Real repentance comes after Our Father who art in heaven, hallowed be thy name. Thy kingdom come, thy will be done, on earth as it is in heaven. You do not get the confession until you are firmly, until you are grasping, until you're looking at the dying love of Jesus Christ, who enables us to not see God as just a king, but as a father.
-
-Let me put it this way. A man some years ago named Stephen Sharnock, a great minister, wrote this 350 years ago. So I'm going to paraphrase it and get a lot of the archaic language out of it. He tries to explain the difference between what he would call legalistic repentance or conviction of sin and godly. And listen to this. A legalistic conviction of sin arises from a consideration of God's love for us. It's a consideration of God's justice.
 
 ---
 
@@ -326,23 +318,19 @@ Let me put it this way. A man some years ago named Stephen Sharnock, a great min
 
 ---
 
-## 律法主义的悔改与福音的悔改
+## 律法主义的悔改与福音的悔改 / Legalistic Repentance vs. Gospel Repentance
+
+Paul tells us there's two ways to be repenting of your sin. And there's a certain way that brings freedom, and brings healing, and brings sweetness, and brings zeal and increased strength. And there's another way to be sorrowful about your wrongdoing that has to do with your sin. And there's another way to be sorrowful about your wrongdoing that actually leads to psychological and maybe even physical death. And they look alike.
+
+Now, here's the question. How do you know whether when you repent, or when you are repenting, how do you know whether it's healthy, spiritually liberating, or whether it's just a function of, an expression of, an unhealthy self-hatred, an overactive conscience that's full of unrealistic and unfair and unnecessary standards that have been put in there by your parents, or by your peer group, or by your culture?
+
+How do you know, in other words, whether your repentance is liberating you or killing you? And the answer, Jesus Christ tells us, is it flows out of adoration. Real repentance comes after Our Father who art in heaven, hallowed be thy name. Thy kingdom come, thy will be done, on earth as it is in heaven. You do not get the confession until you are firmly, until you are grasping, until you're looking at the dying love of Jesus Christ, who enables us to not see God as just a king, but as a father.
+
+Let me put it this way. A man some years ago named Stephen Sharnock, a great minister, wrote this 350 years ago. So I'm going to paraphrase it and get a lot of the archaic language out of it. He tries to explain the difference between what he would call legalistic repentance or conviction of sin and godly. And listen to this. A legalistic conviction of sin arises from a consideration of God's love for us. It's a consideration of God's justice.
 
 But godly repentance flows chiefly from a sense of God's love. A legalistic repentant cries out, I have provoked the sovereign God who can tear up the rocks and the trees. But the godly repentant cries, I have spurned a loving goodness which is as sweet and as tender as the dropping of the dew. I have turned on a God who is a tender father. You see?
 
 Oh, this is my heart made of coal iron or marble to treat Him like this? Godly repentance. He finds his misery coming from the mercy of God. What a fool, says the godly repentant to his heart, to rush into a river of brimstone through a sea of goodness, to turn from such a sweet fountain to rake in the mud puddles. Did you hear that?
-
-He says, godly repentance is moved by a sight of a tender, loving, heavenly father. In other words, real repentance has to come from a rejoicing in the goodness, the acceptance, and the love of God. When you look at what He's done for you, and when you look at His love, that makes you feel bad about your sin, yeah, but in a cleansing way, because it's the very certainty of His love that drives your repentance. It's the very fact of His acceptance and of His love that makes you say, how can I do this to someone like that?
-
-And so instead of it making you feel worse about yourself, it makes you hate the habit. It makes you hate the wrongdoing. It makes you want to get rid of it for His sake.
-
-There is a big difference, and that's the reason why Sharnock can say, you see, a legalistic conviction of sin arises chiefly from a sense of God's love, from a sense of God's justice. I have provoked the sovereign God who can tear up the rocks and the trees, but a godly repentance says, I have spurned the love of the Father. You see, when you look, I can put it like this.
-
-I can put it like this. I'll tell you how I deal with my own heart, how I have to do. You look at Jesus dying, and you see on the one hand, that's serious. That shows that what I have done wrong is serious, or God would not have gone to that length. The things that I'm doing that are wrong are really wrong.
-
-But at the very same moment, I say, the very act of dying on the cross, at the same moment that it shows me how serious my sin is, also, also guarantees and shows me without a doubt that he accepts and loves me. And you know, that's a hard thing for the human ego to accept. The human ego wants to say, look, if I've done well, then I don't mind you accepting me.
-
-But if I've done poorly, I want you to just walk all over me. That's the way your ego works. Because you were born under a covenant of works, the Bible says. You were born in a situation where you know intrinsically we ought to do right. The gospel comes and says, yes, what you've done is wrong, and I love, and I accept you. And the ego doesn't like that, and it has to be shown that. I have to look at the cross, and I see here's Jesus dying.
 
 ---
 
@@ -360,15 +348,11 @@ But if I've done poorly, I want you to just walk all over me. That's the way you
 
 ---
 
-## 十字架：同时显明罪的严重与神的接纳
+## 十字架：同时显明罪的严重与神的接纳 / The Cross: Revealing Both Sin's Gravity and God's Acceptance
 
-Why did Jesus die so poorly? I often think about that. He did die poorly.
+He says, godly repentance is moved by a sight of a tender, loving, heavenly father. In other words, real repentance has to come from a rejoicing in the goodness, the acceptance, and the love of God. When you look at what He's done for you, and when you look at His love, that makes you feel bad about your sin, yeah, but in a cleansing way, because it's the very certainty of His love that drives your repentance. It's the very fact of His acceptance and of His love that makes you say, how can I do this to someone like that?
 
-There's a lot of people that went to the stake. They went to the firing squad. There are people who went singing hymns. They went rejoicing. Do you see Jesus doing that?
-
-Do you see Jesus say, oh, I'm just praising the Lord on the way to the cross? Do you see him rejoicing?
-
-Absolutely not. You see him in a bloody sweat. You see blood coming out of his pores.
+And so instead of it making you feel worse about yourself, it makes you hate the habit. It makes you hate the wrongdoing. It makes you want to get rid of it for His sake.
 
 ---
 
@@ -380,19 +364,27 @@ Absolutely not. You see him in a bloody sweat. You see blood coming out of his p
 
 ---
 
-## 耶稣为何"死得如此艰难"？
+## 耶稣为何"死得如此艰难"？ / Why Did Jesus "Die So Poorly"?
+
+There is a big difference, and that's the reason why Sharnock can say, you see, a legalistic conviction of sin arises chiefly from a sense of God's love, from a sense of God's justice. I have provoked the sovereign God who can tear up the rocks and the trees, but a godly repentance says, I have spurned the love of the Father. You see, when you look, I can put it like this.
+
+I can put it like this. I'll tell you how I deal with my own heart, how I have to do. You look at Jesus dying, and you see on the one hand, that's serious. That shows that what I have done wrong is serious, or God would not have gone to that length. The things that I'm doing that are wrong are really wrong.
+
+But at the very same moment, I say, the very act of dying on the cross, at the same moment that it shows me how serious my sin is, also, also guarantees and shows me without a doubt that he accepts and loves me. And you know, that's a hard thing for the human ego to accept. The human ego wants to say, look, if I've done well, then I don't mind you accepting me.
+
+But if I've done poorly, I want you to just walk all over me. That's the way your ego works. Because you were born under a covenant of works, the Bible says. You were born in a situation where you know intrinsically we ought to do right. The gospel comes and says, yes, what you've done is wrong, and I love, and I accept you. And the ego doesn't like that, and it has to be shown that. I have to look at the cross, and I see here's Jesus dying.
+
+Why did Jesus die so poorly? I often think about that. He did die poorly.
+
+There's a lot of people that went to the stake. They went to the firing squad. There are people who went singing hymns. They went rejoicing. Do you see Jesus doing that?
+
+Do you see Jesus say, oh, I'm just praising the Lord on the way to the cross? Do you see him rejoicing?
+
+Absolutely not. You see him in a bloody sweat. You see blood coming out of his pores.
 
 You see him wrestling on the ground. You see him say, Lord, if there's any way you can get me out of this, please do it. Because he had a death that no one else ever faced. All of God's eternal punishment, not just for me, but for all of us, and for all of us, rested on him at once. For thousands and millions of people and billions of people rested on him at once. And not just spread out over all of eternity, but all compressed and put on his back at one moment. And whatever it was, was so incredibly painful and so staggering that the mind of the second person of the Trinity almost cracked under it.
 
 And why did he do that? He did it to make me holy. Because he knew the only way I'd ever be happy is if I was holy, because I was built to obey God. And he is that committed to making me holy. And this is how I repay him?
-
-The fact that I haven't prayed this week? This is how I repay him?
-
-The fact that I haven't been telling the truth this week? This is how I repay him?
-
-The fact that I'm not... I'm not being patient this week?
-
-Is this how I repay him? Does that make me want to move away from him?
 
 ---
 
@@ -420,7 +412,15 @@ Is this how I repay him? Does that make me want to move away from him?
 
 ---
 
-## 唯有在基督里才能真正悔改
+## 唯有在基督里才能真正悔改 / Only in Christ Can We Truly Repent
+
+The fact that I haven't prayed this week? This is how I repay him?
+
+The fact that I haven't been telling the truth this week? This is how I repay him?
+
+The fact that I'm not... I'm not being patient this week?
+
+Is this how I repay him? Does that make me want to move away from him?
 
 Does it make me want to kick myself? It makes me want to go right to him and say, Lord, how could I have been so foolish as to spurn your love?
 
@@ -429,18 +429,6 @@ And don't you see, therefore, why the only people who can actually repent and ge
 That's how you're even able to function emotionally in the world, is because you say, well, I've got this or that bad, but basically I'm better than an awful lot of other people. And when you start to look at your sins, to even admit them, you begin to feel your life ebbing away and it destroys you. R.C. Sproul, a pastor and also a writer, tells a story about a woman who came to him and said, Dr. Sproul, I have a real problem. I keep asking God forgiveness and asking God for forgiveness and asking God for forgiveness. And I just don't feel forgiven.
 
 And he looked at her and he said, well, your problem probably is you're not actually asking God for forgiveness for the right sin, the main sin. She said, what is that?
-
-He said, you haven't asked forgiveness for your sins. You're asking God for your pride. Now, I don't know how tender he was when he said that to her, but I'm going to try to be tender to you. He was right, probably.
-
-I don't know the woman. I just read about this. But probably she was reacting to grace because most of us like our forgiveness the old-fashioned Smith-Barney way. We want to earn it. And when we say I can't forgive myself, what we mean is I haven't lived up to standards and I'm going to sit here and kick myself and punish myself and I don't want anybody to take that off of me.
-
-I don't like the fact. That I need bleeding charity. And as a result, you say, I can't forgive myself. It looks like spiritual humility. It's absolutely arrogance. R.C. is right.
-
-And the only way, therefore, that you're able actually to ever have your repentance bring cleansing is if you have accepted Christ as Savior and you've given up the whole idea of trying on your own to be good enough to live up to standards. Have God accept you, to have the world accept you, to have you accept yourself. And you've never actually said nothing in my hands I bring simply because I cross, I cling. I completely rely on your grace. I completely rely, oh Lord Jesus Christ, on what you did for me on the cross. Until you do that, repentance will kill you. And you've got no alternative but to hide your sins from yourself.
-
-Or when you repent, you'll just feel worse and worse and worse, not better. You see that?
-
-If your boss comes to you and says, you broke a rule. And as a result, I'm canceling your raise. I'm busting you down to a lower rank and you may not have your contract renewed. You better do well.
 
 ---
 
@@ -462,17 +450,19 @@ If your boss comes to you and says, you broke a rule. And as a result, I'm cance
 
 ---
 
-## 老板与父亲：两种截然不同的悔改
+## 老板与父亲：两种截然不同的悔改 / Boss vs. Father: Two Kinds of Sorrow
 
-And so you start to say, I'm sorry, I'm sorry, I'm sorry. But your sorrow is driven by fear of consequences. It's driven by anger and self-hatred.
+He said, you haven't asked forgiveness for your sins. You're asking God for your pride. Now, I don't know how tender he was when he said that to her, but I'm going to try to be tender to you. He was right, probably.
 
-Why did you do that? You fool, you say to yourself. You might even be angry at your boss for not being more forgiving or being unfair in some way.
+I don't know the woman. I just read about this. But probably she was reacting to grace because most of us like our forgiveness the old-fashioned Smith-Barney way. We want to earn it. And when we say I can't forgive myself, what we mean is I haven't lived up to standards and I'm going to sit here and kick myself and punish myself and I don't want anybody to take that off of me.
 
-But if a father comes to you and says, son, daughter, you've disobeyed me. That doesn't change my love for you one whit. You know what I've done for past and I will continue to do for future.
+I don't like the fact. That I need bleeding charity. And as a result, you say, I can't forgive myself. It looks like spiritual humility. It's absolutely arrogance. R.C. is right.
 
-I want you to repent because I want you to come and embrace me. I want to get rid of the distance between us. When will that happen?
+And the only way, therefore, that you're able actually to ever have your repentance bring cleansing is if you have accepted Christ as Savior and you've given up the whole idea of trying on your own to be good enough to live up to standards. Have God accept you, to have the world accept you, to have you accept yourself. And you've never actually said nothing in my hands I bring simply because I cross, I cling. I completely rely on your grace. I completely rely, oh Lord Jesus Christ, on what you did for me on the cross. Until you do that, repentance will kill you. And you've got no alternative but to hide your sins from yourself.
 
-And you say, I'm sorry, father. And what's happening is your sorrow is driven by something completely different. It's driven by love. It's driven by grateful joy. It's driven by grace. The motor for real repentance. The kind of repentance that liberates instead of killing is what?
+Or when you repent, you'll just feel worse and worse and worse, not better. You see that?
+
+If your boss comes to you and says, you broke a rule. And as a result, I'm canceling your raise. I'm busting you down to a lower rank and you may not have your contract renewed. You better do well.
 
 ---
 
@@ -492,21 +482,23 @@ And you say, I'm sorry, father. And what's happening is your sorrow is driven by
 
 ---
 
-## 饶恕人是真悔改的试金石
+## 饶恕人是真悔改的试金石 / Forgiving Others: The Acid Test of True Repentance
+
+And so you start to say, I'm sorry, I'm sorry, I'm sorry. But your sorrow is driven by fear of consequences. It's driven by anger and self-hatred.
+
+Why did you do that? You fool, you say to yourself. You might even be angry at your boss for not being more forgiving or being unfair in some way.
+
+But if a father comes to you and says, son, daughter, you've disobeyed me. That doesn't change my love for you one whit. You know what I've done for past and I will continue to do for future.
+
+I want you to repent because I want you to come and embrace me. I want to get rid of the distance between us. When will that happen?
+
+And you say, I'm sorry, father. And what's happening is your sorrow is driven by something completely different. It's driven by love. It's driven by grateful joy. It's driven by grace. The motor for real repentance. The kind of repentance that liberates instead of killing is what?
 
 It's knowing God as father through the Lord Jesus Christ because he's your savior. It's adoration for the dying love of Christ. God.
 
 Now, Jesus Christ gives us a test. A real acid test as to whether or not you really have been forgiven. You really have repented. You know what the acid test is?
 
 You will be forgiving. You'll be forgiving. Jesus Christ says, if you do not forgive, you won't be forgiven.
-
-Now, that doesn't mean God's looking down and saying, well, here's nice people over here and I will. They earned my forgiveness. That's not what he means. What Jesus is saying is, if you have stopped forgiving, you've stopped repenting.
-
-Jesus says, I will forgive anyone who repents, but people who don't forgive show they've stopped repenting and therefore they get no forgiveness. Did you follow that?
-
-Look, if for some strange reason, tonight you would find out that some distant relative you didn't even know exists died and has left you $10 million. And a friend of yours calls up five minutes later and says, hey, you know that $20 I lent you yesterday?
-
-I'm really sorry I haven't paid back. I'll give it back to you tomorrow. If you have any kind of heart, if you have any kind of normal human processes going on down there, you'll say, I don't care about your $20. Forget the $20. Who cares about the $20?
 
 ---
 
@@ -530,7 +522,15 @@ I'm really sorry I haven't paid back. I'll give it back to you tomorrow. If you 
 
 ---
 
-## 三个实用的悔改方法
+## 三个实用的悔改方法 / Three Practical Ways to Repent
+
+Now, that doesn't mean God's looking down and saying, well, here's nice people over here and I will. They earned my forgiveness. That's not what he means. What Jesus is saying is, if you have stopped forgiving, you've stopped repenting.
+
+Jesus says, I will forgive anyone who repents, but people who don't forgive show they've stopped repenting and therefore they get no forgiveness. Did you follow that?
+
+Look, if for some strange reason, tonight you would find out that some distant relative you didn't even know exists died and has left you $10 million. And a friend of yours calls up five minutes later and says, hey, you know that $20 I lent you yesterday?
+
+I'm really sorry I haven't paid back. I'll give it back to you tomorrow. If you have any kind of heart, if you have any kind of normal human processes going on down there, you'll say, I don't care about your $20. Forget the $20. Who cares about the $20?
 
 Do you know what happened to me? Because any person who has come into unlooked for, absolutely spontaneous, unearned, gracious wealth, becomes generous. And Jesus Christ says, here's how I can tell whether you've ever really been rich in my mercy. You're forgiving. You say to people, I'm not going to hold this against you. I'm not going to constantly keep you liable for what you've done to me. I'm not going to withhold my affection from you.
 
@@ -567,14 +567,6 @@ And then, lastly, don't forget that you're confessing your sins to a father. If 
 Really? Are they that big?
 
 Hmm? When the father, when the prodigal son in Luke 15 comes back to see the father, don't you see what happens to the father?
-
-The father, fathers love us even when we sin. And fathers don't stop being fathers. And fathers can't wait to receive us back. And fathers even interrupt the confession. You know, the prodigal son comes back to start to try to do his confession and the father won't even let him finish. He's already on him. He's already hugging him.
-
-He's already kissing him. He's already saying, bring out the robe, bring out the ring, bring out the fatted calf, let's have a banquet. You don't see the father saying, oh my gosh, here's my prodigal son. He looks awful. I'm so mad at him.
-
-Well, pull yourself together. It's your duty to love him. No. Because the father's love is uproarious. The father's love is invincible. And the father's love is not based on your perfection or your beauty. It's based on his perfection and his beauty.
-
-It doesn't spring from what you are. It springs from what he 's perfect. My appeal, dear friends, where are you?
 
 ---
 
@@ -628,17 +620,19 @@ It doesn't spring from what you are. It springs from what he 's perfect. My appe
 
 ---
 
-## 悔改是苦尽甘来
+## 悔改是苦尽甘来 / Repentance Is Bittersweet
+
+The father, fathers love us even when we sin. And fathers don't stop being fathers. And fathers can't wait to receive us back. And fathers even interrupt the confession. You know, the prodigal son comes back to start to try to do his confession and the father won't even let him finish. He's already on him. He's already hugging him.
+
+He's already kissing him. He's already saying, bring out the robe, bring out the ring, bring out the fatted calf, let's have a banquet. You don't see the father saying, oh my gosh, here's my prodigal son. He looks awful. I'm so mad at him.
+
+Well, pull yourself together. It's your duty to love him. No. Because the father's love is uproarious. The father's love is invincible. And the father's love is not based on your perfection or your beauty. It's based on his perfection and his beauty.
+
+It doesn't spring from what you are. It springs from what he 's perfect. My appeal, dear friends, where are you?
 
 Are you in a situation that there's a lot of bitterness in your life? You say, I've tried to confess. It could be in many of your cases. I'm talking to my fellow believers here. It could be that you need a look. Are you sure you're really confessing your sins or are you just driven by fear?
 
 Are you confessing your sins or are you just full of self-pity instead of saying, it's you that I have dishonored and hurt? Or are you just sitting around thinking about the mess you've gotten yourself into?
-
-Are you being specific? Are you looking at his mercy?
-
-Are you remembering he's your father? Repentance is bittersweet. It starts out bitter, but as you drink it down and as you throw the cross in, it becomes sweet.
-
-There's this one place in the Lord of the Rings where Tolkien says, and their hearts, wounded with sweet words, overflowed and their joy was like swords and they passed and fought out the regions where pain and delight flow together and tears flowed and the tears of the very wine of blessedness. You know, only a Christian can know how great and sweet tears can taste. That sort of statement makes no sense to you unless you know repentance. Real repentance. Humble yourself under his mighty hand and he will exalt you in due time. And there's some of you maybe who have never repented who are here today. That is, you may have said your prayers, you might have done formal repentance, you might have engaged in self-pity or regret, you might have been hating yourself because you haven't lived up to standards, but you've never, you've never, actually repented of your real sin, which is never having repented.
 
 ---
 
@@ -659,13 +653,13 @@ There's this one place in the Lord of the Rings where Tolkien says, and their he
 
 ---
 
-## 悔改进入生命：最伟大的恩赐
+## 悔改进入生命：最伟大的恩赐 / Repentance unto Life: The Greatest Gift
 
-Your real sin, which is never having gone and said, the real sin is my desire to be in charge of my own life and my desire to live up to standards and not, I don't want your grace and I don't want your charity and that's the reason my repentance is killing me instead of healing me. Oh Lord, I want to make you my master. I want to receive you as Savior. Come into my life.
+Are you being specific? Are you looking at his mercy?
 
-The Bible says the day you do that, that's called repentance unto life. And you'll know what it means to have God say to you in your heart, go, your faith has healed you. Let us pray. Our Father, now, we ask that you would lead everybody here to repentance. Some of us, some of us need to be led into a true kind of repentance, not a self-flagellation, but rather a going to God, going to you and seeing your fatherly love and seeing in confidence of that and seeing your love for us, shedding the things that are in our lives. If we go to you like that and ask for forgiveness and consider what you've done for us, it will clean us out.
+Are you remembering he's your father? Repentance is bittersweet. It starts out bitter, but as you drink it down and as you throw the cross in, it becomes sweet.
 
-A lot of us, Father, are just too busy hating ourselves, too busy trying to be our own saviors, too busy trying to earn our forgiveness the Smith-Barney way, Father. Help us to repent aright so we can say, forgive us our debts as we forgive our debtors. And Father, there's some here who may have never repented. Grant us a right and grant them repentance unto life, the greatest gift of all. And we pray that in Jesus' name. Amen.
+There's this one place in the Lord of the Rings where Tolkien says, and their hearts, wounded with sweet words, overflowed and their joy was like swords and they passed and fought out the regions where pain and delight flow together and tears flowed and the tears of the very wine of blessedness. You know, only a Christian can know how great and sweet tears can taste. That sort of statement makes no sense to you unless you know repentance. Real repentance. Humble yourself under his mighty hand and he will exalt you in due time. And there's some of you maybe who have never repented who are here today. That is, you may have said your prayers, you might have done formal repentance, you might have engaged in self-pity or regret, you might have been hating yourself because you haven't lived up to standards, but you've never, you've never, actually repented of your real sin, which is never having repented.
 
 ---
 
@@ -677,7 +671,13 @@ A lot of us, Father, are just too busy hating ourselves, too busy trying to be o
 
 ---
 
-## 结束祷告
+## 结束祷告 / Closing Prayer
+
+Your real sin, which is never having gone and said, the real sin is my desire to be in charge of my own life and my desire to live up to standards and not, I don't want your grace and I don't want your charity and that's the reason my repentance is killing me instead of healing me. Oh Lord, I want to make you my master. I want to receive you as Savior. Come into my life.
+
+The Bible says the day you do that, that's called repentance unto life. And you'll know what it means to have God say to you in your heart, go, your faith has healed you. Let us pray. Our Father, now, we ask that you would lead everybody here to repentance. Some of us, some of us need to be led into a true kind of repentance, not a self-flagellation, but rather a going to God, going to you and seeing your fatherly love and seeing in confidence of that and seeing your love for us, shedding the things that are in our lives. If we go to you like that and ask for forgiveness and consider what you've done for us, it will clean us out.
+
+A lot of us, Father, are just too busy hating ourselves, too busy trying to be our own saviors, too busy trying to earn our forgiveness the Smith-Barney way, Father. Help us to repent aright so we can say, forgive us our debts as we forgive our debtors. And Father, there's some here who may have never repented. Grant us a right and grant them repentance unto life, the greatest gift of all. And we pray that in Jesus' name. Amen.
 
 ---
 

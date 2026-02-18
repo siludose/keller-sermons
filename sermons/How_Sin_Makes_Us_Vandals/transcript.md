@@ -16,6 +16,8 @@ I think one of the reasons why sin as an answer to the reason to the problems of
 
 It's the end of the book of Judges and one of the reasons why nobody knows what to do with it, why it's there and so but nobody ever tries to speak about it is because it is so inexplicably boring. Judges 17 versus 1 to 13, it's just the beginning of a story and I'll tell you how it ends. You don't need to know.
 
+### Micah, Mom, and the Levite
+
 Now a man named Micah from the hill country of Ephraim said to his mother, you know the 1100 chequels of silver that were taken from you and about which I heard you order a curse? I have that silver with me. I took it.
 
 And then his mother said, the Lord bless you my son and when he returned the 1100 chequels of silver to his mother she said, I solemnly consecrate my silver to the Lord for my son to make a carved image and a cast idol. I will give it back to you, O Lord see. So he returned the silver to his mother and she took 200 chequels of silver and gave them to a silversmith who made them into the image and the idol and they were put in Micah's house.
@@ -66,7 +68,11 @@ And this right away actually shows us some things that are very, very surprising
 
 Look, real briefly, because we're going to the Lord's table today, and we're going to have a series. Look, real briefly, let me show you. This tells us what sin does to us, what sin does to God, and how we can be cured of it.
 
-What sin does to us, what sin does to God, and how we can be cured of it. And every one of them is surprising. The first one, what sin does to us.
+What sin does to us, what sin does to God, and how we can be cured of it.
+
+### The Banality of Evil
+
+And every one of them is surprising. The first one, what sin does to us.
 
 What do you think sin really does to you in its advanced stages? What does sin really do to the human heart? What does it do to the character?
 
@@ -116,7 +122,11 @@ Why are people so uninteresting when they just simply talk? They're not part of 
 
 It's sleepless, unsmiling concentration on the self. That's the essence of sin. And the first thing we see here is that what sin really does is not make you bad before it makes you boring.
 
-That's the primary thing, incessant autobiography. But that's the first surprising thing. But the second surprising thing is, like, in a way more seminal.
+That's the primary thing, incessant autobiography.
+
+### Whittling God Down to Our Size
+
+But that's the first surprising thing. But the second surprising thing is, like, in a way more seminal.
 
 It's in the Bible when sin ruins you. It's because already your attitude toward yourself is always based on your attitude toward God. Your understanding of yourself is always based on your understanding of God.
 
@@ -264,7 +274,11 @@ And what He's saying is, don't imagine me to be what you want me to be but worsh
 
 But you know what? When I study, when I just study His holiness, when I just study His majesty, when I just study His wisdom, I don't feel, I'm not getting greater, I'm not getting bigger. It just starts to crush me and it'll crush you.
 
-This thing that has on saying to Lucy, I don't sense that dynamic at all, it just makes me feel worse and worse and worse. It's like, oh my word, this is God but I'm going to have to just put up with it. But the answer is this, in verse 6, it says, the reason for all this was there was no king.
+This thing that has on saying to Lucy, I don't sense that dynamic at all, it just makes me feel worse and worse and worse. It's like, oh my word, this is God but I'm going to have to just put up with it.
+
+### The True Image: Jesus Christ
+
+But the answer is this, in verse 6, it says, the reason for all this was there was no king.
 
 Do you see that? It says, the reason all this idiotic, idiocy, the reason all this smallness in those days Israel had no king. Now what is the author saying?
 

@@ -22,7 +22,11 @@ All who see them will acknowledge that they are a people. The Lord has blessed. 
 
 My soul rejoices in my God, for he has clothed me with garments of salvation, and unwrapped me in a robe of righteousness. As a bridegroom adorns his head like a priest, and as a bride adorns yourself with her jewels. For as the soil makes the sprout come up, and a garden causes seeds to grow, so the sovereign Lord will make righteousness and praise spring up before all nations.
 
-This is God's word. Now, because this is the third in the series, we need to take some stock what we're doing, why we're doing it, where we've come. We're talking about sin, doing a series on sin.
+This is God's word.
+
+### Sin Breaks God's Design
+
+Now, because this is the third in the series, we need to take some stock what we're doing, why we're doing it, where we've come. We're talking about sin, doing a series on sin.
 
 Why? Well, because early in the century, maybe late 19th century, early 20th century, this isn't, we can't be completely, you can't pinpoint this exactly, basically our Western society told us to get rid of the concept of sin. To get rid of it.
 
@@ -148,6 +152,8 @@ There's personal transformation. There's social transformation. There's spiritua
 
 There's psychological wholeness. There's economic wholeness. There's racial wholeness.
 
+### The Wages of Sin: Ashes
+
 The whole nine yards. And the Messiah comes back and says, that's what I'm about to do. Now, what does that tell us about sin?
 
 That's the first point. And here's what it tells us about sin. The wages of sin is ashes.
@@ -262,7 +268,11 @@ What else is the resurrection for? Therefore, when the Messiah comes, he's going
 
 That's what he's after. That's the only way you can understand so many of the prophecies of Isaiah. That's the problem.
 
-Now, how is God going to do that? And the answer is here in this tremendous Messiah. Now, this Messiah, in verse 1, again, I have to give you a little help.
+Now, how is God going to do that? And the answer is here in this tremendous Messiah.
+
+### The Conquering King and Suffering Servant
+
+Now, this Messiah, in verse 1, again, I have to give you a little help.
 
 It doesn't hit you right away as an English reader so much. But anyway, this particular Messiah, right away, we're told the spirit of the sovereign Lord is upon me because the Lord has anointed me to preach. Now, before we go on any further, the Lord has anointed me to preach.
 
@@ -333,6 +343,8 @@ And therefore, substitution. Jesus Christ, when he comes to earth, is able to de
 That's the reason why he gets ashes. He is psychologically broken. That's why he gets mourning.
 
 And he spiritually broken in that the father cuts him off. He's like, God, my God, why I stop forsaking me so he gets the spirit of despair. Now, what does that mean for us practically?
+
+### Living the Jubilee
 
 Let's get to that. Let's make a little list. How should we respond?
 

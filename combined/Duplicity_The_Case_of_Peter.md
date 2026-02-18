@@ -4,6 +4,8 @@
 
 ---
 
+## 引言与经文诵读 / Introduction and Scripture Reading
+
 Welcome to Gospel in Life. You don't have to look far to see that something's deeply wrong with our world and with us. But is there an answer that gets to the root of why?
 
 In today's message, Tim Keller explores the human condition through stories in the Bible, uncovering what Scripture says about sin and why it's the only explanation deep enough to face the truth about ourselves. Recently, there was an inner church meeting of Christian men in the city called Promise Keepers. I got a chance to speak at it.
@@ -52,6 +54,18 @@ Because promises make identity and they make community. Did you hear that? They 
 
 That's a commitment. That's a promise. Without promises, there's no identity and there's no community and Peter lost both of them at the moment.
 
+---
+
+欢迎来到《福音人生》。你不需要走远就可以看到世界上和我们身上有什么问题。但是否有一个答案能找到根源？在今天的信息中，蒂姆·凯勒通过圣经中的故事来探讨人类的状况，揭示圣经对罪的看法，以及为什么它是唯一足够深刻的解释来面对关于我们自己的真相。
+
+最近，我一直在思考二重性的概念。二重性是什么意思？二重性意味着虚伪。二重性意味着一个人说一回事，但做另一回事。
+
+二重性是当一个人有两张脸时。他在一种情况下显示一张脸，在另一种情况下显示另一张脸。这是一个深刻的人类问题。这是一个深刻的罪的问题。
+
+---
+
+## 承诺塑造身份 / Promises Make Identity
+
 This is what promises make us. First of all promises make identity. Why was Peter wept so bitterly?
 
 I'll tell you why he didn't know who he was. You know why he didn't know who he was? Am I the Peter?
@@ -90,6 +104,30 @@ No, his deepest desire at the moment was to be a coward. Is that all he is? What
 
 That's always the same. By definition, an identity has to be something which a core of sameness about you that is always the same no matter what the circumstances and no matter what the feelings and no matter what the year. That's what an identity is.
 
+---
+
+让我给你一个例子。有一个人，我们称之为"被分开的自我"。这个人在工作时非常讨人喜欢和乐于助人。他非常专业。
+
+他总是准时。他总是友好。他的同事喜欢他。但在家里，这个人完全不同。
+
+他愤怒。他在对他的家人很刻薄。他不参与。他很多时候很自私。
+
+现在，为什么会这样？为什么一个人在一种情况下可以表现得很好，在另一种情况下表现得很坏？答案不是这个人真的那么好，他只是有一个坏日子在家里。答案也不是这个人真的很坏，他只是在工作时装扮得很好。
+
+答案是这个人有一个分裂的自我。这个人的心不一致。现在，让我给你圣经中的例子。彼得在圣经中是一个有趣的人物。
+
+耶稣说彼得是一块石头，耶稣将在他身上建立教会。这听起来像彼得是一个强大的精神领袖。但彼得也是一个非常不一致的人。彼得会做一些伟大的事情。
+
+他会看到耶稣在水上行走，他会说："主啊，如果是你，请叫我也在水上走向你。"而且彼得将实际上走在水上，信靠耶稣。但随后彼得会做一些可怕的事情。在某个时刻，耶稣的门徒在恐惧中。
+
+一个仆人女孩走过来，指着彼得说："你也和拿撒勒人耶稣同在。"而彼得否认它。彼得说："我不认识那个人。" 这就是二重性。
+
+彼得在一个时刻充满信仰，在下一个时刻充满恐惧。彼得在一个时刻愿意跟随耶稣到死亡，在下一个时刻否认他曾经认识他。现在，为什么会这样？为什么彼得这样做？
+
+---
+
+## 感觉不能成为身份 / Your Feelings Cannot Be Your Identity
+
 Therefore, you are not your feelings because your feelings are always changed. It means whatever you're committed to, you are your commitments, you are your promises. If you aren't, if instead in every situation, in every, you following your six circumstances and you're following the impulses, you'll never know who you are and nobody else will either because there's nothing that you always are.
 
 Your identity is what you always are. If there's nothing that you that you can say, I always am that because I'm committed to that and no matter how I feel, no matter what the situation is, no matter what the circumstances are, no matter what people say, I'm committed to that. Unless you've got something like that, you don't know who you are.
@@ -127,6 +165,26 @@ You open your hand and there's nothing left. How does Peter know who he is? He h
 He doesn't have a promise that binds together every part of his life. Is he a Christian or isn't he? Is he for Christ or isn't he?
 
 He doesn't know nobody knows. He can't even trust himself now. He's got no identity.
+
+---
+
+原因不是彼得坏。原因也不是彼得天生就好。原因是彼得是一个有罪的人。彼得的心仍然分裂。
+
+彼得的心仍然不能完全委身于耶稣。现在，这就是我想在你身上指出的。我们都像彼得一样。我们都有分裂的心。
+
+我们都想成为好人。但我们也都有自私的欲望。我们都想跟随耶稣。但我们也都害怕。
+
+我们都想做对的事。但我们也都想得到我们想要的。这就是二重性。这就是人类条件。
+
+我们都想一件事，但我们也想另一件事。我们都承诺一条路，但我们也被其他路所吸引。现在，我们如何处理这个？首先，**我们需要承认这一点。**
+
+**我们需要诚实地对待自己。****我们需要说："我有一个分裂的心。**我有时候做我不想做的事。我有时候不做我想做的事。
+
+我有时候说一件事，但做另一件事。" 这就是诚实。这是自我意识。这是长期改变的第一步。
+
+---
+
+## 承诺建立群体 / Promises Make Community
 
 Promises make identity, but also one other thing we have to be brief, but important promises make community. You notice where he goes to weep out. You see that?
 
@@ -194,7 +252,33 @@ If you don't dare to make that promise, you don't have a family. And you only ha
 
 There's no family. There's no marriage. There's no community.
 
-There's no friendship without being willing to rein your own heart in and say, I'm making a point with myself and appointment with myself five years from now, I'm still going to be there for you. Now question, how can we make promises then? If promises make us, how can we make promises?
+There's no friendship without being willing to rein your own heart in and say, I'm making a point with myself and appointment with myself five years from now, I'm still going to be there for you.
+
+---
+
+但这还不够。仅仅承认我们有问题是不够的。很多人承认他们有问题，但他们无法改变。所以下一步是什么？
+
+下一步是意识到我们无法通过自己的力量改变自己。我们无法通过自己的意志改变自己。我们无法通过更多的自律改变自己。为什么？
+
+因为问题不仅仅是行为。问题是我们的心。问题是我们的灵魂。问题是我们与上帝的关系。
+
+现在，我看彼得。彼得在某个时刻否认耶稣。这是可怕的。但随后耶稣在复活后出现给彼得。
+
+耶稣与彼得交谈。耶稣恢复彼得。耶稣说："彼得，我原谅你。我仍然爱你。
+
+我仍然选择你。" 而这改变了彼得的一切。彼得不再是一个害怕的人，他否认他认识耶稣。彼得变成了一个勇敢的使徒，他会为了耶稣而死去。
+
+是什么改变了他？恩典改变了他。原谅改变了他。爱改变了他。
+
+而这同样可以对我们做。当我们承认我们是有罪的，当我们悔改，当我们投靠耶稣，耶稣会赦免我们。耶稣会改变我们。耶稣会给我们一个新的心。
+
+现在，这并不意味着我们一旦变成基督徒就变得完美。不，改变是一个过程。但**这意味着改变是可能的。**现在，让我讲讲为什么这对我们的世界很重要。
+
+---
+
+## 如何守住承诺 / How Can We Make Promises?
+
+Now question, how can we make promises then? If promises make us, how can we make promises?
 
 And here's why a lot of you are asking this question. I know you're saying, I got problems here. I've got real problems with what you're saying.
 
@@ -231,6 +315,26 @@ From then on, Peter became a tremendous leader. He became a man of identity and 
 It's a scary thing to start a church, but the people who got together and said, we're going to start this church even though it's going to cost us an awful lot. There's a community there. See, the more the promise, the greater the promise, and Peter went on and he experienced the identity in the community.
 
 Well, why? How could that possibly be? And here's the answer.
+
+---
+
+我们生活在一个充满虚伪的世界中。我们生活在一个很多人都戴面具的世界中。我们生活在一个人在公共场合说一件事，但在私下做另一件事的世界中。有政治家说他们为人民工作，但他们真的在工作以获得权力。
+
+有商人说他们关心他们的客户，但他们真的只在乎利润。有朋友对你微笑，但他们在你身后谈论你。这就是二重性的世界。现在，问题是，这如何改变？
+
+我们如何创建一个没有虚伪的世界？我们如何创建一个人们是真实的世界？答案不是更多的法律。答案不是更多的执法。
+
+答案是改变的心。答案是人民的精神转变。而唯一能带来这种改变的是福音。福音改变心。
+
+福音改变灵魂。福音使人们能够诚实。福音使人们能够承认他们的罪。福音使人们能够被原谅。
+
+福音使人们能够被改变。当一个人真的被福音改变时，他停止了虚伪。他停止了戴面具。他开始诚实。
+
+他开始承认他的弱点。他开始寻求帮助。他开始改变。现在，这如何在实践中工作？
+
+---
+
+## 耶稣是守约者 / Jesus the Promise Keeper
 
 He saw Jesus as a promise keeper. Instead of looking at himself, instead of saying, I can do it. You know, will power.
 
@@ -397,79 +501,6 @@ We hope that today's teaching encouraged you to go deeper into God's word. You c
 The sermons and talks you hear on the Gospel Unliked Podcast were recorded between 1989 and 2017, while Dr.
 
 ---
-
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《福音人生》。你不需要走远就可以看到世界上和我们身上有什么问题。但是否有一个答案能找到根源？在今天的信息中，蒂姆·凯勒通过圣经中的故事来探讨人类的状况，揭示圣经对罪的看法，以及为什么它是唯一足够深刻的解释来面对关于我们自己的真相。
-
-最近，我一直在思考二重性的概念。二重性是什么意思？二重性意味着虚伪。二重性意味着一个人说一回事，但做另一回事。
-
-二重性是当一个人有两张脸时。他在一种情况下显示一张脸，在另一种情况下显示另一张脸。这是一个深刻的人类问题。这是一个深刻的罪的问题。
-
-让我给你一个例子。有一个人，我们称之为"被分开的自我"。这个人在工作时非常讨人喜欢和乐于助人。他非常专业。
-
-他总是准时。他总是友好。他的同事喜欢他。但在家里，这个人完全不同。
-
-他愤怒。他在对他的家人很刻薄。他不参与。他很多时候很自私。
-
-现在，为什么会这样？为什么一个人在一种情况下可以表现得很好，在另一种情况下表现得很坏？答案不是这个人真的那么好，他只是有一个坏日子在家里。答案也不是这个人真的很坏，他只是在工作时装扮得很好。
-
-答案是这个人有一个分裂的自我。这个人的心不一致。现在，让我给你圣经中的例子。彼得在圣经中是一个有趣的人物。
-
-耶稣说彼得是一块石头，耶稣将在他身上建立教会。这听起来像彼得是一个强大的精神领袖。但彼得也是一个非常不一致的人。彼得会做一些伟大的事情。
-
-他会看到耶稣在水上行走，他会说："主啊，如果是你，请叫我也在水上走向你。"而且彼得将实际上走在水上，信靠耶稣。但随后彼得会做一些可怕的事情。在某个时刻，耶稣的门徒在恐惧中。
-
-一个仆人女孩走过来，指着彼得说："你也和拿撒勒人耶稣同在。"而彼得否认它。彼得说："我不认识那个人。" 这就是二重性。
-
-彼得在一个时刻充满信仰，在下一个时刻充满恐惧。彼得在一个时刻愿意跟随耶稣到死亡，在下一个时刻否认他曾经认识他。现在，为什么会这样？为什么彼得这样做？
-
-原因不是彼得坏。原因也不是彼得天生就好。原因是彼得是一个有罪的人。彼得的心仍然分裂。
-
-彼得的心仍然不能完全委身于耶稣。现在，这就是我想在你身上指出的。我们都像彼得一样。我们都有分裂的心。
-
-我们都想成为好人。但我们也都有自私的欲望。我们都想跟随耶稣。但我们也都害怕。
-
-我们都想做对的事。但我们也都想得到我们想要的。这就是二重性。这就是人类条件。
-
-我们都想一件事，但我们也想另一件事。我们都承诺一条路，但我们也被其他路所吸引。现在，我们如何处理这个？首先，**我们需要承认这一点。**
-
-**我们需要诚实地对待自己。****我们需要说："我有一个分裂的心。**我有时候做我不想做的事。我有时候不做我想做的事。
-
-我有时候说一件事，但做另一件事。" 这就是诚实。这是自我意识。这是长期改变的第一步。
-
-但这还不够。仅仅承认我们有问题是不够的。很多人承认他们有问题，但他们无法改变。所以下一步是什么？
-
-下一步是意识到我们无法通过自己的力量改变自己。我们无法通过自己的意志改变自己。我们无法通过更多的自律改变自己。为什么？
-
-因为问题不仅仅是行为。问题是我们的心。问题是我们的灵魂。问题是我们与上帝的关系。
-
-现在，我看彼得。彼得在某个时刻否认耶稣。这是可怕的。但随后耶稣在复活后出现给彼得。
-
-耶稣与彼得交谈。耶稣恢复彼得。耶稣说："彼得，我原谅你。我仍然爱你。
-
-我仍然选择你。" 而这改变了彼得的一切。彼得不再是一个害怕的人，他否认他认识耶稣。彼得变成了一个勇敢的使徒，他会为了耶稣而死去。
-
-是什么改变了他？恩典改变了他。原谅改变了他。爱改变了他。
-
-而这同样可以对我们做。当我们承认我们是有罪的，当我们悔改，当我们投靠耶稣，耶稣会赦免我们。耶稣会改变我们。耶稣会给我们一个新的心。
-
-现在，这并不意味着我们一旦变成基督徒就变得完美。不，改变是一个过程。但**这意味着改变是可能的。**现在，让我讲讲为什么这对我们的世界很重要。
-
-我们生活在一个充满虚伪的世界中。我们生活在一个很多人都戴面具的世界中。我们生活在一个人在公共场合说一件事，但在私下做另一件事的世界中。有政治家说他们为人民工作，但他们真的在工作以获得权力。
-
-有商人说他们关心他们的客户，但他们真的只在乎利润。有朋友对你微笑，但他们在你身后谈论你。这就是二重性的世界。现在，问题是，这如何改变？
-
-我们如何创建一个没有虚伪的世界？我们如何创建一个人们是真实的世界？答案不是更多的法律。答案不是更多的执法。
-
-答案是改变的心。答案是人民的精神转变。而唯一能带来这种改变的是福音。福音改变心。
-
-福音改变灵魂。福音使人们能够诚实。福音使人们能够承认他们的罪。福音使人们能够被原谅。
-
-福音使人们能够被改变。当一个人真的被福音改变时，他停止了虚伪。他停止了戴面具。他开始诚实。
-
-他开始承认他的弱点。他开始寻求帮助。他开始改变。现在，这如何在实践中工作？
 
 假设你想改变。假设你受够了你的二重性。你受够了说一回事，做另一回事。你想变得诚实。
 

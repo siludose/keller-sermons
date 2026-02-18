@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Prophet, Priest, and King: The Framework
+
 Welcome to gospel in life. Who is Jesus? The Bible says He's fully God, the creator of the universe, and at the same time, fully human.
 
 Lose one of those and you lose Christianity. Join us for today's podcast where Tim Keller explores the person and promises of Jesus Christ. Every January and June, the pastors get together and we do a short series together on some theme or subject.
@@ -87,6 +89,8 @@ Ordinarily, you'll be able to do it by looking at this grid. Very often, we're r
 Some of you are really great into the Bible study. The idea of Jesus' prophets great. You love to study his teachings, and you know very, very well, and yet you're not being obedient to him as king.
 
 Some of you are being very, very obedient to him as king, and yet you're just full of guilt and anxiety and burdened and you're burdened down with a horrible view of yourselves, because you just really don't have a good grasp of Jesus as redeemer and priest. Don't just say, you know, these three things, that's why we're spending a couple of weeks on each, a couple of sermons on each. He's the prophet, he's the priest, he's the king.
+
+### What Is a Prophet?
 
 Now, having said that, and I just sort of set the context for the entire month, tonight, I would like to say, even though he's far more than a prophet, he is a prophet, and what does that mean? Let me read, believe it or not, have a scripture text, yes. Let me read from Acts chapter three, verse 17 to 26.
 
@@ -188,7 +192,11 @@ I do believe that our God is not hiding from us. You do. That's the difference.
 
 It's not a matter of pride. I think you can know what God thinks about certain things. Because I believe there's a God who speaks.
 
-Not just the God who's out there, not just the God who's out there, but a God who speaks. Now, Christians will always find when they come to understand this view of prophetic truth that that God has spoken, that God gives us objective truth. You're going to find that there's two very different alternate worldviews really competing with Christianity in a city like New York.
+Not just the God who's out there, not just the God who's out there, but a God who speaks.
+
+### Two Rival Worldviews
+
+Now, Christians will always find when they come to understand this view of prophetic truth that that God has spoken, that God gives us objective truth. You're going to find that there's two very different alternate worldviews really competing with Christianity in a city like New York.
 
 Every so often, you know, I mention these two basic competing worldviews and unfortunately, every time I give them different names, so a lot of you probably think there's seven or eight. But the two of them are, you know, let me give you all the different names. The one is sometimes people, sometimes we call it naturalism because it's the view that nature is all there is.
 
@@ -300,7 +308,11 @@ Some things are just wrong, we say. But if you don't believe in a God who speaks
 
 And you can't help but believe it. You know there's a truth. You know there's a God who speaks.
 
-Okay. So first, we learn that God speaks through the prophets. But lastly, we also learn in this passage that Jesus is the ultimate prophet.
+Okay.
+
+### Jesus: The Ultimate Prophet
+
+So first, we learn that God speaks through the prophets. But lastly, we also learn in this passage that Jesus is the ultimate prophet.
 
 He's the final revealer of the truth. Why? You see, notice, even though he's a prophet, it tells us that he is what all the prophets were speaking of.
 

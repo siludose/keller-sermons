@@ -4,6 +4,8 @@
 
 ---
 
+## 经文诵读：约翰福音论圣灵 / Scripture Reading: John 14 on the Holy Spirit
+
 Welcome to Gospel and Life. Who is the Holy Spirit? And why is the Spirit's work so vital to the Christian life?
 
 The Bible tells us the Holy Spirit is not just a vague force, but a person who works in the lives of Christians in profound ways. Today Tim Keller is exploring how the Spirit calls us to faith, unites us together, equips us with gifts and shapes us to be more like Christ. The Scripture reading this morning comes from John's Gospel, chapter 14, verses 16-26.
@@ -20,7 +22,27 @@ All this I have spoken while still with you, but the counselor, the Holy Spirit 
 
 My impression is that there is an awful lot of churches in the world that talk about nothing but spiritual experience and there is an awful lot of churches that are just absolutely afraid of the subject and just want to talk about doctrine and truth and knowing the right things. But I think the remedy for that imbalance is the doctrine of the Holy Spirit because the deeper you get into it, the more you realize that spirit and truth go together and that's what we are going to be doing over the next number of weeks. This is an introduction, let's take a look at what this great passage tells us about who of the Holy Spirit is, what He does and then how you can receive what He gives.
 
-Who He is, what He does, how you can receive what He gives, very top level, very basic intro, but wonderful. First, who is He? Who is the Holy Spirit and by the way, I already gave you a bit of an answer by the choice of my pronoun.
+Who He is, what He does, how you can receive what He gives, very top level, very basic intro, but wonderful.
+
+---
+
+欢迎来到《福音与生活》。圣灵是谁？为什么圣灵的工作对基督徒的生活如此重要？圣经告诉我们，圣灵不仅是一个模糊的力量，而是一个在基督徒生活中以深刻方式工作的有位格的人。
+
+今天，提摩太·基尔正在探讨圣灵如何召唤我们归信、使我们联合在一起、赋予我们恩赐并塑造我们成为更多像基督的人。今天的经文选自约翰福音第14章第16至26节。我还要求父，父就另外赐给你们一位保惠师，叫祂永远与你们同在，就是真理的圣灵。世人不能接受祂，因为不见祂，也不认识祂；你们却认识祂，因祂常与你们同在，也要在你们里面。
+
+我不撇下你们为孤儿，我必到你们这里来。不久之后，世界不再看见我，但你们要看见我，因为我活着，你们也必要活著。从那天起，你们就知道我在父那里，你们在我里面，我也在你们里面。凡遵守我命令的，就是爱我；爱我的人，我父也必爱他，我也要爱他，并且要向他显现。
+
+西门彼得问说：“主啊，为什么对我们要显自己，不叫世人呢？”耶稣回答说：“若有人爱我，就必遵守我的道；我父也必爱他，并且我们要到他那里去，与他同住。他如果不爱我，就不遵守我的道。你们听见的话不是我的，乃是差我来之父的话。
+
+我将这些事告诉你们，是要叫你们在我里面存平安。在世上你们有苦难，但你们可以放心，我已经胜了世界。”这是主的吩咐。在这个夏天，由于假期的原因，这里有多位讲员，为了保持统一并确保我们共同努力，我们选择了一个共同的主题：从现在一直到九月中旬，我们将探讨圣经中关于圣灵教导的教义——圣灵论。
+
+我的印象是，世界上有很多教会只谈论灵性经历，也有很多教会完全害怕这个话题，只想谈论教义和真理。但我认为解决这种失衡的方法就是圣灵的教义，因为当你越深入研究时，你会发现灵性和真理是紧密相连的。接下来几周我们将探讨这个问题。这是个引子，让我们看看这段伟大的经文向我们揭示了有关圣灵是谁、他做什么以及如何获得他的恩赐。
+
+---
+
+## 圣灵是一个位格而非力量 / The Holy Spirit Is a Person, Not a Force
+
+First, who is He? Who is the Holy Spirit and by the way, I already gave you a bit of an answer by the choice of my pronoun.
 
 The Holy Spirit is a personal, is the personal divine resident of the Christian's heart. The Holy Spirit is the personal divine resident of the Christian's heart. First of all, personal.
 
@@ -54,7 +76,43 @@ It's not three gods, there are two one for that, but it's not one god in three f
 
 All I can tell you is, in the early days of my Christian faith, it was a millstone around my neck. It felt like this is so confusing, and today I think it's one of the greatest things. It's one of the joys I've got when I contemplated it.
 
-Once you get to understand it, you see the beauty of it, and I can't go into any further than that, because we're here not to talk about the Trinity, but the Holy Spirit. But here's what I want you to see, why so important. The Holy Spirit is not an impersonal force.
+Once you get to understand it, you see the beauty of it, and I can't go into any further than that, because we're here not to talk about the Trinity, but the Holy Spirit.
+
+---
+
+首先，他是谁？圣灵是谁呢？顺便说一下，我刚才已经通过使用代词给你们提供了一点答案。圣灵是一个个人的存在，是基督徒心中的神圣居民。
+
+圣灵是基督徒心中的神圣居民。首先，他是一个人。你有没有注意到耶稣提到圣灵时，并没有用“它”这个词，而是用了“祂”，就像在以弗所书4:30中说的，“圣灵受了伤”。你可以伤害圣灵。
+
+希伯来书10:29 说：“你们藐视神的儿子。” 罗马书15:16 说：“圣灵爱我们。” 所以他爱，他受伤，他被轻慢，一个无形的力量无法感受到这些情感，那是一个人。但他不仅是个人，也是神。
+
+例如，在这里说，“我将祈求父，祂必另外赐给你们一位保惠师”。我们会稍后解释“保惠师”这个词的意思。但耶稣说，他是另一位保惠师，我是保惠师，他就是另一个。这里有两种希腊语用来表示“另一个”的词。
+
+一个是 hetero，意思是实际上不同于先前的；另一个是 allos，意思是另外的或不同的。其他希腊文的词是 alos，意思和前面的一样。现在你要明白耶稣在这里说的话是什么意思，因为耶稣关于自己做了些巨大的宣称。耶稣在约翰福音8章里说：“在我还没有存在之前，我是。
+
+” 耶稣拿起了摩西和燃烧的荆棘丛中神给的名字。耶稣说：“是我，我是。”在我还没有存在之前，我是。耶稣声称要赦免一切罪。
+
+你知道**这意味着什么吗？当他说到“我可以赦免一切罪”，这就意味着所有的罪都是对他而言的，因为你只能赦免那些对你而言的罪。**耶稣说他要审判世界。所以耶稣不断地宣称自己与神是平等的。
+
+现在他竟然胆敢说：“我要给你们派一个像我一样的人。” 圣灵是一个人，圣灵就是神，我们现在所探讨的是令人眼花缭乱的三一论教义。我能让你头晕吗？在这一章第二节中，我们没有读到的内容里，耶稣一直在说“我要离开”。
+
+我要离开，好的。然后这里说到，在第16节，他说：“但是圣灵要来。”再往下到第21节，他又说：“我的父，我和你们同在。” 在第21、22和23节中，他继续说：“我们将会来到你们中间。
+
+”所以他这样说：我要离开，圣灵要来，因此我也会再来。耶稣并不是说：“哦，我不是真的离开，我会以圣灵的形式来到你们这里。” 另一方面，当他说到“我要离开，而因此我不再回来”，他却说：“我是要回来的”。他是如此与圣灵合一，以至于当圣灵进入你的生命时，耶稣也来了。
+
+然而他又不是完全与圣灵相同，以至于他不在天上。明白了吗？好的？看看这有多简单？
+
+不，你知道吗，耶稣在这里说的是，并非有三个神，因为两个一合起来就是三个神。另一方面，也不是一个实体以三种形式存在。你知道的，在那里他有一半是他的父，一半是他的子，还有一半是圣灵。（原文中的比喻和幽默部分在翻译时尽量保留了原意，但可能无法完全传达出原文的幽默感。
+
+） 它不是三个神，而是两个。一个负责这个，但也不是三位一体的形式，而是三个分别代表不同的形式。它是三位一神。而我们将在接下来的一年里重新探讨这一教义。
+
+我可以告诉你，在我信仰初期，这对我来说是一个沉重的负担。我觉得太困惑了，但现在我认为这是最美好的事情之一。当我思考它时，这是我最大的喜悦之一。一旦你理解了这一点，你会发现它的美丽之处。
+
+---
+
+## 被圣灵充满如同被一位格充满 / Being Filled with the Spirit as a Person
+
+But here's what I want you to see, why so important. The Holy Spirit is not an impersonal force.
 
 The Holy Spirit is a divine person in the middle of your life. Why does that matter? Oh, it matters.
 
@@ -87,6 +145,36 @@ Because neither he nor the mistress could bear even the photograph face of his w
 Are you melted by spiritual understanding, by an acute consciousness of the glorious person that's there to change the way in which you live? Just the awareness of it fills you with a sense of his presence, and it would bring integrity to your life. You're doing right now that you wouldn't do if you were aware of him being there.
 
 If you turn the pictures back over and you say, oh, I might think about this. Of course, it also means to hang on his words. Be filled with the Spirit is very different than to be filled with a force, which leads us to the second point.
+
+---
+
+关于三一论的具体细节，我们今天不深入讨论，因为我们今天的话题是圣灵。但我希望你们能看到，为什么这如此重要。圣灵不是一个抽象的力量。圣灵是一个在你生命中存在的神圣人物。
+
+为什么这很重要？哦，非常重要。因为圣经提到要被圣灵充满。之后我们会有一整场关于“被圣灵充满”的讲道。
+
+但被圣灵充满意味着体验到无比的神圣喜乐和能力。我想要这种经历，我也希望你们能够拥有它。那么，你怎么才能被圣灵充满呢？如果你把圣灵看作是一个抽象的力量，你寻求的方式会与理解圣灵是个人不同。
+
+如果你试图通过一个机械的方式来获取一个抽象的力量，比如东方思想中对神的看法。东方思想认为神是一个抽象的力量，并且他们通过冥想来接近这种力量，但冥想总是要清空思维、理性思考和言语。为什么？因为我们试图接触的是那种力量。
+
+而在圣经中，你会发现“冥想”这个词出现得很多。如果你理解圣灵是个人，那么你寻求的方式就会完全不同。但是基督徒的默想、圣经的默想，并不是空空如也地让理性思想和言语消失。用神的话语充满心灵，这是一种完全不同的方法。
+
+如果你这样认为，把圣灵当作一个“它”，那你就会采取一种机械的方法。事实上，我确实看到很多关于被圣灵充满的基督教教导，它们似乎将圣灵视为某种电荷。因此，要被圣灵充满，就是按某些方式祈祷、做某些事情、避免某些行为、为某些事悔改，就像是按对的按钮一样，让自己处于某种环境状态。然后它就进来了，不是“它”，不不。
+
+如果圣灵是一个人，那么被圣灵充满就像被一个活生生的人充满一样。那会是怎样呢？比如说，我记得当我年轻的时候，有时候我的父母会接待一位来访者，在我们家里住上一两天，这位访客是他们非常尊敬的人，可能是贵宾、演讲嘉宾或者是他们很看重的家人。这会影响到一切。
+
+首先，不知怎地，房子看起来特别漂亮。我们突然间把生活空间布置得井井有条，看上去格外整洁。其次，每个人都会表现得最好，而且这不是虚伪的表现。**关键是那些平时让我们感到不舒服的小事，现在都不再那么重要了，因为这个人在这里。**
+
+被圣灵充满就是让自己的生命被那位住在你生命之墙内的荣耀人物的深刻意识所改变。我之前跟你们说过，记得曾经有个男人因为婚外情毁了自己的一生。他背叛了他的妻子。他曾告诉我，每当他想把他的情人带回家时，如果他的妻子是真正的妻子的话，他会先把她的照片拿掉。
+
+他每次都要换照片，而且最近他告诉我，只要有任何一张妻子的照片，无论是他和妻子的合照还是单独妻子的照片，他都会立刻换掉。因为他和他的情人根本无法忍受妻子的照片。因为哪怕只是看到那张照片，也会影响他们的行为。你们知道谁住在你的心里吗？
+
+你的生活被圣灵的洞见所融化了吗？有没有深刻意识到那位荣耀之人的存在，从而改变你的生活方式？仅仅这种意识会让你感受到祂的同在，并且让你的生活充满正直和诚实。如果你现在所做的事，如果没有意识到祂的存在是做不出来的。
+
+你可以把照片翻过来，心想：“我可能会想一想。”当然，这也意味着要顺服圣灵的话语。被圣灵充满与被一种力量所充满是完全不同的。接下来我们要讲的是第二个要点。
+
+---
+
+## 真理的灵：圣经的作者与主观体验 / The Spirit of Truth: Author of Scripture and Subjective Experience
 
 The Holy Spirit is a personal divine resident of the Christian heart. Secondly, what does the Holy Spirit do? There are two words here that tell us what he does and they're great.
 
@@ -141,6 +229,52 @@ It's another thing to have the Holy Spirit come and reveal Jesus Christ to you i
 It's one thing to know with your head that sugar is sweet, it's another thing to taste it and have your whole being electrified by it. You not only know it, but you sense it, and that's the job of the Holy Spirit. He is the author, not only of objective truth, because he wrote the Bible, but of subjective truth, he makes it live in your life.
 
 He makes it live, he makes it vivid and powerful, he makes it life-changing, and that's the first thing the Holy Spirit does. But believe it or not, that's not all. Because actually, if this is all he did, he still would be a kind of consultant, or somebody who hired just to come in and give you certain things at certain times.
+
+---
+
+圣灵是住在基督徒心内的个人神。其次，圣灵做了什么？这里有两句话告诉我们祂的作用，它们非常伟大。祂是真理的圣灵，约翰福音16章17节说；祂也是顾问。
+
+祂既是真理的圣灵，又是顾问。首先，祂是真理的圣灵。**这意味着什么呢？一方面我们知道，圣灵基本上是圣经的作者。**
+
+圣灵实际上就是圣经的作者。例如，在彼得后书1章21节中提到：“没有先知凭自己的愿望说预言；因为那预言不是用意志的权力说的，乃是被圣灵感动，凭着各人的信心说出来的。”再比如约翰福音6章63节，耶稣说：“赐生命的灵”就是“从天上来的道”。> 没有先知凭自己的愿望说预言；因为那预言不是用意志的权力说的，乃是被圣灵感动，凭着各人的信心说出来的。
+
+（彼得后书1:21） > 赐生命的灵”就是“从天上来的道。（约翰福音6:63） 换句话说，你从圣经中看到的耶稣的话是由圣灵产生的。如果你接纳、接受并理解这些话，它们会给你带来永恒的生命。所以，在某种程度上，圣灵是圣经的作者。
+
+事实上，这也回到了“被圣灵充满”这个概念上，如果圣灵是一个人而不是一种力量。如果你去看以弗所书5章18节，保罗著名的那段话中说：“要被圣灵充满”，然后他列出了一个充满圣灵生活的特征清单，我们暂时不讨论这些。我们后面会有一篇关于这个主题的讲道。以弗所书5章18节提到“要被圣灵充满”，然后接着列了一个清单。
+
+如果你去看保罗写给哥林多教会的一封信，在歌罗西书3章16节中，它说：“要被圣经的话充满。”它又说：“要被圣经的话充满。” 然后它列出了一张圣经话充满生活的特征表。他说：“让圣经的话在你们里面丰富地居住”，这和“要被圣经的话充满”意思一样。
+
+接着它列了一个特征清单，这些特征和以弗所书5章18节中提到的充满圣灵生活的特征是一样的。保罗在这两处都说了类似的话：一个充满圣灵生活的人，意味着什么？看，被一个人充满、被一个人支配，就是紧紧抓住那个人的每一句话。**这意味着被圣经话语完全包围和饱和。**
+
+让圣经的话语在你里面丰富地居住，并不是简单知道这些信息并接受它们，而是要使它成为你自己的一部分。或者说，你可以看看眼镜，但这并不是我花这么多钱买它们的原因。我没有去眼科医生那里花了几百美元只为了坐在那儿对你说：“亲爱的，来帮我看看我的眼镜。”这并不是这样用的。
+
+你戴上眼镜后，你会通过它们来看待一切事物。圣经也是如此：你可以说看圣经、学习事实，但更重要的是要让它成为你的一部分。让这些话语在你心中丰富地扎根，完全被它浸透，以至于你看万事万物都通过它来理解。因此，充满神的话语和圣灵是同一件事，因为他是真理的灵。
+
+事实上，他超越了这一点。我们已经提到过这里，看第21节：“凡遵守我命令的，就是爱我的人；父必爱他，我也必爱他，并且要向他显现。”这很有趣。这意味着什么呢？
+
+显然有一些人相信耶稣，显然他们也遵行耶稣的教导并且阅读神的话语，而耶稣说他会来向他们显明自己。这是在讲圣灵的这段经文里所说的：“我将要向他们显明自己。” 那么这个意思是什么呢？难道他们不认识他吗？
+
+当然认识。这又是什么意思呢？圣灵是如何让话语变得有生命、赋予话语力量的呢？保罗在这里也提到这一点，听好了，对我来说这是《圣经》中最重要的一节经文之一。
+
+这是在以弗所书3章中，保罗说：“我为你们祈祷，愿你们照他荣耀的丰富，在所有的智慧悟性上，知道神的奥秘。”他又说：“就是基督在你们心里成了有荣耀的盼望。我也为此劳苦，并且要加增你们力能，使基督因你们住在你们心里，根深蒂固，被坚固地扎根在爱里，能明白基督的爱是何等长阔高深。” 他是在对基督徒说话，说：“靠着圣灵的能力，我为你们祈祷，愿基督因信可以住在你们的心里。
+
+”但基督已经在他们心中居住了。否则他们就不是基督徒了。然后他又说：“靠着圣灵的能力，我能帮助你们明白。” 能有力量去理解基督的爱是何等长阔高深。
+
+难道他们不知道基督的爱吗？当然，他们已经是基督徒了。他说，但我要让你知道这爱胜过知识。他在说什么呢？
+
+让我给你举个例子。约翰·金伯的灵修笔记本是一本小小的日记，他写道：“我多次在阅读圣经常常感到最大的喜悦，任何书籍都无法与之相比。很多时候，在阅读时，每一句话都似乎触动了我的心。” 我常常觉得每句话中都闪耀着如此多的光芒，并从中获得如此令人愉悦、陶醉的食物般的滋养，以至于无法继续我的阅读。
+
+我常常会花很长时间琢磨一句话，试图理解其中蕴含的奇迹。当我读圣经时，对神的认识往往会突然在我心中燃起一种甜蜜的火焰，一种我难以言表的心灵秩序。虽然他在这里做得还不错。他在说什么呢？
+
+光是阅读圣经是一件事。而圣灵来启示耶稣基督给你则是另一回事了。知道基督住在你心里是一回事，感受到祂的存在又是另一回事。我们上周实际上也谈到了这一点。
+
+知道糖是甜的是一回事，品尝它并让整个身心都被其 electrified 另一回事。你不仅知道它，还感受到了它，这就是圣灵的工作。他是客观真理的作者，因为他写了圣经，也是主观真理的作者，他让你的生命中感受到它的鲜活和力量。他让你的生活充满活力、强大且改变人生，这是圣灵所做的第一件事。
+
+但令人惊讶的是，这还不是全部。因为实际上，如果他只做到这些，他仍然只是一个顾问，或者只是在特定时间来给你某些东西的人。
+
+---
+
+## 保惠师：你永久的法律辩护人 / The Counselor: Your Permanent Legal Advocate
 
 But that's not all he is. He's also a counselor. I mean, this is the main point of this whole passage.
 
@@ -226,7 +360,73 @@ And then you say, I'm not getting anything out of it. Okay. He's a permanent leg
 
 He's a permanent friend who's willing to do interventions on you all the time. He's for you, para. But he sometimes can be against you for you.
 
-And that's the wonder of having the Holy Spirit in your life. Now, lastly, very importantly, how can you be, well, I'm not going to say be full of the Spirit. We're going to go to that later.
+And that's the wonder of having the Holy Spirit in your life.
+
+---
+
+但他不只是这样。他还是一位顾问。
+
+这就是这一整段的主要观点。我将请求父，祂会赐给你们另一位顾问。如果你去查五六个不同的译本，把所有的译本都找出来，你会发现有五个或六个不同的词。每当看到英语译本中有非常不同的词汇时，而且在每个译本中都是如此，**这意味着这里的这个词太丰富了，一个英语单词无法完全传达其意义，所以译者们都在努力。**
+
+你们当中有些人可能拥有旧钦定版圣经，还有一些其他版本说：“我将请求父，祂会赐给你们另一位安慰者。”这个“安慰者”是一个非常温馨的词，但它确实让圣灵听起来像是一床被子。因此现在他们不再使用这个词了。但即使这个词是顾问的意思，这是一位夏令营顾问吗？
+
+还是一位婚姻顾问？不是的。实际上，译者们知道一件事，这也是为什么我们没有一个合适的词来表达它的原因。基本上，评论家们知道这个单词是paracaleo、paracleic或paracleesis。
+
+这是一个非常难以翻译的词。Para意味着不处于前面或后面，而是站在旁边。Caleo意味着宣告、召唤或争论。因此，最好的翻译方式是：我将给你们另一位辩护人。
+
+诗篇可以深刻地塑造你与神交往的方式。即使耶稣也依靠诗篇来面对每一个情况，包括死亡。在提摩太和凯瑟琳·凯勒的365天灵修读物《耶稣的歌》中，你会找到每天通过诗篇的阅读，并获得新的圣经洞见。如果你没有定期灵修的习惯，这本书是一个很好的开始方式。
+
+而如果你已经花时间在祷告中研读圣经，那么阅读和祷告诗篇可以帮助你将最深的情感和问题带到神面前，并发现与祂更深的亲密关系。我们将会为你寄送提摩太和凯瑟琳·凯勒的灵修读物作为感谢你的礼物，帮助福音与生命向更多人分享耶稣的爱。请访问gospelandlife.com/give 今天订购您的副本。这就是凯博士 凯勒和其他今天的教导一样。
+
+这个词传达了意思，但一方面，这个人是属于你的。他站在你的立场上，代表你。这个人对你忠心到最后一刻。这是一个为你最坚强的人。
+
+但另一方面，这也意味着这个人会争论。这个人会辩论。这个人会提出论据。这个人会为你辩护，对抗你的敌人。
+
+这里有柔软的一面，即同情你；也有强硬的一面。那么，为什么耶稣基督要说圣灵是你的法律顾问呢？这又是什么意思？我认为这是指：圣灵的工作就是为你辩护，对抗地上的敌人，尤其是内心的敌人。
+
+例如，在罗马书8章15节中，它说：“神没有赐给我们恐惧的心，而是赐给我们儿子的灵，使我们能呼喊‘阿爸父’。”你知道**这意味着什么？你心中充满了恐惧。**而圣灵进来争论并说：不，神爱你。
+
+你是他的孩子。下一节罗马书8章16节说：“圣灵与我们的灵一同见证，我们是神的儿女。”我们在上周讨论过这一点，但没有提到的是，“见证”这个词在希腊语中是一个技术术语，意味着在法庭上的明星证人，一个带来法律证据的人，基本上可以解决案件。所以这句话的意思是：你心中充满了疑虑和恐惧。
+
+而圣灵进来并说：不，没有什么理由怀疑。你是他的，你是被爱的。还有希伯来书12章的一个精彩段落，谈的是受苦和我们所遭遇的一切困难。在希伯来书12章中，它说：“你们忘记主的劝勉的话吗？
+
+那是作为儿女对你说的。”希腊文中的这个词意味着：我的儿子，不要轻看主的管教，因为祂是爱管教你的人。希伯来书作者引用了箴言3章，并说圣经的工作就是在你沮丧时与你争论。当你遭受苦难时，它会提醒你。
+
+坏事情发生在你身上。你觉得仿佛被遗弃了。然而，希伯来书的经文却在与你辩论。怎么辩论呢？
+
+就像孩子对父母说：“不，你是我的父亲。”他没有抛弃你。好父亲常常会让孩子经历一些考验。现在，这正是你在经历的事情。
+
+那么这一切意味着什么呢？你知道，在约翰一书3章20节中提到：“我们的心若责备我们，神比我们的心更大，一切事都审判我们。”我稍微改写一下，就是“当我们的心责备我们时，圣灵比我们的心更大”。这是圣灵的工作——他与你辩论。
+
+我们的心不喜欢恩典的概念。我们真的不喜欢福音，即我们是因着恩典得救的这个想法。我们想要赚取它，想要配得上它，这让我们掌控一切。因为我们的内心有这种想法，所以我们常常被恐惧和疑虑所困扰。
+
+当坏事发生时，我们会说：“不，他抛弃了我们。我不够好。”圣灵会进来与你辩论，他会为你辩护，用福音说服你，直到你开始放松下来。但这不仅仅是圣灵在为我们辩护免受指责。
+
+他还保护我们不受诱惑的侵害。雅各书4章有一段奇怪的文字：首先说：“你们岂不知和世人交好就是在神面前结了仇吗？”然后又说：“岂不知。”他们不知道如何翻译这一句。
+
+它实际上说的是什么？它说：“你难道没有意识到，当你开始让世界占据你的内心时，圣灵在你里面渴望得到你的爱吗？”圣灵看到我们把心给了金钱、名声、性或权力，而不是给神。然后圣灵看见我们的心被引诱远离神，知道这会毁掉我们。
+
+圣灵就以一个爱的朋友对待瘾君子的方式行事。当你爱一个人，并且看到他们因着成瘾而毁掉自己的生命时，你会怎么做？你会把他逼到角落里，说：“你是在自毁啊！我不会让你这么做的。
+
+我要面对你，反对你，因为我爱你，我不允许你这么做。”你知道吗？有时甚至会因此争执起来。你可以有朋友来告诉你，你在错，你是在自毁，我不会让你这么做的。
+
+你会因此非常生气以至于和他们争吵。但这就是当我们有了圣灵在我们生命中时的情景。这是一位朋友，一位辅导员，一位法律顾问，他绝不会让你自毁。他是荣耀的，保罗在腓立比书1章说：“神从起初拣选你们，为要你们因我们的福音，受救赎，荣耀归于神。
+
+”这位圣灵是荣耀的，他不会停止直到你成为应该成为的那个荣耀的人。他会反对任何会把你打翻在地的想法，并且不让你离开。这是一位有力量之爱的朋友。这是一位完全为你着想的朋友，**这意味着有时他是反对你的为了你好。**
+
+他说：“我本该再三考虑邀请这个人进入我的生活。”不是的，我只是希望你想想后果。因此，是圣灵的工作给你圣经，然后让这些圣经的话语在你的生命中变得真实、生动和有力。但他不只是为了给你带来属灵的经历。
+
+他进入了你的生命，并且完全致力于将你在重生时神开始的好工作，在耶稣基督的日子完成。他不会让你离开。你看，他是你的辅导员。他不像夏令营的辅导员，你回家了就结束了。
+
+他甚至不像婚姻咨询师，你可以去见一次然后说：“我从中学不到什么。”他是一位永久的法律顾问。圣灵的工作就是如此，他不会停止直到你成为神为你预定的那个荣耀的人。他是一位永恒的朋友，随时愿意对你进行干预。
+
+他是为你好的，帕拉。但他有时也会在你身上表现出反对的态度。这就是拥有圣灵的生命中的奇妙之处。最后，非常重要的一点是，你怎么才能确保自己能够获得圣灵所能提供的益处呢？
+
+---
+
+## 天上的第一位辩护者：耶稣为你代求 / The First Advocate in Heaven: Jesus Our Legal Representative
+
+Now, lastly, very importantly, how can you be, well, I'm not going to say be full of the Spirit. We're going to go to that later.
 
 But how can you be sure that you're receiving the benefits that the Holy Spirit can offer you? And I think there's two answers in this text. We're just sticking with the text.
 
@@ -300,240 +500,9 @@ All the good deeds and all the prayers and going to church and everything. Get i
 
 And I realize that when you believe in Jesus Christ as your Savior, and when He becomes your legal advocate, it means that justice of God is on your side. It would be unjust for God to take two payments for the same sin. And your sins have been paid for.
 
-And therefore, the very justice of God, the omnipotent, infallible, infinite justice of God, demands that there is no condemnation for you. Now, if we've got that advocate up there doing that, what is the Holy Spirit doing down here? The Holy Spirit is our advocate on earth.
-
-Jesus Christ is our advocate in heaven. What the Holy Spirit is doing is He's taking the advocacy in heaven and applying it here on earth against the enemies in your own heart. He's pounding into you.
-
-He's dealing with your temptations. He's dealing with your pride. He's dealing with your fears.
-
-He's dealing with your accusations. And he's saying, look at what Jesus has done. The Holy Spirit, though, is not an advocate that points to himself.
-
-J. I. Packer beautifully puts it.
-
-It's in John chapter 16 where it actually says, Jesus says, the Holy Spirit will speak of me. He will glorify me. He will not speak of himself.
-
-He will speak of me. And J. I.
-
-Packer, who is an Anglican minister, one day was, he was preaching a sermon on the Holy Spirit and he was looking for a good illustration on the way to preach. He saw a floodlight. He was kind of dark at night.
-
-And he saw a floodlight lighting up an old building which in the daytime didn't look very good, but at night looked beautiful. And he suddenly realized he couldn't even tell where the floodlight was. He says, I couldn't even tell because the job of the floodlight is not to call attention to itself.
-
-The job of the floodlight is to throw into relief the beauty and the magnificence of the thing that is flooding. And he says, that's the Holy Spirit. The Holy Spirit's job is not to say, look at me.
-
-Get my power. Get my joy. The Holy Spirit's job is to say, look at Jesus.
-
-Look at the beauty of what he's done. Look at him standing up there. Look at his advocacy for you.
-
-Do you not see that there's no danger? There is no failure. There is no accusation.
-
-There is nothing that can overturn you. That can cast you down. Nothing.
-
-The Holy Spirit's job is to pull. He's an advocate on earth pointing to our advocate in heaven, making the work of the advocate in heaven so beautiful to your life that it changes it. All right, look, two things.
-
-Number one, here's two ways I would like you to change your life on the basis of what I've already said, even if you say, I've already got some things to change. All right, then these two things. Would you please notice the magnificence of divine selflessness, the magnificence of divine selflessness?
-
-Here's Jesus Christ, emptying self of His glory in order to become a servant and die on the cross for our sins. And now, here's the Holy Spirit, not speaking of His own glory, but glorifying Jesus. There must be something deep in the heart of God that is other oriented.
-
-There's a selflessness in God. There's something in God that says, my life for yours. There's something in God that says, I'm here to serve you.
-
-Here's Jesus emptying self of His glory. Here's the Holy Spirit only showing us Jesus glory. Are you always promoting yourself?
-
-Are you always upset because people aren't giving you your due? Do you feel like you're not getting credit? Do you find yourself always getting insulted?
-
-How dare people talk to me like that or about me like that? Are you doing what a lot of New Yorkers are doing, spending all their time just trying to get up the ladder and basically only dealing with people if they serve you, serve your interest, help you with your agenda? If you want to be like the divine person who comes and lives in the heart of a Christian, you have to be a person who is characterized by the magnificence of divine selflessness.
-
-Get rid of your pride. Stop promoting yourself all the time. Be like the one who lives within you.
-
-But here's the second thing. Are you on the other hand? Do you feel like an imposter?
-
-Are you struggling with rejection? In New York, there's always an audition. There's always a job interview.
-
-There's always, and we're always struggling with rejection here. Are some of you struggling on off a lot? Do you feel like a failure in many ways?
-
-Are you afraid to have any of the people around you realize how much you lack confidence? How much you right now almost load yourself? You need an advocate and you got one in heaven.
-
-You got one on earth. You really got everything you need. Avail yourself of him.
-
-Let's pray. Our Father, we thank You for the gift of the Holy Spirit. We thank You for sending another counselor into our lives.
-
-Oh, how we do. Thank You for that. And we pray that You would help us to be filled with the Spirit.
-
-We pray that You would help us to receive His counseling. We pray that You would help us to cooperate with Him as He advocates for us. And we ask that You would help us to do this as an entire church so we truly would be a Spirit-filled church.
-
-The world will do this and You'll be grateful. You'll be glad for us. You'll be, we'll be grateful to You and You'll be glorified in us.
-
-And that's what we want. We pray this in Jesus' name. Amen.
-
-Thanks for listening to today's teaching. It's our prayer that you were encouraged by it, and that it helps you apply the gospel to your life and to share it with others. For more helpful resources from Tim Keller, visit gospelandlife.com.
-
-There, you can subscribe to the life in the gospel quarterly journal. When you do, you will also receive free articles, sermons, devotionals, and other great gospel-centered resources. Again, it's all at gospelandlife.com.
-
-You can also stay connected with us on Facebook, Instagram, YouTube, and X. Today's sermon was recorded in 2010. The sermons and talks you hear on the gospel and life podcasts were recorded between 1989 and 2017, while Dr.
+And therefore, the very justice of God, the omnipotent, infallible, infinite justice of God, demands that there is no condemnation for you.
 
 ---
-
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《福音与生活》。圣灵是谁？为什么圣灵的工作对基督徒的生活如此重要？圣经告诉我们，圣灵不仅是一个模糊的力量，而是一个在基督徒生活中以深刻方式工作的有位格的人。
-
-今天，提摩太·基尔正在探讨圣灵如何召唤我们归信、使我们联合在一起、赋予我们恩赐并塑造我们成为更多像基督的人。今天的经文选自约翰福音第14章第16至26节。我还要求父，父就另外赐给你们一位保惠师，叫祂永远与你们同在，就是真理的圣灵。世人不能接受祂，因为不见祂，也不认识祂；你们却认识祂，因祂常与你们同在，也要在你们里面。
-
-我不撇下你们为孤儿，我必到你们这里来。不久之后，世界不再看见我，但你们要看见我，因为我活着，你们也必要活著。从那天起，你们就知道我在父那里，你们在我里面，我也在你们里面。凡遵守我命令的，就是爱我；爱我的人，我父也必爱他，我也要爱他，并且要向他显现。
-
-西门彼得问说：“主啊，为什么对我们要显自己，不叫世人呢？”耶稣回答说：“若有人爱我，就必遵守我的道；我父也必爱他，并且我们要到他那里去，与他同住。他如果不爱我，就不遵守我的道。你们听见的话不是我的，乃是差我来之父的话。
-
-我将这些事告诉你们，是要叫你们在我里面存平安。在世上你们有苦难，但你们可以放心，我已经胜了世界。”这是主的吩咐。在这个夏天，由于假期的原因，这里有多位讲员，为了保持统一并确保我们共同努力，我们选择了一个共同的主题：从现在一直到九月中旬，我们将探讨圣经中关于圣灵教导的教义——圣灵论。
-
-我的印象是，世界上有很多教会只谈论灵性经历，也有很多教会完全害怕这个话题，只想谈论教义和真理。但我认为解决这种失衡的方法就是圣灵的教义，因为当你越深入研究时，你会发现灵性和真理是紧密相连的。接下来几周我们将探讨这个问题。这是个引子，让我们看看这段伟大的经文向我们揭示了有关圣灵是谁、他做什么以及如何获得他的恩赐。
-
-首先，他是谁？圣灵是谁呢？顺便说一下，我刚才已经通过使用代词给你们提供了一点答案。圣灵是一个个人的存在，是基督徒心中的神圣居民。
-
-圣灵是基督徒心中的神圣居民。首先，他是一个人。你有没有注意到耶稣提到圣灵时，并没有用“它”这个词，而是用了“祂”，就像在以弗所书4:30中说的，“圣灵受了伤”。你可以伤害圣灵。
-
-希伯来书10:29 说：“你们藐视神的儿子。” 罗马书15:16 说：“圣灵爱我们。” 所以他爱，他受伤，他被轻慢，一个无形的力量无法感受到这些情感，那是一个人。但他不仅是个人，也是神。
-
-例如，在这里说，“我将祈求父，祂必另外赐给你们一位保惠师”。我们会稍后解释“保惠师”这个词的意思。但耶稣说，他是另一位保惠师，我是保惠师，他就是另一个。这里有两种希腊语用来表示“另一个”的词。
-
-一个是 hetero，意思是实际上不同于先前的；另一个是 allos，意思是另外的或不同的。其他希腊文的词是 alos，意思和前面的一样。现在你要明白耶稣在这里说的话是什么意思，因为耶稣关于自己做了些巨大的宣称。耶稣在约翰福音8章里说：“在我还没有存在之前，我是。
-
-” 耶稣拿起了摩西和燃烧的荆棘丛中神给的名字。耶稣说：“是我，我是。”在我还没有存在之前，我是。耶稣声称要赦免一切罪。
-
-你知道**这意味着什么吗？当他说到“我可以赦免一切罪”，这就意味着所有的罪都是对他而言的，因为你只能赦免那些对你而言的罪。**耶稣说他要审判世界。所以耶稣不断地宣称自己与神是平等的。
-
-现在他竟然胆敢说：“我要给你们派一个像我一样的人。” 圣灵是一个人，圣灵就是神，我们现在所探讨的是令人眼花缭乱的三一论教义。我能让你头晕吗？在这一章第二节中，我们没有读到的内容里，耶稣一直在说“我要离开”。
-
-我要离开，好的。然后这里说到，在第16节，他说：“但是圣灵要来。”再往下到第21节，他又说：“我的父，我和你们同在。” 在第21、22和23节中，他继续说：“我们将会来到你们中间。
-
-”所以他这样说：我要离开，圣灵要来，因此我也会再来。耶稣并不是说：“哦，我不是真的离开，我会以圣灵的形式来到你们这里。” 另一方面，当他说到“我要离开，而因此我不再回来”，他却说：“我是要回来的”。他是如此与圣灵合一，以至于当圣灵进入你的生命时，耶稣也来了。
-
-然而他又不是完全与圣灵相同，以至于他不在天上。明白了吗？好的？看看这有多简单？
-
-不，你知道吗，耶稣在这里说的是，并非有三个神，因为两个一合起来就是三个神。另一方面，也不是一个实体以三种形式存在。你知道的，在那里他有一半是他的父，一半是他的子，还有一半是圣灵。（原文中的比喻和幽默部分在翻译时尽量保留了原意，但可能无法完全传达出原文的幽默感。
-
-） 它不是三个神，而是两个。一个负责这个，但也不是三位一体的形式，而是三个分别代表不同的形式。它是三位一神。而我们将在接下来的一年里重新探讨这一教义。
-
-我可以告诉你，在我信仰初期，这对我来说是一个沉重的负担。我觉得太困惑了，但现在我认为这是最美好的事情之一。当我思考它时，这是我最大的喜悦之一。一旦你理解了这一点，你会发现它的美丽之处。
-
-关于三一论的具体细节，我们今天不深入讨论，因为我们今天的话题是圣灵。但我希望你们能看到，为什么这如此重要。圣灵不是一个抽象的力量。圣灵是一个在你生命中存在的神圣人物。
-
-为什么这很重要？哦，非常重要。因为圣经提到要被圣灵充满。之后我们会有一整场关于“被圣灵充满”的讲道。
-
-但被圣灵充满意味着体验到无比的神圣喜乐和能力。我想要这种经历，我也希望你们能够拥有它。那么，你怎么才能被圣灵充满呢？如果你把圣灵看作是一个抽象的力量，你寻求的方式会与理解圣灵是个人不同。
-
-如果你试图通过一个机械的方式来获取一个抽象的力量，比如东方思想中对神的看法。东方思想认为神是一个抽象的力量，并且他们通过冥想来接近这种力量，但冥想总是要清空思维、理性思考和言语。为什么？因为我们试图接触的是那种力量。
-
-而在圣经中，你会发现“冥想”这个词出现得很多。如果你理解圣灵是个人，那么你寻求的方式就会完全不同。但是基督徒的默想、圣经的默想，并不是空空如也地让理性思想和言语消失。用神的话语充满心灵，这是一种完全不同的方法。
-
-如果你这样认为，把圣灵当作一个“它”，那你就会采取一种机械的方法。事实上，我确实看到很多关于被圣灵充满的基督教教导，它们似乎将圣灵视为某种电荷。因此，要被圣灵充满，就是按某些方式祈祷、做某些事情、避免某些行为、为某些事悔改，就像是按对的按钮一样，让自己处于某种环境状态。然后它就进来了，不是“它”，不不。
-
-如果圣灵是一个人，那么被圣灵充满就像被一个活生生的人充满一样。那会是怎样呢？比如说，我记得当我年轻的时候，有时候我的父母会接待一位来访者，在我们家里住上一两天，这位访客是他们非常尊敬的人，可能是贵宾、演讲嘉宾或者是他们很看重的家人。这会影响到一切。
-
-首先，不知怎地，房子看起来特别漂亮。我们突然间把生活空间布置得井井有条，看上去格外整洁。其次，每个人都会表现得最好，而且这不是虚伪的表现。**关键是那些平时让我们感到不舒服的小事，现在都不再那么重要了，因为这个人在这里。**
-
-被圣灵充满就是让自己的生命被那位住在你生命之墙内的荣耀人物的深刻意识所改变。我之前跟你们说过，记得曾经有个男人因为婚外情毁了自己的一生。他背叛了他的妻子。他曾告诉我，每当他想把他的情人带回家时，如果他的妻子是真正的妻子的话，他会先把她的照片拿掉。
-
-他每次都要换照片，而且最近他告诉我，只要有任何一张妻子的照片，无论是他和妻子的合照还是单独妻子的照片，他都会立刻换掉。因为他和他的情人根本无法忍受妻子的照片。因为哪怕只是看到那张照片，也会影响他们的行为。你们知道谁住在你的心里吗？
-
-你的生活被圣灵的洞见所融化了吗？有没有深刻意识到那位荣耀之人的存在，从而改变你的生活方式？仅仅这种意识会让你感受到祂的同在，并且让你的生活充满正直和诚实。如果你现在所做的事，如果没有意识到祂的存在是做不出来的。
-
-你可以把照片翻过来，心想：“我可能会想一想。”当然，这也意味着要顺服圣灵的话语。被圣灵充满与被一种力量所充满是完全不同的。接下来我们要讲的是第二个要点。
-
-圣灵是住在基督徒心内的个人神。其次，圣灵做了什么？这里有两句话告诉我们祂的作用，它们非常伟大。祂是真理的圣灵，约翰福音16章17节说；祂也是顾问。
-
-祂既是真理的圣灵，又是顾问。首先，祂是真理的圣灵。**这意味着什么呢？一方面我们知道，圣灵基本上是圣经的作者。**
-
-圣灵实际上就是圣经的作者。例如，在彼得后书1章21节中提到：“没有先知凭自己的愿望说预言；因为那预言不是用意志的权力说的，乃是被圣灵感动，凭着各人的信心说出来的。”再比如约翰福音6章63节，耶稣说：“赐生命的灵”就是“从天上来的道”。> 没有先知凭自己的愿望说预言；因为那预言不是用意志的权力说的，乃是被圣灵感动，凭着各人的信心说出来的。
-
-（彼得后书1:21） > 赐生命的灵”就是“从天上来的道。（约翰福音6:63） 换句话说，你从圣经中看到的耶稣的话是由圣灵产生的。如果你接纳、接受并理解这些话，它们会给你带来永恒的生命。所以，在某种程度上，圣灵是圣经的作者。
-
-事实上，这也回到了“被圣灵充满”这个概念上，如果圣灵是一个人而不是一种力量。如果你去看以弗所书5章18节，保罗著名的那段话中说：“要被圣灵充满”，然后他列出了一个充满圣灵生活的特征清单，我们暂时不讨论这些。我们后面会有一篇关于这个主题的讲道。以弗所书5章18节提到“要被圣灵充满”，然后接着列了一个清单。
-
-如果你去看保罗写给哥林多教会的一封信，在歌罗西书3章16节中，它说：“要被圣经的话充满。”它又说：“要被圣经的话充满。” 然后它列出了一张圣经话充满生活的特征表。他说：“让圣经的话在你们里面丰富地居住”，这和“要被圣经的话充满”意思一样。
-
-接着它列了一个特征清单，这些特征和以弗所书5章18节中提到的充满圣灵生活的特征是一样的。保罗在这两处都说了类似的话：一个充满圣灵生活的人，意味着什么？看，被一个人充满、被一个人支配，就是紧紧抓住那个人的每一句话。**这意味着被圣经话语完全包围和饱和。**
-
-让圣经的话语在你里面丰富地居住，并不是简单知道这些信息并接受它们，而是要使它成为你自己的一部分。或者说，你可以看看眼镜，但这并不是我花这么多钱买它们的原因。我没有去眼科医生那里花了几百美元只为了坐在那儿对你说：“亲爱的，来帮我看看我的眼镜。”这并不是这样用的。
-
-你戴上眼镜后，你会通过它们来看待一切事物。圣经也是如此：你可以说看圣经、学习事实，但更重要的是要让它成为你的一部分。让这些话语在你心中丰富地扎根，完全被它浸透，以至于你看万事万物都通过它来理解。因此，充满神的话语和圣灵是同一件事，因为他是真理的灵。
-
-事实上，他超越了这一点。我们已经提到过这里，看第21节：“凡遵守我命令的，就是爱我的人；父必爱他，我也必爱他，并且要向他显现。”这很有趣。这意味着什么呢？
-
-显然有一些人相信耶稣，显然他们也遵行耶稣的教导并且阅读神的话语，而耶稣说他会来向他们显明自己。这是在讲圣灵的这段经文里所说的：“我将要向他们显明自己。” 那么这个意思是什么呢？难道他们不认识他吗？
-
-当然认识。这又是什么意思呢？圣灵是如何让话语变得有生命、赋予话语力量的呢？保罗在这里也提到这一点，听好了，对我来说这是《圣经》中最重要的一节经文之一。
-
-这是在以弗所书3章中，保罗说：“我为你们祈祷，愿你们照他荣耀的丰富，在所有的智慧悟性上，知道神的奥秘。”他又说：“就是基督在你们心里成了有荣耀的盼望。我也为此劳苦，并且要加增你们力能，使基督因你们住在你们心里，根深蒂固，被坚固地扎根在爱里，能明白基督的爱是何等长阔高深。” 他是在对基督徒说话，说：“靠着圣灵的能力，我为你们祈祷，愿基督因信可以住在你们的心里。
-
-”但基督已经在他们心中居住了。否则他们就不是基督徒了。然后他又说：“靠着圣灵的能力，我能帮助你们明白。” 能有力量去理解基督的爱是何等长阔高深。
-
-难道他们不知道基督的爱吗？当然，他们已经是基督徒了。他说，但我要让你知道这爱胜过知识。他在说什么呢？
-
-让我给你举个例子。约翰·金伯的灵修笔记本是一本小小的日记，他写道：“我多次在阅读圣经常常感到最大的喜悦，任何书籍都无法与之相比。很多时候，在阅读时，每一句话都似乎触动了我的心。” 我常常觉得每句话中都闪耀着如此多的光芒，并从中获得如此令人愉悦、陶醉的食物般的滋养，以至于无法继续我的阅读。
-
-我常常会花很长时间琢磨一句话，试图理解其中蕴含的奇迹。当我读圣经时，对神的认识往往会突然在我心中燃起一种甜蜜的火焰，一种我难以言表的心灵秩序。虽然他在这里做得还不错。他在说什么呢？
-
-光是阅读圣经是一件事。而圣灵来启示耶稣基督给你则是另一回事了。知道基督住在你心里是一回事，感受到祂的存在又是另一回事。我们上周实际上也谈到了这一点。
-
-知道糖是甜的是一回事，品尝它并让整个身心都被其 electrified 另一回事。你不仅知道它，还感受到了它，这就是圣灵的工作。他是客观真理的作者，因为他写了圣经，也是主观真理的作者，他让你的生命中感受到它的鲜活和力量。他让你的生活充满活力、强大且改变人生，这是圣灵所做的第一件事。
-
-但令人惊讶的是，这还不是全部。因为实际上，如果他只做到这些，他仍然只是一个顾问，或者只是在特定时间来给你某些东西的人。但他不只是这样。他还是一位顾问。
-
-这就是这一整段的主要观点。我将请求父，祂会赐给你们另一位顾问。如果你去查五六个不同的译本，把所有的译本都找出来，你会发现有五个或六个不同的词。每当看到英语译本中有非常不同的词汇时，而且在每个译本中都是如此，**这意味着这里的这个词太丰富了，一个英语单词无法完全传达其意义，所以译者们都在努力。**
-
-你们当中有些人可能拥有旧钦定版圣经，还有一些其他版本说：“我将请求父，祂会赐给你们另一位安慰者。”这个“安慰者”是一个非常温馨的词，但它确实让圣灵听起来像是一床被子。因此现在他们不再使用这个词了。但即使这个词是顾问的意思，这是一位夏令营顾问吗？
-
-还是一位婚姻顾问？不是的。实际上，译者们知道一件事，这也是为什么我们没有一个合适的词来表达它的原因。基本上，评论家们知道这个单词是paracaleo、paracleic或paracleesis。
-
-这是一个非常难以翻译的词。Para意味着不处于前面或后面，而是站在旁边。Caleo意味着宣告、召唤或争论。因此，最好的翻译方式是：我将给你们另一位辩护人。
-
-诗篇可以深刻地塑造你与神交往的方式。即使耶稣也依靠诗篇来面对每一个情况，包括死亡。在提摩太和凯瑟琳·凯勒的365天灵修读物《耶稣的歌》中，你会找到每天通过诗篇的阅读，并获得新的圣经洞见。如果你没有定期灵修的习惯，这本书是一个很好的开始方式。
-
-而如果你已经花时间在祷告中研读圣经，那么阅读和祷告诗篇可以帮助你将最深的情感和问题带到神面前，并发现与祂更深的亲密关系。我们将会为你寄送提摩太和凯瑟琳·凯勒的灵修读物作为感谢你的礼物，帮助福音与生命向更多人分享耶稣的爱。请访问gospelandlife.com/give 今天订购您的副本。这就是凯博士 凯勒和其他今天的教导一样。
-
-这个词传达了意思，但一方面，这个人是属于你的。他站在你的立场上，代表你。这个人对你忠心到最后一刻。这是一个为你最坚强的人。
-
-但另一方面，这也意味着这个人会争论。这个人会辩论。这个人会提出论据。这个人会为你辩护，对抗你的敌人。
-
-这里有柔软的一面，即同情你；也有强硬的一面。那么，为什么耶稣基督要说圣灵是你的法律顾问呢？这又是什么意思？我认为这是指：圣灵的工作就是为你辩护，对抗地上的敌人，尤其是内心的敌人。
-
-例如，在罗马书8章15节中，它说：“神没有赐给我们恐惧的心，而是赐给我们儿子的灵，使我们能呼喊‘阿爸父’。”你知道**这意味着什么？你心中充满了恐惧。**而圣灵进来争论并说：不，神爱你。
-
-你是他的孩子。下一节罗马书8章16节说：“圣灵与我们的灵一同见证，我们是神的儿女。”我们在上周讨论过这一点，但没有提到的是，“见证”这个词在希腊语中是一个技术术语，意味着在法庭上的明星证人，一个带来法律证据的人，基本上可以解决案件。所以这句话的意思是：你心中充满了疑虑和恐惧。
-
-而圣灵进来并说：不，没有什么理由怀疑。你是他的，你是被爱的。还有希伯来书12章的一个精彩段落，谈的是受苦和我们所遭遇的一切困难。在希伯来书12章中，它说：“你们忘记主的劝勉的话吗？
-
-那是作为儿女对你说的。”希腊文中的这个词意味着：我的儿子，不要轻看主的管教，因为祂是爱管教你的人。希伯来书作者引用了箴言3章，并说圣经的工作就是在你沮丧时与你争论。当你遭受苦难时，它会提醒你。
-
-坏事情发生在你身上。你觉得仿佛被遗弃了。然而，希伯来书的经文却在与你辩论。怎么辩论呢？
-
-就像孩子对父母说：“不，你是我的父亲。”他没有抛弃你。好父亲常常会让孩子经历一些考验。现在，这正是你在经历的事情。
-
-那么这一切意味着什么呢？你知道，在约翰一书3章20节中提到：“我们的心若责备我们，神比我们的心更大，一切事都审判我们。”我稍微改写一下，就是“当我们的心责备我们时，圣灵比我们的心更大”。这是圣灵的工作——他与你辩论。
-
-我们的心不喜欢恩典的概念。我们真的不喜欢福音，即我们是因着恩典得救的这个想法。我们想要赚取它，想要配得上它，这让我们掌控一切。因为我们的内心有这种想法，所以我们常常被恐惧和疑虑所困扰。
-
-当坏事发生时，我们会说：“不，他抛弃了我们。我不够好。”圣灵会进来与你辩论，他会为你辩护，用福音说服你，直到你开始放松下来。但这不仅仅是圣灵在为我们辩护免受指责。
-
-他还保护我们不受诱惑的侵害。雅各书4章有一段奇怪的文字：首先说：“你们岂不知和世人交好就是在神面前结了仇吗？”然后又说：“岂不知。”他们不知道如何翻译这一句。
-
-它实际上说的是什么？它说：“你难道没有意识到，当你开始让世界占据你的内心时，圣灵在你里面渴望得到你的爱吗？”圣灵看到我们把心给了金钱、名声、性或权力，而不是给神。然后圣灵看见我们的心被引诱远离神，知道这会毁掉我们。
-
-圣灵就以一个爱的朋友对待瘾君子的方式行事。当你爱一个人，并且看到他们因着成瘾而毁掉自己的生命时，你会怎么做？你会把他逼到角落里，说：“你是在自毁啊！我不会让你这么做的。
-
-我要面对你，反对你，因为我爱你，我不允许你这么做。”你知道吗？有时甚至会因此争执起来。你可以有朋友来告诉你，你在错，你是在自毁，我不会让你这么做的。
-
-你会因此非常生气以至于和他们争吵。但这就是当我们有了圣灵在我们生命中时的情景。这是一位朋友，一位辅导员，一位法律顾问，他绝不会让你自毁。他是荣耀的，保罗在腓立比书1章说：“神从起初拣选你们，为要你们因我们的福音，受救赎，荣耀归于神。
-
-”这位圣灵是荣耀的，他不会停止直到你成为应该成为的那个荣耀的人。他会反对任何会把你打翻在地的想法，并且不让你离开。这是一位有力量之爱的朋友。这是一位完全为你着想的朋友，**这意味着有时他是反对你的为了你好。**
-
-他说：“我本该再三考虑邀请这个人进入我的生活。”不是的，我只是希望你想想后果。因此，是圣灵的工作给你圣经，然后让这些圣经的话语在你的生命中变得真实、生动和有力。但他不只是为了给你带来属灵的经历。
-
-他进入了你的生命，并且完全致力于将你在重生时神开始的好工作，在耶稣基督的日子完成。他不会让你离开。你看，他是你的辅导员。他不像夏令营的辅导员，你回家了就结束了。
-
-他甚至不像婚姻咨询师，你可以去见一次然后说：“我从中学不到什么。”他是一位永久的法律顾问。圣灵的工作就是如此，他不会停止直到你成为神为你预定的那个荣耀的人。他是一位永恒的朋友，随时愿意对你进行干预。
-
-他是为你好的，帕拉。但他有时也会在你身上表现出反对的态度。这就是拥有圣灵的生命中的奇妙之处。最后，非常重要的一点是，你怎么才能确保自己能够获得圣灵所能提供的益处呢？
 
 我认为这个问题的答案在这段经文中可以找到。我们只关注这段文本的内容。虽然关于圣灵还有很多更深层次的东西我们可以探讨，但我们要紧贴这段文本。关键在于什么能让圣灵在你生命中发挥力量，并使你成为应该成为的人？
 
@@ -577,6 +546,44 @@ You can also stay connected with us on Facebook, Instagram, YouTube, and X. Toda
 
 如果上帝要接受两次支付同一个罪的赎金，那是不公正的。你的罪已经被偿还了。因此，上帝那无所不能、无可挑剔、无穷无尽的正义要求你没有任何定罪的理由。既然我们在天上有了这样的辩护律师，那么圣灵在人间又在做什么呢？
 
+---
+
+## 圣灵指向耶稣：照亮祂的荣耀 / The Spirit Points to Jesus: Floodlight on His Glory
+
+Now, if we've got that advocate up there doing that, what is the Holy Spirit doing down here? The Holy Spirit is our advocate on earth.
+
+Jesus Christ is our advocate in heaven. What the Holy Spirit is doing is He's taking the advocacy in heaven and applying it here on earth against the enemies in your own heart. He's pounding into you.
+
+He's dealing with your temptations. He's dealing with your pride. He's dealing with your fears.
+
+He's dealing with your accusations. And he's saying, look at what Jesus has done. The Holy Spirit, though, is not an advocate that points to himself.
+
+J. I. Packer beautifully puts it.
+
+It's in John chapter 16 where it actually says, Jesus says, the Holy Spirit will speak of me. He will glorify me. He will not speak of himself.
+
+He will speak of me. And J. I.
+
+Packer, who is an Anglican minister, one day was, he was preaching a sermon on the Holy Spirit and he was looking for a good illustration on the way to preach. He saw a floodlight. He was kind of dark at night.
+
+And he saw a floodlight lighting up an old building which in the daytime didn't look very good, but at night looked beautiful. And he suddenly realized he couldn't even tell where the floodlight was. He says, I couldn't even tell because the job of the floodlight is not to call attention to itself.
+
+The job of the floodlight is to throw into relief the beauty and the magnificence of the thing that is flooding. And he says, that's the Holy Spirit. The Holy Spirit's job is not to say, look at me.
+
+Get my power. Get my joy. The Holy Spirit's job is to say, look at Jesus.
+
+Look at the beauty of what he's done. Look at him standing up there. Look at his advocacy for you.
+
+Do you not see that there's no danger? There is no failure. There is no accusation.
+
+There is nothing that can overturn you. That can cast you down. Nothing.
+
+The Holy Spirit's job is to pull. He's an advocate on earth pointing to our advocate in heaven, making the work of the advocate in heaven so beautiful to your life that it changes it. All right, look, two things.
+
+Number one, here's two ways I would like you to change your life on the basis of what I've already said, even if you say, I've already got some things to change. All right, then these two things.
+
+---
+
 圣灵是我们地上的辩护律师。耶稣基督是我们的辩护律师在天父那里。圣灵所做的就是将天上的辩护应用到地上，对抗你心中的敌人。祂不断地敲打你的心，处理你的诱惑、骄傲、恐惧和指控。
 
 但圣灵并不是一个指向自己的辩护律师。J.I.派克完美地表达了这一点。在约翰福音16章，耶稣实际上说：“圣灵要为我作见证。他要荣耀我。
@@ -590,6 +597,52 @@ You can also stay connected with us on Facebook, Instagram, YouTube, and X. Toda
 看看他在那里站立。看看他为你辩护。你看不到危险吗？没有失败。
 
 没有指控。没有什么可以颠覆你、把你打倒的东西。圣灵的工作就是拉近，他是地上的辩护者，指向我们天上的辩护者，让天上的辩护者的工在你的生命中变得如此美丽，以至于改变它。好吧，有两点。
+
+---
+
+## 应用：神圣的舍己与你对辩护者的需要 / Application: Divine Selflessness and Your Need for an Advocate
+
+Would you please notice the magnificence of divine selflessness, the magnificence of divine selflessness?
+
+Here's Jesus Christ, emptying self of His glory in order to become a servant and die on the cross for our sins. And now, here's the Holy Spirit, not speaking of His own glory, but glorifying Jesus. There must be something deep in the heart of God that is other oriented.
+
+There's a selflessness in God. There's something in God that says, my life for yours. There's something in God that says, I'm here to serve you.
+
+Here's Jesus emptying self of His glory. Here's the Holy Spirit only showing us Jesus glory. Are you always promoting yourself?
+
+Are you always upset because people aren't giving you your due? Do you feel like you're not getting credit? Do you find yourself always getting insulted?
+
+How dare people talk to me like that or about me like that? Are you doing what a lot of New Yorkers are doing, spending all their time just trying to get up the ladder and basically only dealing with people if they serve you, serve your interest, help you with your agenda? If you want to be like the divine person who comes and lives in the heart of a Christian, you have to be a person who is characterized by the magnificence of divine selflessness.
+
+Get rid of your pride. Stop promoting yourself all the time. Be like the one who lives within you.
+
+But here's the second thing. Are you on the other hand? Do you feel like an imposter?
+
+Are you struggling with rejection? In New York, there's always an audition. There's always a job interview.
+
+There's always, and we're always struggling with rejection here. Are some of you struggling on off a lot? Do you feel like a failure in many ways?
+
+Are you afraid to have any of the people around you realize how much you lack confidence? How much you right now almost load yourself? You need an advocate and you got one in heaven.
+
+You got one on earth. You really got everything you need. Avail yourself of him.
+
+Let's pray. Our Father, we thank You for the gift of the Holy Spirit. We thank You for sending another counselor into our lives.
+
+Oh, how we do. Thank You for that. And we pray that You would help us to be filled with the Spirit.
+
+We pray that You would help us to receive His counseling. We pray that You would help us to cooperate with Him as He advocates for us. And we ask that You would help us to do this as an entire church so we truly would be a Spirit-filled church.
+
+The world will do this and You'll be grateful. You'll be glad for us. You'll be, we'll be grateful to You and You'll be glorified in us.
+
+And that's what we want. We pray this in Jesus' name. Amen.
+
+Thanks for listening to today's teaching. It's our prayer that you were encouraged by it, and that it helps you apply the gospel to your life and to share it with others. For more helpful resources from Tim Keller, visit gospelandlife.com.
+
+There, you can subscribe to the life in the gospel quarterly journal. When you do, you will also receive free articles, sermons, devotionals, and other great gospel-centered resources. Again, it's all at gospelandlife.com.
+
+You can also stay connected with us on Facebook, Instagram, YouTube, and X. Today's sermon was recorded in 2010. The sermons and talks you hear on the gospel and life podcasts were recorded between 1989 and 2017, while Dr.
+
+---
 
 首先，基于我刚才所说的内容，请允许我在你们的生活中做出两个改变。即使你说你已经有了一些需要改变的地方。好的，那么这两点是：请留意神自我牺牲的伟大，神自我牺牲的伟大。耶稣基督空出自己的荣耀，成为仆人，在十字架上为我们死。
 

@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel in Life. Many of us try to change through sheer willpower, conquering bad habits or forcing better behavior, only to find ourselves snapping back to old patterns. In today's message, Tim Keller is exploring the fruit of the Spirit, showing how real transformation isn't about moral restraint, but a heart that, through Christ, is changed from the inside out.
 
 The Scripture reading comes from Romans chapter 12 verses 10 through 21. Be devoted to one another and brotherly love, honor one another above yourselves, never be lacking in zeal but keep your spiritual fervor serving the Lord. Be joyful in hope, patient in affliction, faithful in prayer.
@@ -26,6 +28,8 @@ And therefore there are two kinds of patience. There is the patience under diffi
 
 And that's what this text, this passage that you just heard read to you, is a remarkable passage in which it talks about how to be patient and gracious to people who are opposing you, who are opposing you. It's going to give us a principle, some ideas on how to practice it, patience and grace before difficult people, and then lastly it will tell something about the power, how to get the power to do it. There's the principle, there's the practice, and then there's the power for showing patience and grace before people who are opposing you.
 
+### The Principle: Overcome Evil with Good
+
 So let's take a look at the principle first and there's a spectrum of people that we're talking about here. At one end of the spectrum are people who just don't really like you, they don't wrong you, they just don't like you, they don't work with you, they kind of work against you, they might be people at work or in your organization or whatever. These are people who just don't really work with you or help you, and then in the middle of the spectrum you've got people who have wronged you, they've hurt you, they've done an injustice to you, they've lied to you, they've cheated you in some way, and at the other end of the spectrum, the far end of the spectrum are persecutors, and persecutors are people who haven't just wronged you, they have it in for you, they want to lower your quality of life.
 
 They want to see you harmed, and so all along the spectrum from people who just work against you and are irritating to you and don't like you, to people who persecute you, what's our response supposed to be? I tell you what the response is, the default mode of the heart is involuntary, when people wrong you retaliate, when people hurt you, you just retaliate, you don't sit and say, I think I'll retaliate, it just happens, you know, I mean if you want to know what the human heart looks like, Sigmund Freud said, one must forgive one's enemies, preferably after they've been hanged, which is another way of saying, of course I will forgive them, once I've killed them, then I'll forgive them, and that is the way the human heart works, but that's not what the principle is, it's laid down here, what is the principle? It's in verse 17 and 21, and it's startling, it's amazing.
@@ -33,6 +37,8 @@ They want to see you harmed, and so all along the spectrum from people who just 
 At this point, by the way, Christianity diverges from every other religion, every other ethical system, in fact Christianity, there's no culture or society that believes this, whenever Christianity shows up in a society or culture, everybody thinks they're crazy, and here's what the principle is, verse 17, do not repay any one evil for evil, and then verse 21, do not be overcome by evil, but overcome evil with good, now you put those together, here's what that's saying, the word overcome is a military word, it means to overpower, it means to defeat, and this is what it's saying, if when someone harms you, hurts you, you just hurt them back, when someone insults you, reviles you, you revile them back, when they hurt you and you hurt them back, you have been defeated by the evil, you've lost, you've been overpowered by it, you've become part of the problem, you've become evil yourself. Maybe that person who wronged you and was trying to hurt you didn't, wasn't maybe aiming to hurt you in this way, but the point is you have just given the perpetrator exactly what he or she wanted, if you repay evil for evil, you have been overcome by the evil, the only way to defeat evil is to overcome evil with good, what's that mean, here's what it means, if someone wrongs you, if you do not respond with forgiveness, with kind and gracious answers, and by willing they're good, not willing they're harmed, but willing they're good, if you don't forgive them, do kind and gracious responses, and will they're good, you have been overcome by evil, you've been defeated, you're part of the problem, you've become evil yourself. How?
 
 Now, by the way, for a minute, we're going to get to this in a second. What does it mean to will the other persons, see, to repay evil for evil means I want to see them hurt, I want them to suffer like I've suffered, I want to bring them down, and there's really two ways to repay evil for evil, one is to go out there and bring about the painful situation yourself, and the other is to sit and not do anything but root against them, hope for, wish for that bad situation and that condition, and whenever you see them unhappy, you go, yes, see, and now that's you're still repaying evil for evil, you're still willing to evil, you're still wishing for it, you're either doing the retaliation or you're wishing you could retaliate, and so that's repaying evil for evil, and if you do that, you've been overcome by the evil, you've been defeated. How so?
+
+### How Bitterness Defeats You
 
 I'll give you a quick three. One is, if you stay angry, if you stay in a retaliation mode, or even don't retaliate, but you just stay angry, stay bitter towards someone, first of all, it distorts and poisons all of your relationships. You may think, generally what happens, people who stay angry at somebody feel like, they feel like they're accomplishing something.
 
@@ -65,6 +71,8 @@ It's a profoundly biblical theme, do you not see? And it's the reason why when J
 So that's the principle. Number one, number two, practice. There's actually a number of very, very practical ways to go about this.
 
 If you say, all right, so someone wrongs me. Now, what am I supposed to do? How do I, how do I overcome evil with good?
+
+### Five Practices: Bless, Forgive, Stay, Will Good, Oppose
 
 Let me give you five practical ideas from the text. Number one, bless, verse 14, bless those who persecute you. And the word bless probably means pray for, pray God's blessing down.
 
@@ -132,7 +140,9 @@ Of course, you know how easy it is for the person to begin to lie and lapse and 
 
 But you know, it's also possible to withhold trust from somebody as a way of hurting them. They're just refusing to let them change, of just refusing to see that they might be growing. So when somebody says, do I have to trust them, the answer is, again, no, in fact, probably if someone's wrong, you shouldn't trust them.
 
-But here's the reason why, because you want to see them grow, and you don't want to make it easy for them to keep on sinning. And that brings me to the fifth point, praying for them, forgiving them, not avoiding them, willing to go, but fifth, opposing them humbly, opposing them humbly. Now, this is a curve ball, but this is Christianity, and it's just amazing.
+But here's the reason why, because you want to see them grow, and you don't want to make it easy for them to keep on sinning.
+
+And that brings me to the fifth point, praying for them, forgiving them, not avoiding them, willing to go, but fifth, opposing them humbly, opposing them humbly. Now, this is a curve ball, but this is Christianity, and it's just amazing.
 
 You see this whole place where it says, if your enemy is hungry, feed him, if he's thirsty, give him something to drink. In doing this, you will keep burning coals on his head. Well, that's a sweet little image, isn't it?
 
@@ -192,6 +202,8 @@ And don't you see how weird this is? Almost everybody I know, either resentfully
 
 Say, loving, keeping your mouth shut, resenting, keeping your mouth open, but we're supposed to love and keep your mouth open. And nobody does that, which brings us to our last point. Where do you get the power for this?
 
+### The Power: Get Out of God's Chair
+
 Where do you get the power for this? Well, now, at first sight, you might think you get the power from a strict excitation because in verse 19, God says, literally, do not take revenge, my friends, but leave room for God's wrath. It is mind revenge.
 
 I will repay, says the Lord. Do not take revenge. Now, what does God say?
@@ -218,7 +230,11 @@ You don't know what their background is. You don't know what kind of day that pe
 
 You don't know these things. Only I know what that person deserves. So get out of my chair.
 
-But we can't end this sermon that way, because that doesn't give us power. It kind of humbles us and says, yeah, I ought to get out of the chair. But here's where you get the power to overcome you with good.
+But we can't end this sermon that way, because that doesn't give us power. It kind of humbles us and says, yeah, I ought to get out of the chair.
+
+### The King Who Became a Servant
+
+But here's where you get the power to overcome you with good.
 
 This is patience and grace in the face of opposition. It comes from the mercies of God. What's interesting?
 

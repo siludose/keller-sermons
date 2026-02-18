@@ -8,7 +8,11 @@ In today's teaching, Tim Keller impacts how Jesus actively seeks us, reveals tru
 
 So it might be a good day to follow me downstairs as we usually do after the 4 o'clock service to the East Lounge, after the service, after the post-lude, and we have questions and answers. So surely I'm going to scare out a couple of snakes that, at least to your satisfaction, I don't really nail in the course of the sermon, so jot your questions down, think about it, and come on down and we'll have questions and answers afterwards. For now, Ephesians 1, and we read, and He made known to us the mystery of His will according to His good pleasure, which He purposed in Christ to be put into effect when the times will have reached their fulfillment, to bring all things in heaven and on earth together under one head, even Christ.
 
-In Him, we also were chosen, having been predestined according to the plan of Him, who works out everything in conformity with the purpose of His will, in order that we, who were the first to hope in Christ, might be for the praise of His glory. This is God's Word. If you were to take a person out of the heart of the South American rain forest, it had never been anywhere else and put him down in the middle of time square, it would look chaotic and crazy to him.
+In Him, we also were chosen, having been predestined according to the plan of Him, who works out everything in conformity with the purpose of His will, in order that we, who were the first to hope in Christ, might be for the praise of His glory. This is God's Word.
+
+### Life Looks Chaotic Without a King
+
+If you were to take a person out of the heart of the South American rain forest, it had never been anywhere else and put him down in the middle of time square, it would look chaotic and crazy to him.
 
 He would want to know why are people rushing down into the belly of the earth through these stairways. He would want to know why these strange metallic looking animals were whizzing by on the roads, and why people were hailing the yellow ones and letting them devour them right on the spot. There would be all kinds of problems that this man would have.
 
@@ -32,11 +36,19 @@ He has a long way to go to understand what a subway is, you see. What electricit
 
 Well, the Bible comes, and it says to us, when we see our lives and history looking chaotic, it says calm down. There's an explanation. And though it's not something that, again, just in the same way, the Bible says, I can't explain it all to you overnight, but the key to it all is the kingship of Christ.
 
-And let me show you how this answers this perception, how this is the most sophisticated and wonderful and decisive answer to the apparent chaos of history. The Bible says, first of all, the kingship of Christ has two aspects, and these two aspects have to be in your mind understood and maintained as distinct but not separate. Distinct but not separate.
+And let me show you how this answers this perception, how this is the most sophisticated and wonderful and decisive answer to the apparent chaos of history.
+
+### Two Aspects of Christ's Kingship
+
+The Bible says, first of all, the kingship of Christ has two aspects, and these two aspects have to be in your mind understood and maintained as distinct but not separate. Distinct but not separate.
 
 If you don't understand the two sides of this kingship, and if you don't understand that they're not identical, but they exist together, if you don't understand both of them and see them as distinct but not separate, your life and history will look like timesquare to that poor guy. And let me explain what the two are. They're right here in the text.
 
-The first one is in the first part. It says, the mystery of his will, his good pleasure to bring all things in heaven on earth together under one head, even Christ. Now this is talking about the coming kingdom.
+The first one is in the first part. It says, the mystery of his will, his good pleasure to bring all things in heaven on earth together under one head, even Christ.
+
+### The Coming Kingdom: All Things Made New
+
+Now this is talking about the coming kingdom.
 
 Jesus Christ has a kingdom coming. His kingdom has a future aspect. I still think probably the best way to explain that is with this illustration.
 
@@ -88,6 +100,8 @@ No, you can't. Nothing compared to it. On the day in which he is made head overa
 
 Now, but that's only one aspect of his kingship. He is going to take up his kingship. He's going to have a future and complete kingship, but then there's a second aspect of his kingship that's mentioned here.
 
+### Christ Is King of History Now
+
 We've already alluded to it, and that is he is king right now of history. He may not have put down all resistance to himself yet in the world. He may not have put down all resistance to himself yet in humanity.
 
 But history has no resistance to him. He is a complete charge of every event of history. You see, the whole point of history is it says that when the times have reached their fulfillment to bring all things together in Christ and he says, in him we were chosen according to the plan of him who works out everything, everything, all things in conformity with the purpose of his will.
@@ -107,6 +121,8 @@ And yet he's taking us there because many things have to happen before we get to
 We wouldn't have understood it. We wouldn't have known that Jesus Christ had a common die. If He hadn't died and He hadn't paid for the sins of those who believed in what would have happened is, of course, God could not deal with us in an appropriate way.
 
 We didn't know that. Now we do. But there are many other things all on that road.
+
+### The Road to the Crown Goes Through the Cross
 
 In other words, God's taking us to a place where there is no pain. But the road to get to the place where there is no pain passes through pain. The road to the crown goes through the cross.
 
@@ -162,6 +178,8 @@ The doctrine of God's providence, where the word providence comes from, the word
 
 And it all is tied up in this word, everything. And I tell you, if you understand this word, everything, it'll change your life, it'll change your attitude, it'll change the way in which you handle life tomorrow. If you understand how he's exercising his kingship through providence, if you understand that everything works together according to the counsel of his will, the purpose of his will, it will change the way you live.
 
+### God's Plan Includes Little Things
+
 Let me show you. First of all, what's the word, everything mean? It means three things, A, it means, everything means God's plan includes little things.
 
 God's plan includes little things, it has to. Most of us don't think of it this way, everything. It says in Proverbs 16, the lot is cast into the lap, but the disposal is the Lord's.
@@ -204,7 +222,11 @@ That kills it and everything changes, the rest of the universe, the rest of hist
 
 If you think you'll realize there is no other way, can you imagine the terror that a thoughtful person would get up out of the bed every day with knowing that there was such a thing as a chance? Anything could happen. Knowing that the tiniest little thing could completely change everything about your life, completely change civilization.
 
-God's plan includes everything therein lies your security. Okay, secondly, the word everything means God's plan also includes our choices. How does this something that people have trouble with, right?
+God's plan includes everything therein lies your security.
+
+### God's Plan Includes Our Choices
+
+Okay, secondly, the word everything means God's plan also includes our choices. How does this something that people have trouble with, right?
 
 The first point I just made was that God's plan includes little things. Every little thing, everything is part of his plan. It says everything works out according to his plan.
 
@@ -271,6 +293,8 @@ You make a bad choice, you've made a bad choice. You make a bad choice. You do s
 There will be consequences, and yet, and yet, everything is part of this plan. You can't muck up your life. He's working in it, but lastly, his plan includes everything, therefore, little things.
 
 His plan includes everything, therefore, choices. But God's plan includes everything. His control, his kingship over history, includes everything, including bad things.
+
+### God's Plan Includes Bad Things
 
 And I know this is the toughest one, but let me tell you a story to explain. God hates the bad things, and yet, he includes the bad things. He weaves them into his plan.
 

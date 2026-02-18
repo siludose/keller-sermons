@@ -4,6 +4,8 @@
 
 ---
 
+## 引言与经文诵读 / Introduction and Scripture Reading
+
 Welcome to Gospel in Life. Many of us try to change through sheer willpower, conquering bad habits or forcing better behavior, only to find ourselves snapping back to old patterns. In today's message, Tim Keller is exploring the fruit of the Spirit, showing how real transformation isn't about moral restraint, but a heart that, through Christ, is changed from the inside out.
 
 The Scripture reading comes from Romans chapter 12 verses 10 through 21. Be devoted to one another and brotherly love, honor one another above yourselves, never be lacking in zeal but keep your spiritual fervor serving the Lord. Be joyful in hope, patient in affliction, faithful in prayer.
@@ -28,6 +30,30 @@ And therefore there are two kinds of patience. There is the patience under diffi
 
 And that's what this text, this passage that you just heard read to you, is a remarkable passage in which it talks about how to be patient and gracious to people who are opposing you, who are opposing you. It's going to give us a principle, some ideas on how to practice it, patience and grace before difficult people, and then lastly it will tell something about the power, how to get the power to do it. There's the principle, there's the practice, and then there's the power for showing patience and grace before people who are opposing you.
 
+---
+
+欢迎收听《生命中的福音》。我们很多人试图通过意志力来改变自己，克服坏习惯或强迫自己表现出更好的行为，却发现最终还是回到了旧有的模式中。今天的信息里，提摩太·基勒（Tim Keller）将探讨圣灵的果子，展示**真正的转变不是**靠道德约束，而是通过基督从内心深处被改变。圣经经文来自罗马书第12章第10节至第21节：“彼此相爱要殷勤。
+
+超过自己尊贵人的爱要彼此相顾。应当追求和睦的事，竭力保守圣灵所赐合而为一的心。存心谦卑，各人看别人比自己强。各人不要单顾自己的事，也要顾别人的事。
+
+” 与需要的人分享，款待旅客。咒诅你们的，要为他祝福；凌辱你们的，要为他祷告。被人喜悦胜过自己，被众人所憎恶。不可互相报怨，总要彼此担当，免得被剪除。
+
+至于外邦人，也要这样行。亲爱的，不要自己伸冤，宁可让步，听凭主怒。因为经上记着：“主说：‘伸冤在我，我必报应。’” 反倒若能以平安和顺从的心忍耐，就更好了。
+
+心里被圣灵充满的人，要用爱心互相宽容，诚恳地彼此饶恕，正如神在基督里饶恕了你们一样。不要让恶胜过你们；要用善胜恶。这是神的话语。加拉太书第5章第22节列出了圣灵的果子： 这些是被超自然改变的心所结出的果实：爱、喜乐、和平、忍耐，等等。
+
+每周我们都会探讨其中一种特质，以便我们自己也能体验到更多被超自然改变的心。今晚我们将探讨主题为“忍耐”。如果你曾经读过像钦定版这样的古英文译本，你会发现，在加拉太书5章22节的列表中，它会列出爱、喜乐、和平、忍耐。但在较早的英译本中，则会用“忍耐”这个词。
+
+之所以使用“忍耐”，是因为希腊文中的这个单词字面上的意思是“长时间忍受”，听起来不太乐观，但它的意思是——这就是圣经中的忍耐。忍耐是一种能够在困难中坚持而不放弃或不变得苦毒的能力。听清楚了吗？忍耐就是在困难的情况下坚持下去，而不会变得苦毒。
+
+因此，有两种类型的忍耐。一种是在困难情况下所表现的忍耐，这上周我们讨论过，当我们谈论在苦难中的平安时就提到了这一点。另一种是面对难相处的人和关系、对人的忍耐。而这正是你刚刚听到的这段经文要讲述的内容——一个非常出色的段落，它讲述了如何对待反对你的人，并对他们表现出耐心与恩典。
+
+这将给我们一些原则性的指导，告诉我们如何实践这种耐心与恩典，以及如何获得这样的力量。这里有原则、有实践方法，还有获得在面对反对你的人时表现耐心和恩典的力量。
+
+---
+
+## 原则：以善胜恶 / The Principle: Overcome Evil with Good
+
 So let's take a look at the principle first and there's a spectrum of people that we're talking about here. At one end of the spectrum are people who just don't really like you, they don't wrong you, they just don't like you, they don't work with you, they kind of work against you, they might be people at work or in your organization or whatever. These are people who just don't really work with you or help you, and then in the middle of the spectrum you've got people who have wronged you, they've hurt you, they've done an injustice to you, they've lied to you, they've cheated you in some way, and at the other end of the spectrum, the far end of the spectrum are persecutors, and persecutors are people who haven't just wronged you, they have it in for you, they want to lower your quality of life.
 
 They want to see you harmed, and so all along the spectrum from people who just work against you and are irritating to you and don't like you, to people who persecute you, what's our response supposed to be? I tell you what the response is, the default mode of the heart is involuntary, when people wrong you retaliate, when people hurt you, you just retaliate, you don't sit and say, I think I'll retaliate, it just happens, you know, I mean if you want to know what the human heart looks like, Sigmund Freud said, one must forgive one's enemies, preferably after they've been hanged, which is another way of saying, of course I will forgive them, once I've killed them, then I'll forgive them, and that is the way the human heart works, but that's not what the principle is, it's laid down here, what is the principle? It's in verse 17 and 21, and it's startling, it's amazing.
@@ -35,6 +61,34 @@ They want to see you harmed, and so all along the spectrum from people who just 
 At this point, by the way, Christianity diverges from every other religion, every other ethical system, in fact Christianity, there's no culture or society that believes this, whenever Christianity shows up in a society or culture, everybody thinks they're crazy, and here's what the principle is, verse 17, do not repay any one evil for evil, and then verse 21, do not be overcome by evil, but overcome evil with good, now you put those together, here's what that's saying, the word overcome is a military word, it means to overpower, it means to defeat, and this is what it's saying, if when someone harms you, hurts you, you just hurt them back, when someone insults you, reviles you, you revile them back, when they hurt you and you hurt them back, you have been defeated by the evil, you've lost, you've been overpowered by it, you've become part of the problem, you've become evil yourself. Maybe that person who wronged you and was trying to hurt you didn't, wasn't maybe aiming to hurt you in this way, but the point is you have just given the perpetrator exactly what he or she wanted, if you repay evil for evil, you have been overcome by the evil, the only way to defeat evil is to overcome evil with good, what's that mean, here's what it means, if someone wrongs you, if you do not respond with forgiveness, with kind and gracious answers, and by willing they're good, not willing they're harmed, but willing they're good, if you don't forgive them, do kind and gracious responses, and will they're good, you have been overcome by evil, you've been defeated, you're part of the problem, you've become evil yourself. How?
 
 Now, by the way, for a minute, we're going to get to this in a second. What does it mean to will the other persons, see, to repay evil for evil means I want to see them hurt, I want them to suffer like I've suffered, I want to bring them down, and there's really two ways to repay evil for evil, one is to go out there and bring about the painful situation yourself, and the other is to sit and not do anything but root against them, hope for, wish for that bad situation and that condition, and whenever you see them unhappy, you go, yes, see, and now that's you're still repaying evil for evil, you're still willing to evil, you're still wishing for it, you're either doing the retaliation or you're wishing you could retaliate, and so that's repaying evil for evil, and if you do that, you've been overcome by the evil, you've been defeated. How so?
+
+---
+
+让我们先来看看这个原则。这里涉及的是一系列不同的人群。
+
+在这一系列中的一端，是那些对你不太友好的人，他们并没有伤害你，只是不喜欢你，不与你合作，甚至可能在某种程度上反对你。这些人可能是你在工作场所或组织中的同事。然后，在这一系列的中间部分，有那些伤害过你、欺骗过你、做过不公平之事的人；而在这一系列的另一端，则是迫害者，他们不仅对你做了坏事，还对你怀恨在心，想降低你的生活质量。从一端到另一端，从那些反对你和让你感到烦躁的人，到那些迫害你的人，我们应有的反应是什么？
+
+我告诉你们，正确的反应是什么。人心的默认模式是自动的：当别人伤害你时，你会报复；当别人欺骗你时，你也会上钩。你不会坐下来想：“我想报复。”它就是会自然而然地发生。
+
+如果你想知道人的心灵是什么样子，西格蒙德·弗洛伊德说过，最好在处决敌人之后再原谅他们——换句话说，当然我会原谅他们，一旦我杀了他们，然后我就原谅他们了。这就是人心的运作方式。但这个原则并不是这样的。这里明确指出的原则是什么呢？
+
+它在第17节和21节中写得很清楚，非常惊人，令人惊讶。在这一点上，基督教与其他所有宗教、伦理体系都不同。事实上，在任何文化或社会中都没有人相信这个观点。每当基督教进入一个社会或文化时，人们都认为这些人疯了。
+
+圣经17节说：“不可彼此报复。”21节又说：“不要被恶败坏，却要在凡事上胜过恶，用善胜恶。”将这两句话结合起来，这就是在说什么意思。“胜过”这个词是军事术语，意思是打败、战胜。
+
+这句话的意思是：当有人伤害你、伤害你时，你就回以伤害；当有人侮辱你、辱骂你时，你也回以侮辱。当你伤害了别人，自己也被伤害时，这就意味着你已经被邪恶击败了，你输了，被它压倒了，成为了问题的一部分，你自己也成了邪恶的人。也许那个对你不公并试图伤害你的人，并不是想用这种方式来伤害你，但关键在于你已经给了施暴者他想要的回应。如果你以恶报恶，你就已经被邪恶击败了。
+
+唯一战胜邪恶的方法就是用善胜恶。那是什么意思呢？这就意味着：当有人对你不公时，你不应回以报复，而应以宽恕、仁慈和善良的回答回应他们，并愿意他们好，而不是让他们受伤害，而是让他们得到好处。如果你不原谅他们，不给予仁慈和宽恕的答复，反而让对方继续受到伤害，你就已经被邪恶击败了，你成为了问题的一部分，你自己也成了邪恶的人。
+
+你怎么会这样呢？现在，我们先稍微讨论一下这个问题。什么是“以恶报恶”？这意思是我想让他们受伤害，我希望他们像我一样痛苦，我希望把他们拉下马。
+
+实际上，“以恶报恶”有两种方式：一种是你亲自去制造痛苦的局面；另一种是坐视不管，但内心却希望、祝愿他们处于那种糟糕的境地。每当看到他们不开心时，你就会暗自高兴：“看吧，现在你终于受苦了。”这仍然是“以恶报恶”，因为你仍然愿意邪恶的事情发生，仍然希望它发生，要么亲自报复，要么希望自己能报复。所以这就是“以恶报恶”。
+
+如果你这样做，你就被邪恶所征服、打败了。
+
+---
+
+## 苦毒如何击败你 / How Bitterness Defeats You
 
 I'll give you a quick three. One is, if you stay angry, if you stay in a retaliation mode, or even don't retaliate, but you just stay angry, stay bitter towards someone, first of all, it distorts and poisons all of your relationships. You may think, generally what happens, people who stay angry at somebody feel like, they feel like they're accomplishing something.
 
@@ -67,6 +121,38 @@ It's a profoundly biblical theme, do you not see? And it's the reason why when J
 So that's the principle. Number one, number two, practice. There's actually a number of very, very practical ways to go about this.
 
 If you say, all right, so someone wrongs me. Now, what am I supposed to do? How do I, how do I overcome evil with good?
+
+---
+
+我给你举三个例子。第一点是：如果你一直生气，或者处于复仇的状态，甚至不报复但只是保持愤怒和怨恨的心态，首先，这会扭曲并毒化你所有的人际关系。你可能会觉得，通常情况下，那些对你怀有怨恨的人觉得自己在做些什么。
+
+实际上他们只是把自己固定在这种状态中。比如，假设你是男性，一个女性伤害了你，如果你一直对那个女人怀有怨恨，这将会影响你与其他女性的关系，并反过来也影响她们与你的关系；当然，这也可能影响到其他种族、阶层或国籍的人对你的情感。或者，如果有人得罪了你，你憎恨他们，不再信任任何人，这会毒化你的人际关系，扭曲你自己。不要以为这不会发生。
+
+第二点是：这不仅损害了你的人际关系，也损害了你自己，因为对你来说最糟糕的事情就是被推离福音为你所期望的境地。看看，福音明白，世界上最大的问题、几乎可以说是问题的根源是自私和自义。自义说：“我比别人好”，自私说：“我比任何人都重要”。先让我自己，先让我自己。
+
+自义说：“我比这些人更好”或者“这些人比我差”。你认为战争从哪里来？你认为我们所有的问题从何而来？这正是问题的根源。
+
+福音的核心就是要摧毁你的自义，要摧毁那个认为自己比别人好的想法。它告诉你你是罪人但靠着恩典得救了，但是如果你对某人怀有怨恨，你就是在强化你心中的自义。当你生气的时候，你在培养一个想法：你受到了如此大的伤害，你是一个高贵的人被伤害了。这样做实际上让你成为一个自私、自我怜悯、自我中心的人，这样的人会变得更有残忍性，你不觉得吗？
+
+邪恶正在获胜。你知道，我没有甲状腺。如果你是年轻人，切除甲状腺会留下疤痕；如果你是老人，那只是又多了一道皱纹。所以你看，我这里没有问题。
+
+但仔细观察你会发现我没有甲状腺，**这意味着我必须服用补充甲状腺激素的药物。**我必须吃这些药来替代因为我不再有甲状腺腺体而缺失的那种激素。但是多年前我就知道，如果我在服这种药的时候还摄入钙质，或者甚至喝含钙强化的橙汁或牛奶，钙实际上会破坏我的身体吸收甲状腺的能力。如果你已经服用了福音这颗应该消除你自私和自义的“药”，但你仍然怀有怨恨，那你就什么也得不到，你听到了吗？
+
+而且，报复和怨恨不仅伤害你的关系、伤害你的心灵，当然也会摧毁那些伤害你的人。如果有人得罪了你，你也回击他们，那你只是在强化他们的错误行为，你在强化他们的行为。你让他们觉得自己的行为是对的，而不是让他们认识到自己错了。比如，如果有人伤害了你，然后你反过来也伤害他们，他们能说“我看到了自己的错误”吗？
+
+不能。当然，这样做不仅会形成一种互相攻击、互相伤害的恶性循环，还会疏远他们的朋友。如果你不原谅，不以恩慈回应，不希望对方好起来，那么邪恶就会获胜。施暴者反而会得逞，也许不是他所预期的那种方式，但你却成了世界问题的一部分。
+
+那我们该怎么办呢？顺便说一句，那个“以善胜恶”的原则，我们不要立刻跳到国家层面去讨论，比如说中国怎么做、美国怎么做、欧洲怎么做，如果被攻击了怎么办？我只能讲一堂 sermon，这是关于你的。但我希望你知道，“以善胜恶”是圣经中一个非常深刻的主题。
+
+实际上，如果你看过《魔戒》电影或读过《魔戒》这本书，你就会发现，《魔戒》的故事主要是关于什么的？就是说有一个戒指，谁戴上它就能统治世界，这个戒指是由一位邪恶的领主制造的。但如果你用这枚戒指对抗那位邪恶的领主，自己也会变成一个邪恶的领主。所以，唯一能杀死那个邪恶领主、摧毁邪恶力量的方法不是靠权力而是靠软弱和牺牲。
+
+这是一个非常深刻的圣经主题，你难道没有看到吗？这也是为什么当耶稣基督来的时候，他并没有带来审判，而是承担了审判。这就是原则：第一，第二，实践。实际上，有几种非常实用的方法可以做到这一点。
+
+如果你说，好，那么有人得罪我了。现在我要怎么做才能"以善胜恶"呢？
+
+---
+
+## 五种实践方式 / Five Practices: Bless, Forgive, Stay, Will Good, Oppose
 
 Let me give you five practical ideas from the text. Number one, bless, verse 14, bless those who persecute you. And the word bless probably means pray for, pray God's blessing down.
 
@@ -134,7 +220,9 @@ Of course, you know how easy it is for the person to begin to lie and lapse and 
 
 But you know, it's also possible to withhold trust from somebody as a way of hurting them. They're just refusing to let them change, of just refusing to see that they might be growing. So when somebody says, do I have to trust them, the answer is, again, no, in fact, probably if someone's wrong, you shouldn't trust them.
 
-But here's the reason why, because you want to see them grow, and you don't want to make it easy for them to keep on sinning. And that brings me to the fifth point, praying for them, forgiving them, not avoiding them, willing to go, but fifth, opposing them humbly, opposing them humbly. Now, this is a curve ball, but this is Christianity, and it's just amazing.
+But here's the reason why, because you want to see them grow, and you don't want to make it easy for them to keep on sinning.
+
+And that brings me to the fifth point, praying for them, forgiving them, not avoiding them, willing to go, but fifth, opposing them humbly, opposing them humbly. Now, this is a curve ball, but this is Christianity, and it's just amazing.
 
 You see this whole place where it says, if your enemy is hungry, feed him, if he's thirsty, give him something to drink. In doing this, you will keep burning coals on his head. Well, that's a sweet little image, isn't it?
 
@@ -194,176 +282,9 @@ And don't you see how weird this is? Almost everybody I know, either resentfully
 
 Say, loving, keeping your mouth shut, resenting, keeping your mouth open, but we're supposed to love and keep your mouth open. And nobody does that, which brings us to our last point. Where do you get the power for this?
 
-Where do you get the power for this? Well, now, at first sight, you might think you get the power from a strict excitation because in verse 19, God says, literally, do not take revenge, my friends, but leave room for God's wrath. It is mind revenge.
-
-I will repay, says the Lord. Do not take revenge. Now, what does God say?
-
-You know what he's saying? Get out of my chair. Only I have the right and the ability to sit in the judgment seat.
-
-In fact, look at that, look at that, where it says, leave room for God's wrath. Isn't that interesting? This is what we're saying.
-
-This is what God is saying to you. He's saying, you don't really know what this person deserves. You don't know.
-
-You're sitting up there and you're imagining things that should happen to that person. You don't know. Look, listen, you know, I often say this way, when somebody lies to you and you get mad at them, what do you say?
-
-Lire. But if you lie to somebody, do you ever lie? Yes.
-
-Well, why do you lie? Well, it's complicated. You see, the person who's wronged you is a one-dimensional cartoon character.
-
-He's just a liar. But when you lie, well, it's very complicated. There's these extenuating circumstances.
-
-There's this and there's that. And my mother didn't love me. And all kinds of things.
-
-But guess what? The reality is somewhere in the middle. See, when you're mad at somebody, God looks at you, I think, and says, you don't not know what that person has gone through.
-
-You don't know what their background is. You don't know what kind of day that person had. You don't know what their relationship with their mother was.
-
-You don't know these things. Only I know what that person deserves. So get out of my chair.
-
-But we can't end this sermon that way, because that doesn't give us power. It kind of humbles us and says, yeah, I ought to get out of the chair. But here's where you get the power to overcome you with good.
-
-This is patience and grace in the face of opposition. It comes from the mercies of God. What's interesting?
-
-I couldn't do this. This is the problem with printing the text. Actually, chapter 12 starts up in the beginning where Paul says, I beseech you in view of the mercies of God, in view of the mercies of God.
-
-I beseech you and then he gives all these, the rest of the chapter, our various expectations on how to live. And therefore everything he says here can only be done in view of the mercies of God. Now, he could have said because of the mercies of God, and that would have worked, but he uses the word view.
-
-A view is a breathtaking experience. Panorama. And here's what Paul is saying.
-
-If you want to overcome you with good, you have to have a panoramic breathtaking view of God's mercy to you. And it's interesting that the place where Jesus talks most about forgiveness, mercy is at the heart of how he helps us forgive. Let me close by telling you the parable that he gives in Matthew 18.
-
-It's a very up-to-date parable. There was a king, and he had a servant, and the servant owed the king 10,000 talents. And commentators always freak out over that number because it really meant billions and trillions of dollars.
-
-It was a ridiculous sum. And it could not have meant, therefore, alone. No king could have possibly given any servant 10,000 talents.
-
-It must mean that the servant was a high official in the kingdom, and that through mismanagement and malfeasance, he had lost an enormous amount of money, so the very economy and the very kingdom was in jeopardy. Sound familiar? Up-to-date.
-
-So the king comes to the servant and says, where's my money? Pay me. And the servant says, I can't forgive me and the king, though he had every right to sit in judgment, forgive him.
-
-It has mercy on him. So then that servant walks along and sees a second servant. And that second servant owes the first servant, the forgiven servant, a few dollars.
-
-And the first servant says, pay me, and the second servant says, I don't have it. I don't have it. Forgive me.
-
-And this first servant says no, and throws them into prison. And when the king hears this, he grabs the first servant and he says, shouldn't you have had mercy on your fellow servant as I had mercy on you? Didn't you see my mercy?
-
-Didn't you view my mercy, says the king? Didn't you have an experience of my mercy? How can anyone who's experienced my mercy have a grudge hold their fellow servant viable?
-
-And then, at the end of the parable, he throws the first servant into prison and then Jesus ends with his chilling line. So will my heavenly Father do to you if you do not forgive your brother from the heart? You know what that means?
-
-The only way you can be spiritually lost is if you refuse to believe you're a sinner who needs to be saved by grace. The only way you can be spiritually lost, according to the Bible, is through pride, is to say, I don't need charity. You can only be lost by not believing refusing to believe that you are a sinner who needs to be saved strictly by grace.
-
-Well, then wait a minute. What is Jesus saying? Here's what he's saying, if you hold a grudge, if you retaliate against somebody else, then even though you say you believe you're a sinner saved by grace, you don't.
-
-You don't believe it. You're denying it no matter what you say. That is a picture of us, though.
-
-The most, the incongruity is you have a servant acting like a king and a judge. A servant that, no, into prison, when a servant acts like a king or a judge, it's incongruous. But that's you and me.
-
-That's why we're angry with each other. That's why we're paying each other back. That's why we're sitting in judgment.
-
-We're servants acting like kings and judges. What will change our hearts? The only thing that will change a servant from acting like a king is by getting a view of the amazing love of the king who became a servant.
-
-We should be in the dock. We put ourselves on the judgment seat, but the Lord who was on the judgment seat came down and put himself on the dock and he went to the cross. The judge of all the earth was judged.
-
-He was punished for us so that he took the punishment we deserve for all the way, which we harm each other. That's what will give you what you need to forgive. The gospel, if you believe it, if you see it, and that's what the Lord suffers about, if you see the mercy, it humbles you.
-
-You can't stay angry at somebody unless you feel superior to them. So it humbles you out of your bitterness, but it also affirms you out of your bitterness because it says, you don't have to justify yourself. I've been justified in Jesus Christ.
-
-I don't have to justify myself. I don't have to justify myself to you. I don't have to worry about my reputation.
-
-I don't care what you've done. And then you can forgive. You know, I know there's people out there who say, sometimes you've got to, you know, well, people will say, you've got to tell the truth.
-
-Of course you do. And you got to be hard. You got to be strong.
-
-Of course you do. But when Jesus Christ was dying on the cross because he was being executed unjustly in Luke 23, 34, he actually says, father forgive them. They don't know what they're doing.
-
-Would you think about that as we close? Father forgive them. They don't know what they're doing.
-
-You see the balance? First of all, he says, father, what they're doing is wrong. They need to be forgiven.
-
-They are guilty. And I'm dying for them, for their guilt. But look at it.
-
-His executioners, instead of yelling at them and screaming at them, you'll get yours. What does he say? Father, they really don't understand the magnitude of what they're doing.
-
-Jesus has something good to say about his executioners. Look at that balance. If he treats his executioners like that, how dare you and I be cold and withdrawing to people or sarcastic and insulting and slashing and burning people?
-
-How dare we talk like that? He wouldn't even talk like at the very end. Oh Lord, give us the grace and patience that can grow only out of a great view of your dying saving mercy.
-
-Let's pray. Father, the Lord's Supper is a time for us to get a view of your mercy. Give us a view of your mercy so that we can overcome evil with good.
-
-Lord, not everybody in this room is struggling with us right now, but a lot of people are. And everybody will need this. So give us the power that we need.
-
-In view of your mercy, it's to overcome evil with good. We pray in Jesus' name. Thanks for joining us here on the Gospel and Life podcast.
-
-We hope that today's teaching encouraged you to go deeper into God's word. You can help others discover this podcast by rating and reviewing it and to find more great Gospel-centered content by Tim Keller, visit gospelandlife.com. Today's sermon was recorded in 2010.
-
-The sermons and talks you hear on the Gospel and Life podcast were recorded between 1989 and 2017, while Dr.
-
 ---
 
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎收听《生命中的福音》。我们很多人试图通过意志力来改变自己，克服坏习惯或强迫自己表现出更好的行为，却发现最终还是回到了旧有的模式中。今天的信息里，提摩太·基勒（Tim Keller）将探讨圣灵的果子，展示**真正的转变不是**靠道德约束，而是通过基督从内心深处被改变。圣经经文来自罗马书第12章第10节至第21节：“彼此相爱要殷勤。
-
-超过自己尊贵人的爱要彼此相顾。应当追求和睦的事，竭力保守圣灵所赐合而为一的心。存心谦卑，各人看别人比自己强。各人不要单顾自己的事，也要顾别人的事。
-
-” 与需要的人分享，款待旅客。咒诅你们的，要为他祝福；凌辱你们的，要为他祷告。被人喜悦胜过自己，被众人所憎恶。不可互相报怨，总要彼此担当，免得被剪除。
-
-至于外邦人，也要这样行。亲爱的，不要自己伸冤，宁可让步，听凭主怒。因为经上记着：“主说：‘伸冤在我，我必报应。’” 反倒若能以平安和顺从的心忍耐，就更好了。
-
-心里被圣灵充满的人，要用爱心互相宽容，诚恳地彼此饶恕，正如神在基督里饶恕了你们一样。不要让恶胜过你们；要用善胜恶。这是神的话语。加拉太书第5章第22节列出了圣灵的果子： 这些是被超自然改变的心所结出的果实：爱、喜乐、和平、忍耐，等等。
-
-每周我们都会探讨其中一种特质，以便我们自己也能体验到更多被超自然改变的心。今晚我们将探讨主题为“忍耐”。如果你曾经读过像钦定版这样的古英文译本，你会发现，在加拉太书5章22节的列表中，它会列出爱、喜乐、和平、忍耐。但在较早的英译本中，则会用“忍耐”这个词。
-
-之所以使用“忍耐”，是因为希腊文中的这个单词字面上的意思是“长时间忍受”，听起来不太乐观，但它的意思是——这就是圣经中的忍耐。忍耐是一种能够在困难中坚持而不放弃或不变得苦毒的能力。听清楚了吗？忍耐就是在困难的情况下坚持下去，而不会变得苦毒。
-
-因此，有两种类型的忍耐。一种是在困难情况下所表现的忍耐，这上周我们讨论过，当我们谈论在苦难中的平安时就提到了这一点。另一种是面对难相处的人和关系、对人的忍耐。而这正是你刚刚听到的这段经文要讲述的内容——一个非常出色的段落，它讲述了如何对待反对你的人，并对他们表现出耐心与恩典。
-
-这将给我们一些原则性的指导，告诉我们如何实践这种耐心与恩典，以及如何获得这样的力量。这里有原则、有实践方法，还有获得在面对反对你的人时表现耐心和恩典的力量。- 原则 - 实践方法 - 获得力量 让我们先来看看这个原则。这里涉及的是一系列不同的人群。
-
-在这一系列中的一端，是那些对你不太友好的人，他们并没有伤害你，只是不喜欢你，不与你合作，甚至可能在某种程度上反对你。这些人可能是你在工作场所或组织中的同事。然后，在这一系列的中间部分，有那些伤害过你、欺骗过你、做过不公平之事的人；而在这一系列的另一端，则是迫害者，他们不仅对你做了坏事，还对你怀恨在心，想降低你的生活质量。从一端到另一端，从那些反对你和让你感到烦躁的人，到那些迫害你的人，我们应有的反应是什么？
-
-我告诉你们，正确的反应是什么。人心的默认模式是自动的：当别人伤害你时，你会报复；当别人欺骗你时，你也会上钩。你不会坐下来想：“我想报复。”它就是会自然而然地发生。
-
-如果你想知道人的心灵是什么样子，西格蒙德·弗洛伊德说过，最好在处决敌人之后再原谅他们——换句话说，当然我会原谅他们，一旦我杀了他们，然后我就原谅他们了。这就是人心的运作方式。但这个原则并不是这样的。这里明确指出的原则是什么呢？
-
-它在第17节和21节中写得很清楚，非常惊人，令人惊讶。在这一点上，基督教与其他所有宗教、伦理体系都不同。事实上，在任何文化或社会中都没有人相信这个观点。每当基督教进入一个社会或文化时，人们都认为这些人疯了。
-
-圣经17节说：“不可彼此报复。”21节又说：“不要被恶败坏，却要在凡事上胜过恶，用善胜恶。”将这两句话结合起来，这就是在说什么意思。“胜过”这个词是军事术语，意思是打败、战胜。
-
-这句话的意思是：当有人伤害你、伤害你时，你就回以伤害；当有人侮辱你、辱骂你时，你也回以侮辱。当你伤害了别人，自己也被伤害时，这就意味着你已经被邪恶击败了，你输了，被它压倒了，成为了问题的一部分，你自己也成了邪恶的人。也许那个对你不公并试图伤害你的人，并不是想用这种方式来伤害你，但关键在于你已经给了施暴者他想要的回应。如果你以恶报恶，你就已经被邪恶击败了。
-
-唯一战胜邪恶的方法就是用善胜恶。那是什么意思呢？这就意味着：当有人对你不公时，你不应回以报复，而应以宽恕、仁慈和善良的回答回应他们，并愿意他们好，而不是让他们受伤害，而是让他们得到好处。如果你不原谅他们，不给予仁慈和宽恕的答复，反而让对方继续受到伤害，你就已经被邪恶击败了，你成为了问题的一部分，你自己也成了邪恶的人。
-
-你怎么会这样呢？现在，我们先稍微讨论一下这个问题。什么是“以恶报恶”？这意思是我想让他们受伤害，我希望他们像我一样痛苦，我希望把他们拉下马。
-
-实际上，“以恶报恶”有两种方式：一种是你亲自去制造痛苦的局面；另一种是坐视不管，但内心却希望、祝愿他们处于那种糟糕的境地。每当看到他们不开心时，你就会暗自高兴：“看吧，现在你终于受苦了。”这仍然是“以恶报恶”，因为你仍然愿意邪恶的事情发生，仍然希望它发生，要么亲自报复，要么希望自己能报复。所以这就是“以恶报恶”。
-
-如果你这样做，你就被邪恶所征服、打败了。我给你举三个例子。第一点是：如果你一直生气，或者处于复仇的状态，甚至不报复但只是保持愤怒和怨恨的心态，首先，这会扭曲并毒化你所有的人际关系。你可能会觉得，通常情况下，那些对你怀有怨恨的人觉得自己在做些什么。
-
-实际上他们只是把自己固定在这种状态中。比如，假设你是男性，一个女性伤害了你，如果你一直对那个女人怀有怨恨，这将会影响你与其他女性的关系，并反过来也影响她们与你的关系；当然，这也可能影响到其他种族、阶层或国籍的人对你的情感。或者，如果有人得罪了你，你憎恨他们，不再信任任何人，这会毒化你的人际关系，扭曲你自己。不要以为这不会发生。
-
-第二点是：这不仅损害了你的人际关系，也损害了你自己，因为对你来说最糟糕的事情就是被推离福音为你所期望的境地。看看，福音明白，世界上最大的问题、几乎可以说是问题的根源是自私和自义。自义说：“我比别人好”，自私说：“我比任何人都重要”。先让我自己，先让我自己。
-
-自义说：“我比这些人更好”或者“这些人比我差”。你认为战争从哪里来？你认为我们所有的问题从何而来？这正是问题的根源。
-
-福音的核心就是要摧毁你的自义，要摧毁那个认为自己比别人好的想法。它告诉你你是罪人但靠着恩典得救了，但是如果你对某人怀有怨恨，你就是在强化你心中的自义。当你生气的时候，你在培养一个想法：你受到了如此大的伤害，你是一个高贵的人被伤害了。这样做实际上让你成为一个自私、自我怜悯、自我中心的人，这样的人会变得更有残忍性，你不觉得吗？
-
-邪恶正在获胜。你知道，我没有甲状腺。如果你是年轻人，切除甲状腺会留下疤痕；如果你是老人，那只是又多了一道皱纹。所以你看，我这里没有问题。
-
-但仔细观察你会发现我没有甲状腺，**这意味着我必须服用补充甲状腺激素的药物。**我必须吃这些药来替代因为我不再有甲状腺腺体而缺失的那种激素。但是多年前我就知道，如果我在服这种药的时候还摄入钙质，或者甚至喝含钙强化的橙汁或牛奶，钙实际上会破坏我的身体吸收甲状腺的能力。如果你已经服用了福音这颗应该消除你自私和自义的“药”，但你仍然怀有怨恨，那你就什么也得不到，你听到了吗？
-
-而且，报复和怨恨不仅伤害你的关系、伤害你的心灵，当然也会摧毁那些伤害你的人。如果有人得罪了你，你也回击他们，那你只是在强化他们的错误行为，你在强化他们的行为。你让他们觉得自己的行为是对的，而不是让他们认识到自己错了。比如，如果有人伤害了你，然后你反过来也伤害他们，他们能说“我看到了自己的错误”吗？
-
-不能。当然，这样做不仅会形成一种互相攻击、互相伤害的恶性循环，还会疏远他们的朋友。如果你不原谅，不以恩慈回应，不希望对方好起来，那么邪恶就会获胜。施暴者反而会得逞，也许不是他所预期的那种方式，但你却成了世界问题的一部分。
-
-那我们该怎么办呢？顺便说一句，那个“以善胜恶”的原则，我们不要立刻跳到国家层面去讨论，比如说中国怎么做、美国怎么做、欧洲怎么做，如果被攻击了怎么办？我只能讲一堂 sermon，这是关于你的。但我希望你知道，“以善胜恶”是圣经中一个非常深刻的主题。
-
-实际上，如果你看过《魔戒》电影或读过《魔戒》这本书，你就会发现，《魔戒》的故事主要是关于什么的？就是说有一个戒指，谁戴上它就能统治世界，这个戒指是由一位邪恶的领主制造的。但如果你用这枚戒指对抗那位邪恶的领主，自己也会变成一个邪恶的领主。所以，唯一能杀死那个邪恶领主、摧毁邪恶力量的方法不是靠权力而是靠软弱和牺牲。
-
-这是一个非常深刻的圣经主题，你难道没有看到吗？这也是为什么当耶稣基督来的时候，他并没有带来审判，而是承担了审判。这就是原则：第一，第二，实践。实际上，有几种非常实用的方法可以做到这一点。
-
-如果你说，好，那么有人得罪我了。现在我要怎么做才能“以善胜恶”呢？让我们从这段经文里提取五个实用的建议。第一点，行善，罗12:14提到要祝福那些逼迫你的人。
+让我们从这段经文里提取五个实用的建议。第一点，行善，罗12:14提到要祝福那些逼迫你的人。
 
 “祝福”这个词可能意味着为他们祷告，求神赐福给他们。即使这里的意思不是这样，我们都知道耶稣在马太福音5章中说要为逼迫你的人祷告。记住，这是极端的情况——被逼迫。想想这个吧。
 
@@ -443,7 +364,43 @@ The sermons and talks you hear on the Gospel and Life podcast were recorded betw
 
 这是对他们最坏的事情。你难道没有发现这有多奇怪吗？我认识的几乎每个人不是怨恨地质问就是宽恕并保持沉默。哦，不要掀起风浪。
 
-说，爱着，闭嘴；怨恨，开口。但我们应该爱人，并且开口。可没有人能做到这一点，这就引出了我们的最后一点：你从哪里得到这种力量？你从哪里得到这种力量？
+说，爱着，闭嘴；怨恨，开口。但我们应该爱人，并且开口。可没有人能做到这一点，这就引出了我们的最后一点：你从哪里得到这种力量？
+
+---
+
+## 力量：离开审判席 / The Power: Get Out of God's Chair
+
+Where do you get the power for this? Well, now, at first sight, you might think you get the power from a strict excitation because in verse 19, God says, literally, do not take revenge, my friends, but leave room for God's wrath. It is mind revenge.
+
+I will repay, says the Lord. Do not take revenge. Now, what does God say?
+
+You know what he's saying? Get out of my chair. Only I have the right and the ability to sit in the judgment seat.
+
+In fact, look at that, look at that, where it says, leave room for God's wrath. Isn't that interesting? This is what we're saying.
+
+This is what God is saying to you. He's saying, you don't really know what this person deserves. You don't know.
+
+You're sitting up there and you're imagining things that should happen to that person. You don't know. Look, listen, you know, I often say this way, when somebody lies to you and you get mad at them, what do you say?
+
+Lire. But if you lie to somebody, do you ever lie? Yes.
+
+Well, why do you lie? Well, it's complicated. You see, the person who's wronged you is a one-dimensional cartoon character.
+
+He's just a liar. But when you lie, well, it's very complicated. There's these extenuating circumstances.
+
+There's this and there's that. And my mother didn't love me. And all kinds of things.
+
+But guess what? The reality is somewhere in the middle. See, when you're mad at somebody, God looks at you, I think, and says, you don't not know what that person has gone through.
+
+You don't know what their background is. You don't know what kind of day that person had. You don't know what their relationship with their mother was.
+
+You don't know these things. Only I know what that person deserves. So get out of my chair.
+
+But we can't end this sermon that way, because that doesn't give us power. It kind of humbles us and says, yeah, I ought to get out of the chair.
+
+---
+
+你从哪里得到这种力量？
 
 起初，你可能会认为是从严格的克制中获得的，因为第19节说：“亲爱的弟兄啊，不要自己伸冤，宁可让步等候主的忿怒。”这是指内心的报复。主必施行报应。你们不可自行伸冤。
 
@@ -463,7 +420,93 @@ The sermons and talks you hear on the Gospel and Life podcast were recorded betw
 
 你不知道他们和母亲的关系如何。你都不知道这些事情。只有我知道那个人应得什么。所以别坐在我这个位子上。
 
-但我们不能以这种方式结束讲道，因为这样并不能给我们力量。它让我们谦卑地说：是的，我应该离开这个位子。但这里是你获得力量的地方，去用善行胜过恶。这是面对反对时的忍耐和恩典。
+但我们不能以这种方式结束讲道，因为这样并不能给我们力量。它让我们谦卑地说：是的，我应该离开这个位子。
+
+---
+
+## 成为仆人的王 / The King Who Became a Servant
+
+But here's where you get the power to overcome you with good.
+
+This is patience and grace in the face of opposition. It comes from the mercies of God. What's interesting?
+
+I couldn't do this. This is the problem with printing the text. Actually, chapter 12 starts up in the beginning where Paul says, I beseech you in view of the mercies of God, in view of the mercies of God.
+
+I beseech you and then he gives all these, the rest of the chapter, our various expectations on how to live. And therefore everything he says here can only be done in view of the mercies of God. Now, he could have said because of the mercies of God, and that would have worked, but he uses the word view.
+
+A view is a breathtaking experience. Panorama. And here's what Paul is saying.
+
+If you want to overcome you with good, you have to have a panoramic breathtaking view of God's mercy to you. And it's interesting that the place where Jesus talks most about forgiveness, mercy is at the heart of how he helps us forgive. Let me close by telling you the parable that he gives in Matthew 18.
+
+It's a very up-to-date parable. There was a king, and he had a servant, and the servant owed the king 10,000 talents. And commentators always freak out over that number because it really meant billions and trillions of dollars.
+
+It was a ridiculous sum. And it could not have meant, therefore, alone. No king could have possibly given any servant 10,000 talents.
+
+It must mean that the servant was a high official in the kingdom, and that through mismanagement and malfeasance, he had lost an enormous amount of money, so the very economy and the very kingdom was in jeopardy. Sound familiar? Up-to-date.
+
+So the king comes to the servant and says, where's my money? Pay me. And the servant says, I can't forgive me and the king, though he had every right to sit in judgment, forgive him.
+
+It has mercy on him. So then that servant walks along and sees a second servant. And that second servant owes the first servant, the forgiven servant, a few dollars.
+
+And the first servant says, pay me, and the second servant says, I don't have it. I don't have it. Forgive me.
+
+And this first servant says no, and throws them into prison. And when the king hears this, he grabs the first servant and he says, shouldn't you have had mercy on your fellow servant as I had mercy on you? Didn't you see my mercy?
+
+Didn't you view my mercy, says the king? Didn't you have an experience of my mercy? How can anyone who's experienced my mercy have a grudge hold their fellow servant viable?
+
+And then, at the end of the parable, he throws the first servant into prison and then Jesus ends with his chilling line. So will my heavenly Father do to you if you do not forgive your brother from the heart? You know what that means?
+
+The only way you can be spiritually lost is if you refuse to believe you're a sinner who needs to be saved by grace. The only way you can be spiritually lost, according to the Bible, is through pride, is to say, I don't need charity. You can only be lost by not believing refusing to believe that you are a sinner who needs to be saved strictly by grace.
+
+Well, then wait a minute. What is Jesus saying? Here's what he's saying, if you hold a grudge, if you retaliate against somebody else, then even though you say you believe you're a sinner saved by grace, you don't.
+
+You don't believe it. You're denying it no matter what you say. That is a picture of us, though.
+
+The most, the incongruity is you have a servant acting like a king and a judge. A servant that, no, into prison, when a servant acts like a king or a judge, it's incongruous. But that's you and me.
+
+That's why we're angry with each other. That's why we're paying each other back. That's why we're sitting in judgment.
+
+We're servants acting like kings and judges. What will change our hearts? The only thing that will change a servant from acting like a king is by getting a view of the amazing love of the king who became a servant.
+
+We should be in the dock. We put ourselves on the judgment seat, but the Lord who was on the judgment seat came down and put himself on the dock and he went to the cross. The judge of all the earth was judged.
+
+He was punished for us so that he took the punishment we deserve for all the way, which we harm each other. That's what will give you what you need to forgive. The gospel, if you believe it, if you see it, and that's what the Lord suffers about, if you see the mercy, it humbles you.
+
+You can't stay angry at somebody unless you feel superior to them. So it humbles you out of your bitterness, but it also affirms you out of your bitterness because it says, you don't have to justify yourself. I've been justified in Jesus Christ.
+
+I don't have to justify myself. I don't have to justify myself to you. I don't have to worry about my reputation.
+
+I don't care what you've done. And then you can forgive. You know, I know there's people out there who say, sometimes you've got to, you know, well, people will say, you've got to tell the truth.
+
+Of course you do. And you got to be hard. You got to be strong.
+
+Of course you do. But when Jesus Christ was dying on the cross because he was being executed unjustly in Luke 23, 34, he actually says, father forgive them. They don't know what they're doing.
+
+Would you think about that as we close? Father forgive them. They don't know what they're doing.
+
+You see the balance? First of all, he says, father, what they're doing is wrong. They need to be forgiven.
+
+They are guilty. And I'm dying for them, for their guilt. But look at it.
+
+His executioners, instead of yelling at them and screaming at them, you'll get yours. What does he say? Father, they really don't understand the magnitude of what they're doing.
+
+Jesus has something good to say about his executioners. Look at that balance. If he treats his executioners like that, how dare you and I be cold and withdrawing to people or sarcastic and insulting and slashing and burning people?
+
+How dare we talk like that? He wouldn't even talk like at the very end. Oh Lord, give us the grace and patience that can grow only out of a great view of your dying saving mercy.
+
+Let's pray. Father, the Lord's Supper is a time for us to get a view of your mercy. Give us a view of your mercy so that we can overcome evil with good.
+
+Lord, not everybody in this room is struggling with us right now, but a lot of people are. And everybody will need this. So give us the power that we need.
+
+In view of your mercy, it's to overcome evil with good. We pray in Jesus' name. Thanks for joining us here on the Gospel and Life podcast.
+
+We hope that today's teaching encouraged you to go deeper into God's word. You can help others discover this podcast by rating and reviewing it and to find more great Gospel-centered content by Tim Keller, visit gospelandlife.com. Today's sermon was recorded in 2010.
+
+The sermons and talks you hear on the Gospel and Life podcast were recorded between 1989 and 2017, while Dr.
+
+---
+
+但这里是你获得力量的地方，去用善行胜过恶。这是面对反对时的忍耐和恩典。
 
 这一切都源自上帝的怜悯。有趣的是？我自己做不到这一点。这就是打印文本的问题所在。
 

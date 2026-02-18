@@ -4,6 +4,8 @@
 
 ---
 
+## 引言与经文诵读 / Introduction and Scripture Reading
+
 **Introduction:**
 
 Welcome to Gospel in Life. During January, we are inviting our listeners to consider becoming a Gospel in Life monthly partner. If you'd like to learn more, keep listening at the end of today's podcast for details.
@@ -25,6 +27,26 @@ If you commit adultery but do not commit murder, you have become a lawbreaker. H
 What good is it, my brothers, if a man claims to have faith but has no deeds? Can such a faith save him? Suppose a brother or sister is without clothes and daily food.
 
 If one of you says to him, go, I wish you well, keep warm and well fed, but does nothing about his physical needs, what good is it? In the same way, faith by itself, if it is not accompanied by action, is dead. This is God's Word.
+
+---
+
+**引言：** 欢迎来到生命中的福音。在一月份，我们邀请听众考虑成为生命中的福音月度合作伙伴。如果您想了解更多信息，请在今天的播客结束时继续收听。您是否曾想过真正伟大生活的意义是什么？
+
+圣经说，十诫不是限制性的规则，而是建立真正伟大生活的框架。今天，蒂姆·凯勒深入探讨了十诫之一，帮助我们理解按照上帝的设计生活意味着什么，自由、完整，并扎根于祂的爱中。**经文诵读（雅各书 2：1-17）：** 荣耀的主耶稣基督，不要偏心。假设一个人戴着金戒指，穿着华丽的衣服来到你们的聚会，还有一个穿着破旧衣服的穷人也来了。
+
+如果你特别关注穿着华丽衣服的人，说，这里有个好座位给你，但对穷人说，你站在那里，或者坐在我脚边的地板上，难道你们不是在自己中间歧视并成为心怀恶意的法官吗？听着，我亲爱的弟兄们，上帝不是选择了那些在世人眼中贫穷的人，使他们在信心上富足，并继承祂应许给那些爱祂之人的国度吗？但你们却侮辱了穷人。难道不是富人正在剥削你们吗？
+
+他们不是把你们拖进法庭吗？他们不是诽谤你们所属之名的贵族吗？如果你们真正遵守经上的王法，爱邻如己，你们就做得对。但如果你们偏心，你们就犯罪，并被律法定罪为违法者。
+
+因为无论谁遵守全部律法，却在一点上跌倒，就等于犯了全部的罪。因为那说不可奸淫的，也说不可杀人。如果你犯奸淫却不杀人，你就成为违法者。听着，要像那些将要被给予自由的律法审判的人一样说话和行动，因为对没有怜悯的人将会有无怜悯的审判。
+
+怜悯胜过审判。我的弟兄们，如果一个人声称有信心却没有行为，那有什么好处呢？这样的信心能救他吗？假设一个弟兄或姐妹没有衣服和日常食物。
+
+如果你们中有人对他说，去吧，我祝你安好，保暖吃饱，却不解决他的实际需要，那有什么好处呢？同样，信心本身如果没有行动伴随，就是死的。这是上帝的话语。
+
+---
+
+## 第八诫与激进的慷慨 / The Eighth Commandment and Radical Generosity
 
 2. **The Eighth Commandment and Radical Generosity:**
 
@@ -64,6 +86,38 @@ Needing, human beings need to have a part of the world that is theirs to take ca
 
 But if that money is somebody else's and you're not generous with it, as the owner directs, it's robbery, it's embezzlement. And that's what we can say, a thief is no longer a thief when he's generous. That's when he stops being a thief, when he's radically generous.
 
+---
+
+**第八诫与激进的慷慨：** 上周和这周，我们在看第八诫。
+
+我们一直在研究十诫，第八诫是，不可偷盗。上周我们提到，对我来说，最有趣的经文之一是以弗所书 4：28。**以弗所书 4：28（和合本）：** > "偷窃的人不要再偷，总要劳力，亲手做益处的事，叫有缺乏的人有分受。" 这是以最惊人的方式表达的。
+
+小偷还没有停止成为小偷，直到他变得慷慨。换句话说，要遵守第八诫，仅仅不偷是不够的。要遵守第八诫，你必须是激进的慷慨。你必须是激进的慷慨，否则你就是小偷。
+
+这是圣经所说的。激进的慷慨不仅仅是愿意掏钱。激进的慷慨是一种生活态度。这是一种对待你财产的态度，这实际上是一种对待你自己的态度。
+
+这是一种愿意借出你的财产的态度，是一种不那么占有你的财产的态度。不那么保护你的空间、你的东西、你的时间、你的金钱。这是一种对待你的空间和自己的态度，是让人们进入，是对看到需求并满足它们的异常敏感。我记得一次圣经学习后，那位在家中举行圣经学习的女士几乎泪流满面地走向圣经学习的领袖。
+
+她说，你不能再在这里举行圣经学习了。我的家具都被刮花了，咖啡蛋糕的碎屑被磨进了我的地毯里。圣经学习的领袖看着她说，我亲爱的朋友，总有一天地球会在太阳中燃烧。太阳会熄灭，地球会燃烧。
+
+所有的地毯都会被烧毁。房间里的人和上帝的话语将永存。你想把你的钱投入到会被烧毁的东西上，还是投入到会永存的东西上？嗯，他很粗鲁，但他说得对。
+
+我不认为他应该那样说。他说，我是牧师，我是传道人。作为牧师，我认为他很不敏感，但作为传道人，他是对的。如果你不是激进的慷慨，你就是小偷。
+
+现在，是什么理由呢？那个非凡声明的理由是**基督教对财富的理解**。资本主义本身说，你的钱是你自己的，你可以随心所欲地使用它。共产主义或社会主义说，你赚的钱是人民的，你必须根据社区的需要使用它。
+
+而基督徒说，你赚的钱是上帝的，你必须按照他的指示使用它。这是三个非常不同的系统。资本主义总是有一个问题，就是社会不公。你如何真正给人们足够强大的动机让他们慷慨呢？
+
+而共产主义有一个类似的问题——动机问题。共产主义的问题是剥夺了人们的所有权，然后他们缺乏生产的动力。而且他们缺乏拥有权带来的人的尊严。人类需要拥有一个属于他们的世界的一部分来照顾。
+
+但基督教说，你拥有的财富，你享受它，它是你的，你作为受托人来照顾它，但你必须按照你的主人——就是上帝——指示慷慨地给予。他指示你将其给予福音的工作，给予穷人和有需要的基督徒。结果，你可以说，如果那笔钱是你的，而你不慷慨，你就是吝啬。但如果那笔钱是别人的，而你不按照主人的指示慷慨地给予，那就是抢劫，那就是挪用。
+
+这就是我们可以说，一个小偷不再是小偷，当他慷慨的时候。那就是他停止成为小偷的时候。
+
+---
+
+## 财富、财产与信仰的本质 / Wealth, Possessions, and the Essence of Faith
+
 **Real Faith is Radically Generous:**
 
 Now, why spend another week on it? Because you know, the Bible is so full of this teaching, it's very, very, very difficult. A number of people said, why don't you get back and preach on sex again, and I will.
@@ -71,6 +125,18 @@ Now, why spend another week on it? Because you know, the Bible is so full of thi
 And yet, frankly, the Bible doesn't say as much about sex as it does about money. In fact, the entire gospel of Luke is almost about money. And the thing we're going to talk about today is a very important principle that we see here and it's throughout scripture, and that is, your attitude toward your wealth and your possessions is not an incidental or a peripheral or an optional issue.
 
 It's at the very essence of what faith is, and it's at the heart of what it is to be a Christian. It's not like, well, I can be a Christian and then what I do with my wealth and possessions is something I'll get to someday. This passage tells us, and the Bible tells us, that your attitude toward wealth and possessions is of the essence of faith, it's at the heart of being a Christian.
+
+---
+
+****真正的信心是**激进的慷慨：** 现在，为什么要再花一周时间呢？因为你知道，圣经充满了这种教导，这非常非常非常困难。
+
+很多人说，为什么你不回去再讲讲性，我会的。然而，坦率地说，圣经关于金钱的内容比关于性的内容要多。事实上，整个路加福音几乎都是关于金钱的。我们今天要谈论的事情是一个非常重要的原则，它贯穿整个圣经，那就是：**你对待财富和财产的态度不是一个偶然的或边缘的或可选的问题。
+
+它是信仰的本质，它是成为基督徒的核心。**
+
+---
+
+## 迫害、物质主义与早期教会 / Persecution, Materialism, and the Early Church
 
 Recently I was talking to somebody, a friend of mine from England, called me and he said, pray for me. He called me a week ago. He says, I'm going to Romania.
 
@@ -106,6 +172,34 @@ They stand out. How do we do? How do we do?
 
 Do we stand out? Is the world marveling? Look, this particular passage we read, it's a long passage, very involved, and I just want to point out three important things that this passage teaches along the lines of what we've already been saying.
 
+---
+
+它不像是说，我可以成为基督徒，然后我对待财富和财产的方式是我将来会处理的事情。这个段落告诉我们，圣经告诉我们，你对待财富和财产的态度是信仰的本质，它是成为基督徒的核心。**物质主义与早期教会的对比：** 最近我和一个英国朋友谈话，他打电话给我说，"为我祈祷。
+
+我要去罗马尼亚。"我问为什么，他说： > 我们在英国与罗马尼亚的基督徒有很多联系。罗马尼亚一直是一个封闭的国家，基督徒一直受到迫害。现在大门打开了，我们要去拜访我们的朋友，带罗马尼亚的圣经。
+
+他特别强调："在所有的东欧国家中，教会在最受迫害的地方最有活力。罗马尼亚是所有东欧教会中最有活力的，因为它受到的迫害最严重。祈祷现在那里的自由不会让它在属灵上流失。"你可能会轻描淡写地说，"这是他们和我们的区别。
+
+这就是为什么他们如此有活力——因为受到迫害。"但这是一个错误，是一个肤浅的分析。****真正的区别在于物质主义。** 是**的，有迫害，但迫害使得他们和我们的区别在于**物质主义的程度**。
+
+那些受迫害教会没有建筑物，几乎没有财产，他们分享所拥有的，他们就像早期的教会。**罗马皇帝朱利安的见证：** 早期的教会让罗马人惊讶，因为他们在文化中两个方面脱颖而出： - 第一，他们的性纯洁 - 第二，他们的财务慷慨 他们在性方面是纯洁的，但在金钱方面却是慷慨的。他们把钱到处给。世界感到惊讶。
+
+一个早期的罗马皇帝，叫朱利安的人，拼命想要消灭基督徒。他生活在公元三世纪，当基督徒不断增加并接管了一切时，朱利安给他的一个异教祭司朋友写了一封非常不满的信。在信中他说： > "我不知道该怎么办，基督徒在增加。你知道他们为什么在增加吗？
+
+罗马为这些基督徒的迷信进步做出了贡献，因为他们对陌生人的慈善。那些不敬虔的加利利人不仅为自己的穷人提供，还为我们的穷人提供。" 这不是很惊人吗？这里有一个罗马皇帝试图找出**基督教为什么像野火一样传播**的原因。
+
+是什么赋予了它的动力？当然，朱利安不是基督徒，他无法理解一切，但他看到了罗马世界其他人看到的东西。**答案是什么？激进的慷慨。
+
+** 犹太人照顾犹太穷人，希腊人照顾希腊穷人，罗马人照顾罗马穷人。但这些基督徒不同——他们把他们的慷慨撒在每个人身上，这是闻所未闻的。不仅如此，这是极具吸引力的。教会在受迫害的地方传播，主要是因为基督徒对彼此和周围的人是激进的慷慨。
+
+他们脱颖而出。现在问题是：我们做得怎么样？我们脱颖而出吗？世界在惊叹吗？
+
+这段经文很长、很复杂，我想指出其中的三个重要事情。
+
+---
+
+## 真信心的三个特征 / Three Marks of Real Faith
+
 This passage says, the way you can tell real faith, the way you can tell true saving faith, is that it inevitably leads to radical generosity. In fact, this passage says, real faith, not nominal faith, not just a claim or profession of Christianity, not just an emotional experience of Christianity, but real faith has three characteristics. It's radically generous, it's radically gracious, and it's radically practical.
 
 Those three things. Now, let's just take a look at them. Most of you usually get those three things written down on your sheet in the bullet, and they're not there.
@@ -117,6 +211,20 @@ I'm looking at these verses. He can act as those who are going to be judged by t
 And then it goes on in verse 14, and says, what good is it, my brothers, if a man claims to have faith but has no deeds? Can that faith save him? How do you know the difference between saving faith and just emotional or lip service?
 
 The answer is radical generosity. And it says, on judgment day, the way we can tell people who have got real faith is by their mercy. There will be judgment without mercy for those who have shown no mercy.
+
+---
+
+首先，**这段经文说，你可以辨别**真正的信心的方法是**它不可避免地导致激进的慷慨。** 事实上，这段经文说，**真正的信心——不是**名义上的信心，不仅仅是基督教的声明或宣言，不仅仅是基督教的情感体验——而是有三个特征： 1。**它是激进的慷慨** 2。
+
+**它是激进的恩典** 3。**它是激进的实用** 现在让我们看看这三件事。**第一，激进的慷慨：** 雅各书告诉我们：要像那些将要被给予自由的律法审判的人一样说话和行动，因为对没有怜悯的人将会有无怜悯的审判。怜悯胜过审判。
+
+然后在第 14 节继续说，如果一个人声称有信心却没有行为，那有什么好处呢？**你怎么知道救赎信心和仅仅是情感或口头服务之间的区别？答案是激进的慷慨。** 在审判日，我们可以辨别出真正信心的人是通过他们的怜悯。
+
+对没有怜悯的人将会有无怜悯的审判。
+
+---
+
+## 圣经中"怜悯"的含义 / The Biblical Meaning of Mercy
 
 Now the word mercy is interesting here. In the New Testament, mercy can have a broader and a more specific meaning. It can have a broader meaning and a specialized meaning.
 
@@ -157,6 +265,36 @@ Paul never says we walk by faith, not by thinking, because faith and reason, fai
 When we put our faith in them, deep down, we know they can't satisfy our deepest longings. The truth is that we've made lesser gods of good things, things that can't give us what we really need. In his book, Counterfeit Gods, The Empty Promises of Money, Sex and Power and the Only Hope That Matters, Tim Keller shows us how a proper understanding of the Bible reveals the truth about societal ideals and our own hearts and shows us that there is only one God who can wholly satisfy our desires.
 
 This month, we'll send you Counterfeit Gods as our thank you for your gift to help Gospel & Life share the love of Christ with people all over the world. You can request your copy at gospelandlife.com slash give. That's gospelandlife.com slash give.
+
+---
+
+**"怜悯"这个词的含义：** "怜悯"这个词在这里很有趣。在新约中，怜悯可以有两种含义： - **广义上的含义：** 看到某人、爱他们并给予帮助。这就是怜悯。
+
+- **具体的圣经含义：** 帮助某人解决他们的经济、身体、实际需要。**圣经中的例子：** 在 *马太福音 18：21-35* 的比喻中，一个国王的仆人欠他一万他连得的债。国王免除了他的经济债务。后来他对没有怜悯的仆人说： **马太福音 18：33（和合本）：** > "你不应当怜恤你的同伴，像我怜恤你吗？
+
+" 所以，经济上的帮助就是**怜悯**。当瞎子向耶稣呼求"人子啊，怜悯我"时，他在用怜悯这个词的具体方式： > "我有一个身体问题。我有一个实际问题。我是盲人。
+
+对我的身体做点什么。对我的身体痛苦做点什么。" **最重要的例子是好撒玛利亚人的比喻。** 撒玛利亚人在路上发现一个人，他做了什么？
+
+- 他把他扶起来 - 给他交通工具 - 给他医疗护理 - 给他经济补贴 - 整夜照顾他的伤口 这是实际的、社会的工作。最后，耶稣说："那就是有怜悯的人。" 怜悯这个词在圣经中常常具有**经济、身体帮助的具体意义**。****真正的宗教是**什么？
+
+** 现在在上下文中，怜悯这个词在第 12、13 节中是什么意思呢？这很清楚。**雅各书 1：27（和合本）：** > "在神我们的父面前，那清洁没有玷污的虔诚，就是看顾在患难中的孤儿寡妇，不被世俗沾染。" 然后在第 2 章，雅各说要尊重穷人。
+
+在第 15 节，他给出了一个具体的例子： > "如果你看到某人没有基本的生活必需品，而你不处理他们的需要，如果你不喂养他们（如果他们饿了），那有什么好处呢？" 这很清楚。**怜悯将没有审判。对没有怜悯的人将会有无怜悯的审判，但怜悯胜过审判。
+
+** 这只是说，在审判日，**你的怜悯将显示你的信心是否真实。**如果有怜悯从那信心中产生，那表明你的信心是真实的，你将不会被审判。但如果没有怜悯，那表明你的信心不真实，你将会被审判。**重要说明：** 这并不教导上帝因我们的慷慨而拯救我们。
+
+它教导说，如果我们相信并因信仰耶稣而得救，恩典和怜悯，那么任何**真正的信仰中都会有恩典和怜悯成长。**什么是**信心？** 雅各告诉我们很多关于信心的事情。有些人非常关心信心，因为他们发现信心是一个神秘的东西。
+
+但这一章可以告诉我们很多关于信心的真相。**哥林多后书 5：7（和合本）：** > "因为我们行走是凭着信心，不是凭着眼见。" **重要的是：** - 保罗从未说过"我们凭信心行走，而不是凭理性" - 保罗从未说过"我们凭信心行走，而不是凭思考" 为什么？因为**信心和理性，信心和思考并不对立**。
+
+信心和眼见是对立的，因为**信心是被真理控制的**。我们都追求成功、真爱或完美的生活，这些好东西很容易成为终极的东西。当我们把信心放在它们上面时，深知它们无法满足我们最深的渴望。真相是，我们把好的东西变成了次等的神，无法给我们真正需要的东西。
+
+在他的书《假神：金钱、性与权力的空虚承诺和唯一重要的希望》中，蒂姆·凯勒向我们展示了如何正确理解圣经揭示社会理想和我们内心的真相，并向我们展示只有一位上帝能完全满足我们的欲望。本月，我们将赠送您《假神》作为感谢您帮助生命中的福音与世界各地的人们分享基督之爱的礼物。您可以在gospelandlife.com/give请求您的副本。那就是gospelandlife.com/give.现在请听凯勒博士今天教学的其余部分。
+
+---
+
+## 凭信心行走而非凭眼见 / Walking by Faith, Not by Sight
 
 Now here's Dr. Keller with the rest of today's teaching. Let me give you a couple of illustrations.
 
@@ -248,7 +386,9 @@ You look at things and you say, wait a minute, look, if you have an opportunity 
 
 Are you looking at the ways or are you looking at Jesus? Are you walking by faith or by sight? Don't you see that the essence of faith is to be controlled by who God is and that will show itself up in your attitude toward your money and toward your possessions and toward things.
 
-Real faith is radically generous. That's the main thing that the Bible, this passage teaches. **Real Faith is Radically Gracious:**
+Real faith is radically generous. That's the main thing that the Bible, this passage teaches.
+
+**Real Faith is Radically Gracious:**
 
 The other two things I can be briefer about, number one.
 
@@ -310,7 +450,9 @@ My pride, my bad habits, my sins will all fall before his triumphant love. Becau
 
 Because he loves me. And anybody who's grabbed that becomes gracious to people around. Absolutely gracious.
 
-Absolutely. **Real Faith is Radically Practical:**
+Absolutely.
+
+**Real Faith is Radically Practical:**
 
 Last thing. Real faith is radically practical.
 
@@ -359,99 +501,6 @@ That website again is gospelandlife.com slash partner. Today's sermon was record
 Keller was Senior Pastor at Redeemer Presbyterian Church. You can also visit us at www.gospelandlife.com. Thank you for listening.
 
 ---
-
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-**引言：** 欢迎来到生命中的福音。在一月份，我们邀请听众考虑成为生命中的福音月度合作伙伴。如果您想了解更多信息，请在今天的播客结束时继续收听。您是否曾想过真正伟大生活的意义是什么？
-
-圣经说，十诫不是限制性的规则，而是建立真正伟大生活的框架。今天，蒂姆·凯勒深入探讨了十诫之一，帮助我们理解按照上帝的设计生活意味着什么，自由、完整，并扎根于祂的爱中。**经文诵读（雅各书 2：1-17）：** 荣耀的主耶稣基督，不要偏心。假设一个人戴着金戒指，穿着华丽的衣服来到你们的聚会，还有一个穿着破旧衣服的穷人也来了。
-
-如果你特别关注穿着华丽衣服的人，说，这里有个好座位给你，但对穷人说，你站在那里，或者坐在我脚边的地板上，难道你们不是在自己中间歧视并成为心怀恶意的法官吗？听着，我亲爱的弟兄们，上帝不是选择了那些在世人眼中贫穷的人，使他们在信心上富足，并继承祂应许给那些爱祂之人的国度吗？但你们却侮辱了穷人。难道不是富人正在剥削你们吗？
-
-他们不是把你们拖进法庭吗？他们不是诽谤你们所属之名的贵族吗？如果你们真正遵守经上的王法，爱邻如己，你们就做得对。但如果你们偏心，你们就犯罪，并被律法定罪为违法者。
-
-因为无论谁遵守全部律法，却在一点上跌倒，就等于犯了全部的罪。因为那说不可奸淫的，也说不可杀人。如果你犯奸淫却不杀人，你就成为违法者。听着，要像那些将要被给予自由的律法审判的人一样说话和行动，因为对没有怜悯的人将会有无怜悯的审判。
-
-怜悯胜过审判。我的弟兄们，如果一个人声称有信心却没有行为，那有什么好处呢？这样的信心能救他吗？假设一个弟兄或姐妹没有衣服和日常食物。
-
-如果你们中有人对他说，去吧，我祝你安好，保暖吃饱，却不解决他的实际需要，那有什么好处呢？同样，信心本身如果没有行动伴随，就是死的。这是上帝的话语。**第八诫与激进的慷慨：** 上周和这周，我们在看第八诫。
-
-我们一直在研究十诫，第八诫是，不可偷盗。上周我们提到，对我来说，最有趣的经文之一是以弗所书 4：28。**以弗所书 4：28（和合本）：** > "偷窃的人不要再偷，总要劳力，亲手做益处的事，叫有缺乏的人有分受。" 这是以最惊人的方式表达的。
-
-小偷还没有停止成为小偷，直到他变得慷慨。换句话说，要遵守第八诫，仅仅不偷是不够的。要遵守第八诫，你必须是激进的慷慨。你必须是激进的慷慨，否则你就是小偷。
-
-这是圣经所说的。激进的慷慨不仅仅是愿意掏钱。激进的慷慨是一种生活态度。这是一种对待你财产的态度，这实际上是一种对待你自己的态度。
-
-这是一种愿意借出你的财产的态度，是一种不那么占有你的财产的态度。不那么保护你的空间、你的东西、你的时间、你的金钱。这是一种对待你的空间和自己的态度，是让人们进入，是对看到需求并满足它们的异常敏感。我记得一次圣经学习后，那位在家中举行圣经学习的女士几乎泪流满面地走向圣经学习的领袖。
-
-她说，你不能再在这里举行圣经学习了。我的家具都被刮花了，咖啡蛋糕的碎屑被磨进了我的地毯里。圣经学习的领袖看着她说，我亲爱的朋友，总有一天地球会在太阳中燃烧。太阳会熄灭，地球会燃烧。
-
-所有的地毯都会被烧毁。房间里的人和上帝的话语将永存。你想把你的钱投入到会被烧毁的东西上，还是投入到会永存的东西上？嗯，他很粗鲁，但他说得对。
-
-我不认为他应该那样说。他说，我是牧师，我是传道人。作为牧师，我认为他很不敏感，但作为传道人，他是对的。如果你不是激进的慷慨，你就是小偷。
-
-现在，是什么理由呢？那个非凡声明的理由是**基督教对财富的理解**。资本主义本身说，你的钱是你自己的，你可以随心所欲地使用它。共产主义或社会主义说，你赚的钱是人民的，你必须根据社区的需要使用它。
-
-而基督徒说，你赚的钱是上帝的，你必须按照他的指示使用它。这是三个非常不同的系统。资本主义总是有一个问题，就是社会不公。你如何真正给人们足够强大的动机让他们慷慨呢？
-
-而共产主义有一个类似的问题——动机问题。共产主义的问题是剥夺了人们的所有权，然后他们缺乏生产的动力。而且他们缺乏拥有权带来的人的尊严。人类需要拥有一个属于他们的世界的一部分来照顾。
-
-但基督教说，你拥有的财富，你享受它，它是你的，你作为受托人来照顾它，但你必须按照你的主人——就是上帝——指示慷慨地给予。他指示你将其给予福音的工作，给予穷人和有需要的基督徒。结果，你可以说，如果那笔钱是你的，而你不慷慨，你就是吝啬。但如果那笔钱是别人的，而你不按照主人的指示慷慨地给予，那就是抢劫，那就是挪用。
-
-这就是我们可以说，一个小偷不再是小偷，当他慷慨的时候。那就是他停止成为小偷的时候。****真正的信心是**激进的慷慨：** 现在，为什么要再花一周时间呢？因为你知道，圣经充满了这种教导，这非常非常非常困难。
-
-很多人说，为什么你不回去再讲讲性，我会的。然而，坦率地说，圣经关于金钱的内容比关于性的内容要多。事实上，整个路加福音几乎都是关于金钱的。我们今天要谈论的事情是一个非常重要的原则，它贯穿整个圣经，那就是：**你对待财富和财产的态度不是一个偶然的或边缘的或可选的问题。
-
-它是信仰的本质，它是成为基督徒的核心。** 它不像是说，我可以成为基督徒，然后我对待财富和财产的方式是我将来会处理的事情。这个段落告诉我们，圣经告诉我们，你对待财富和财产的态度是信仰的本质，它是成为基督徒的核心。**物质主义与早期教会的对比：** 最近我和一个英国朋友谈话，他打电话给我说，"为我祈祷。
-
-我要去罗马尼亚。"我问为什么，他说： > 我们在英国与罗马尼亚的基督徒有很多联系。罗马尼亚一直是一个封闭的国家，基督徒一直受到迫害。现在大门打开了，我们要去拜访我们的朋友，带罗马尼亚的圣经。
-
-他特别强调："在所有的东欧国家中，教会在最受迫害的地方最有活力。罗马尼亚是所有东欧教会中最有活力的，因为它受到的迫害最严重。祈祷现在那里的自由不会让它在属灵上流失。"你可能会轻描淡写地说，"这是他们和我们的区别。
-
-这就是为什么他们如此有活力——因为受到迫害。"但这是一个错误，是一个肤浅的分析。****真正的区别在于物质主义。** 是**的，有迫害，但迫害使得他们和我们的区别在于**物质主义的程度**。
-
-那些受迫害教会没有建筑物，几乎没有财产，他们分享所拥有的，他们就像早期的教会。**罗马皇帝朱利安的见证：** 早期的教会让罗马人惊讶，因为他们在文化中两个方面脱颖而出： - 第一，他们的性纯洁 - 第二，他们的财务慷慨 他们在性方面是纯洁的，但在金钱方面却是慷慨的。他们把钱到处给。世界感到惊讶。
-
-一个早期的罗马皇帝，叫朱利安的人，拼命想要消灭基督徒。他生活在公元三世纪，当基督徒不断增加并接管了一切时，朱利安给他的一个异教祭司朋友写了一封非常不满的信。在信中他说： > "我不知道该怎么办，基督徒在增加。你知道他们为什么在增加吗？
-
-罗马为这些基督徒的迷信进步做出了贡献，因为他们对陌生人的慈善。那些不敬虔的加利利人不仅为自己的穷人提供，还为我们的穷人提供。" 这不是很惊人吗？这里有一个罗马皇帝试图找出**基督教为什么像野火一样传播**的原因。
-
-是什么赋予了它的动力？当然，朱利安不是基督徒，他无法理解一切，但他看到了罗马世界其他人看到的东西。**答案是什么？激进的慷慨。
-
-** 犹太人照顾犹太穷人，希腊人照顾希腊穷人，罗马人照顾罗马穷人。但这些基督徒不同——他们把他们的慷慨撒在每个人身上，这是闻所未闻的。不仅如此，这是极具吸引力的。教会在受迫害的地方传播，主要是因为基督徒对彼此和周围的人是激进的慷慨。
-
-他们脱颖而出。现在问题是：我们做得怎么样？我们脱颖而出吗？世界在惊叹吗？
-
-这段经文很长、很复杂，我想指出其中的三个重要事情。首先，**这段经文说，你可以辨别**真正的信心的方法是**它不可避免地导致激进的慷慨。** 事实上，这段经文说，**真正的信心——不是**名义上的信心，不仅仅是基督教的声明或宣言，不仅仅是基督教的情感体验——而是有三个特征： 1。**它是激进的慷慨** 2。
-
-**它是激进的恩典** 3。**它是激进的实用** 现在让我们看看这三件事。**第一，激进的慷慨：** 雅各书告诉我们：要像那些将要被给予自由的律法审判的人一样说话和行动，因为对没有怜悯的人将会有无怜悯的审判。怜悯胜过审判。
-
-然后在第 14 节继续说，如果一个人声称有信心却没有行为，那有什么好处呢？**你怎么知道救赎信心和仅仅是情感或口头服务之间的区别？答案是激进的慷慨。** 在审判日，我们可以辨别出真正信心的人是通过他们的怜悯。
-
-对没有怜悯的人将会有无怜悯的审判。**"怜悯"这个词的含义：** "怜悯"这个词在这里很有趣。在新约中，怜悯可以有两种含义： - **广义上的含义：** 看到某人、爱他们并给予帮助。这就是怜悯。
-
-- **具体的圣经含义：** 帮助某人解决他们的经济、身体、实际需要。**圣经中的例子：** 在 *马太福音 18：21-35* 的比喻中，一个国王的仆人欠他一万他连得的债。国王免除了他的经济债务。后来他对没有怜悯的仆人说： **马太福音 18：33（和合本）：** > "你不应当怜恤你的同伴，像我怜恤你吗？
-
-" 所以，经济上的帮助就是**怜悯**。当瞎子向耶稣呼求"人子啊，怜悯我"时，他在用怜悯这个词的具体方式： > "我有一个身体问题。我有一个实际问题。我是盲人。
-
-对我的身体做点什么。对我的身体痛苦做点什么。" **最重要的例子是好撒玛利亚人的比喻。** 撒玛利亚人在路上发现一个人，他做了什么？
-
-- 他把他扶起来 - 给他交通工具 - 给他医疗护理 - 给他经济补贴 - 整夜照顾他的伤口 这是实际的、社会的工作。最后，耶稣说："那就是有怜悯的人。" 怜悯这个词在圣经中常常具有**经济、身体帮助的具体意义**。****真正的宗教是**什么？
-
-** 现在在上下文中，怜悯这个词在第 12、13 节中是什么意思呢？这很清楚。**雅各书 1：27（和合本）：** > "在神我们的父面前，那清洁没有玷污的虔诚，就是看顾在患难中的孤儿寡妇，不被世俗沾染。" 然后在第 2 章，雅各说要尊重穷人。
-
-在第 15 节，他给出了一个具体的例子： > "如果你看到某人没有基本的生活必需品，而你不处理他们的需要，如果你不喂养他们（如果他们饿了），那有什么好处呢？" 这很清楚。**怜悯将没有审判。对没有怜悯的人将会有无怜悯的审判，但怜悯胜过审判。
-
-** 这只是说，在审判日，**你的怜悯将显示你的信心是否真实。**如果有怜悯从那信心中产生，那表明你的信心是真实的，你将不会被审判。但如果没有怜悯，那表明你的信心不真实，你将会被审判。**重要说明：** 这并不教导上帝因我们的慷慨而拯救我们。
-
-它教导说，如果我们相信并因信仰耶稣而得救，恩典和怜悯，那么任何**真正的信仰中都会有恩典和怜悯成长。**什么是**信心？** 雅各告诉我们很多关于信心的事情。有些人非常关心信心，因为他们发现信心是一个神秘的东西。
-
-但这一章可以告诉我们很多关于信心的真相。**哥林多后书 5：7（和合本）：** > "因为我们行走是凭着信心，不是凭着眼见。" **重要的是：** - 保罗从未说过"我们凭信心行走，而不是凭理性" - 保罗从未说过"我们凭信心行走，而不是凭思考" 为什么？因为**信心和理性，信心和思考并不对立**。
-
-信心和眼见是对立的，因为**信心是被真理控制的**。我们都追求成功、真爱或完美的生活，这些好东西很容易成为终极的东西。当我们把信心放在它们上面时，深知它们无法满足我们最深的渴望。真相是，我们把好的东西变成了次等的神，无法给我们真正需要的东西。
-
-在他的书《假神：金钱、性与权力的空虚承诺和唯一重要的希望》中，蒂姆·凯勒向我们展示了如何正确理解圣经揭示社会理想和我们内心的真相，并向我们展示只有一位上帝能完全满足我们的欲望。本月，我们将赠送您《假神》作为感谢您帮助生命中的福音与世界各地的人们分享基督之爱的礼物。您可以在gospelandlife.com/give请求您的副本。那就是gospelandlife.com/give.现在请听凯勒博士今天教学的其余部分。
 
 **例子 1：做外科手术** 你需要做手术。这是一件可怕的事情。所以你开始打听谁是好外科医生。有人对你说："我认识一个做这种手术的女医生，她是个了不起的外科医生。
 

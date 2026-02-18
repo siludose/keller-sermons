@@ -6,7 +6,7 @@
 
 ---
 
-## 焦虑的本质：渴望掌控不可掌控之事
+## 焦虑的本质：渴望掌控不可掌控之事 / The Nature of Anxiety: Craving Control over the Uncontrollable
 
 Welcome to Gospel in Life. What is holding you back from truly trusting in God?
 
@@ -29,12 +29,6 @@ A quick question that comes up. How can somebody, how does anybody have the auda
 Who wants to be anxious? Nobody gets up in the morning and says, I'm going to really be anxious today. I can't wait. You know, it's not a very voluntary thing.
 
 So why would Jesus command us? If we look carefully, we'll see that He's not commanding us in a kind of drill sergeant way. There's a friend of mine, a pastor.
-
-A pastor friend of mine who was poking fun at himself. He's in his 50s now, but when they first got married, he and his wife, in their early 20s, he was saying that she went into a depression, and he used all of his, every bit of skill he could to get her out of it. He says, I tried everything, everything. Every single morning I went into her and I said, buck up.
-
-But nothing helped. He says, she was incorrigible. Jesus is not coming to us today and saying, buck up. You know, what are you being anxious for?
-
-Cut it out. You know, stop it. Whistle a happy tune. He doesn't do anything like that.
 
 ---
 
@@ -62,7 +56,13 @@ Cut it out. You know, stop it. Whistle a happy tune. He doesn't do anything like
 
 ---
 
-## 焦虑的根源：人类对权力的渴望
+## 焦虑的根源：人类对权力的渴望 / The Root of Anxiety: The Human Desire for Power
+
+A pastor friend of mine who was poking fun at himself. He's in his 50s now, but when they first got married, he and his wife, in their early 20s, he was saying that she went into a depression, and he used all of his, every bit of skill he could to get her out of it. He says, I tried everything, everything. Every single morning I went into her and I said, buck up.
+
+But nothing helped. He says, she was incorrigible. Jesus is not coming to us today and saying, buck up. You know, what are you being anxious for?
+
+Cut it out. You know, stop it. Whistle a happy tune. He doesn't do anything like that.
 
 Instead, if you look carefully, you'll see that He gets underneath and He explains to us the why. And He reasons with us. There's a sense in which He does surgery. And He says, anxiety is wrong. And if you sit still and let me do my surgery. If I put surgery in you, if you listen to my instructions, I can get it out of you.
 
@@ -93,20 +93,6 @@ Now, that's what it is. Anxiety is the will to control the uncontrollable. Secon
 And the Bible, as usual, gives us a little bit of a clue about what it is. It gives us a little bit of a clue about what it is. It gives us far and away the most coherent answer.
 
 Jesus Christ is, if you look carefully, you'll see that in a very gentle way, He is saying the source of anxiety is the human will to power. The fact is that we want the power that God's got. And anxiety comes from that. He says, for example, He says, who by being anxious can add one minute to your life?
-
-But that's the point. We want to add. We want the power God has. And Jesus is saying, isn't life more than food and drink?
-
-And who by worrying can add one minute to your life? What He's saying is, listen, who's been keeping your life going all these years anyway?
-
-What are you worried about it now for? Put it this way. He says, when the doctor comes in with bad news, when the boss comes in with bad news, suddenly we get anxious because we feel like we're out of control.
-
-But it's the threat that reveals the illusion that we've been living at all this time. Living on all these years, the illusion is we felt up to now that we were in control. We're getting anxious because we feel like we're getting out of control. That's not true. The threat is revealing your true condition. You've always been out of control. You've always been vulnerable.
-
-You've never been keeping your life going. And you see, danger, which triggers anxiety, the anxiety is essentially showing us not a new precarious situation, but at the deepest level, that's where Heidegger comes in with his Gvorfenheit. At the deepest level, it's showing us what we knew all along. We've never been in charge. We're not in control. And Jesus says that we're anxious because we disbelieve and dislike the fact that we're totally dependent on the supporting power of God. We don't like it, and we are afraid of 's what the anxiety is.
-
-Biblically, though, there's a wonderful truth underneath all this. Pascal, the Christian philosopher, has a very interesting statement. The great thing about Christianity is even when it's telling you what's wrong with you, it tells it such a positive way because it shows you where it's from. Pascal puts it like this. He says, not on page 3, but on page 2, he says, the greatness of man is so evident, that it is even proved by his wretchedness. For who is unhappy at not being a king, but a deposed king?
-
-Now, you know what he's saying? The Bible says the reason we're anxious is because we need to be in control. But the reason we want to be in control is we were made originally to be kings and queens on earth.
 
 ---
 
@@ -146,7 +132,21 @@ Now, you know what he's saying? The Bible says the reason we're anxious is becau
 
 ---
 
-## 对症下药：纠正错误的思维
+## 对症下药：纠正错误的思维 / The Cure: Correcting Wrong Thinking
+
+But that's the point. We want to add. We want the power God has. And Jesus is saying, isn't life more than food and drink?
+
+And who by worrying can add one minute to your life? What He's saying is, listen, who's been keeping your life going all these years anyway?
+
+What are you worried about it now for? Put it this way. He says, when the doctor comes in with bad news, when the boss comes in with bad news, suddenly we get anxious because we feel like we're out of control.
+
+But it's the threat that reveals the illusion that we've been living at all this time. Living on all these years, the illusion is we felt up to now that we were in control. We're getting anxious because we feel like we're getting out of control. That's not true. The threat is revealing your true condition. You've always been out of control. You've always been vulnerable.
+
+You've never been keeping your life going. And you see, danger, which triggers anxiety, the anxiety is essentially showing us not a new precarious situation, but at the deepest level, that's where Heidegger comes in with his Gvorfenheit. At the deepest level, it's showing us what we knew all along. We've never been in charge. We're not in control. And Jesus says that we're anxious because we disbelieve and dislike the fact that we're totally dependent on the supporting power of God. We don't like it, and we are afraid of 's what the anxiety is.
+
+Biblically, though, there's a wonderful truth underneath all this. Pascal, the Christian philosopher, has a very interesting statement. The great thing about Christianity is even when it's telling you what's wrong with you, it tells it such a positive way because it shows you where it's from. Pascal puts it like this. He says, not on page 3, but on page 2, he says, the greatness of man is so evident, that it is even proved by his wretchedness. For who is unhappy at not being a king, but a deposed king?
+
+Now, you know what he's saying? The Bible says the reason we're anxious is because we need to be in control. But the reason we want to be in control is we were made originally to be kings and queens on earth.
 
 The Bible tells us that we were built to be stewards. Now, a steward was the number one slave in a great mansion. The steward was the slave with authority. A steward was a slave toward the master, but toward everyone else he was a king. And when a steward is a slave toward his master, dependent, loving, obedient, he grows in his authority.
 
@@ -167,16 +167,6 @@ The need for control of the uncontrollable. Where does it come from?
 Our basic, essential nature as kings and queens, which we are trying to express by being masters of our own lives when we're not. Then number three, well, then what do we do about it?
 
 And you say, this is wonderful. This is very interesting. It makes me feel very interested.
-
-But what do I do? And again, Jesus would never just say, Buck up. He tells you what to do. And essentially in this passage, he says, if you're full of anxiety, psychological, physical, philosophical, whatever, there are two things you're doing wrong. And therefore, if you want to remove the anxiety from your life, there's two things you've got to do right. The two things you're doing wrong is wrong thinking and wrong priorities. Wrong thinking and wrong priorities.
-
-Here's what we mean. Number one, wrong thinking. Again and again, he says, in the old King James, he says, consider the birds of the air. Consider the lilies of the field.
-
-Now, in our modern translations of the one that I just wrote, I just read, I didn't write it. I'd be a rich man if I wrote it. It just says, look at. It says, see the birds of the air. It says, look at the grass of the field. That's not nearly as good a word because the word that's used there is a word that means ponder and think.
-
-Jesus says, if you're anxious, you're not thinking. He says, do not be anxious, but consider this, consider that. Now, listen, before I even move on, do you see how critical that is?
-
-What do you think faith is? Do you think faith is an absence of thinking?
 
 ---
 
@@ -216,7 +206,17 @@ What do you think faith is? Do you think faith is an absence of thinking?
 
 ---
 
-## 上帝的护理：万事互相效力
+## 上帝的护理：万事互相效力 / God's Providence: All Things Work Together
+
+But what do I do? And again, Jesus would never just say, Buck up. He tells you what to do. And essentially in this passage, he says, if you're full of anxiety, psychological, physical, philosophical, whatever, there are two things you're doing wrong. And therefore, if you want to remove the anxiety from your life, there's two things you've got to do right. The two things you're doing wrong is wrong thinking and wrong priorities. Wrong thinking and wrong priorities.
+
+Here's what we mean. Number one, wrong thinking. Again and again, he says, in the old King James, he says, consider the birds of the air. Consider the lilies of the field.
+
+Now, in our modern translations of the one that I just wrote, I just read, I didn't write it. I'd be a rich man if I wrote it. It just says, look at. It says, see the birds of the air. It says, look at the grass of the field. That's not nearly as good a word because the word that's used there is a word that means ponder and think.
+
+Jesus says, if you're anxious, you're not thinking. He says, do not be anxious, but consider this, consider that. Now, listen, before I even move on, do you see how critical that is?
+
+What do you think faith is? Do you think faith is an absence of thinking?
 
 Do you think faith is just closing your eyes and jumping? you think faith says, well, it doesn't make any sense, but it doesn't matter. That's where faith comes in. Is that how Jesus talks?
 
@@ -363,7 +363,7 @@ Do you see? It actually says there's a certain sense in which when you finally g
 
 ---
 
-## 上帝的慈爱：天父知道你的需要
+## 上帝的慈爱：天父知道你的需要 / God's Love: Your Father Knows Your Needs
 
 In Philippians 4, it says, have no anxiety, but in everything with prayer and supplication, with thanksgiving, make your requests known to God. That means when you ask God for something, thank him ahead of time for whatever he sends. Well, how can you do that?
 
@@ -391,7 +391,7 @@ But he's good. He's the king, I tell you. The other little thing that you've got
 
 ---
 
-## 正确的优先次序：先求他的国
+## 正确的优先次序：先求他的国 / Right Priorities: Seek First His Kingdom
 
 But the other little argument is the love of God argument. The love of God argument. Jesus says, your father knows what you need.
 
@@ -406,12 +406,6 @@ Now, and then the other thing is wrong priorities. Wrong thinking and wrong prio
 Martha and Mary. You remember Martha and Mary?
 
 Jesus came to their house and Martha ran around the house and she said, I'm going to run around. And literally it says she was anxious, doing many, many things. Uses the same word anxious that Jesus uses here in Matthew 6. Mary sat at Jesus' feet and Jesus comes to Martha and says, Martha, you're anxious and troubled about many, many, many things. One thing is necessary. Mary's found it. Sit down and focus on me.
-
-And what Jesus is saying is worry is always a lack of proportion. If Jesus is in the center, there will be no anxiety. If your profession, if your relationship, if your material comfort, if money, if anything else is in the center, if anything else is more important than Christ, you're going to be torn up with anxiety. Your fears are like the breadcrumbs. Follow them and you'll find the house of the witch. Your anxieties come from that lack of proportion, from that lack of sense of proportion. And Jesus says, put me first.
-
-Seek first my kingdom and righteousness. That means your prayer life. It means your fellowship with other Christians. It means your mission and ministry. It means your growth and grace. If that comes first, Jesus says, I can guarantee you your other concerns will go because you'll be able to think more about me and trust me. Queen Elizabeth once told a man, not the second Queen Elizabeth, the first Queen Elizabeth, told a man that she wanted him to go on a voyage to the new world because we needed his skills on this voyage to make it a success.
-
-And the man looked at her and said, hey, I'm a small businessman and my business has been floundering. And if I go on it, I'm sure it's going to sink. And she looked at him. She says, my dear friend, you mind my business and I'll mind your business. And immediately all the fear left him because, hey, here's the Queen Elizabeth, a monarch of absolute power and wealth. If I mind her business, she'll mind my business. What a deal.
 
 ---
 
@@ -431,7 +425,13 @@ And the man looked at her and said, hey, I'm a small businessman and my business
 
 ---
 
-## 信靠基督：不仅信他存在，更要信他的话
+## 信靠基督：不仅信他存在，更要信他的话 / Trusting Christ: Not Just Belief, but Trust
+
+And what Jesus is saying is worry is always a lack of proportion. If Jesus is in the center, there will be no anxiety. If your profession, if your relationship, if your material comfort, if money, if anything else is in the center, if anything else is more important than Christ, you're going to be torn up with anxiety. Your fears are like the breadcrumbs. Follow them and you'll find the house of the witch. Your anxieties come from that lack of proportion, from that lack of sense of proportion. And Jesus says, put me first.
+
+Seek first my kingdom and righteousness. That means your prayer life. It means your fellowship with other Christians. It means your mission and ministry. It means your growth and grace. If that comes first, Jesus says, I can guarantee you your other concerns will go because you'll be able to think more about me and trust me. Queen Elizabeth once told a man, not the second Queen Elizabeth, the first Queen Elizabeth, told a man that she wanted him to go on a voyage to the new world because we needed his skills on this voyage to make it a success.
+
+And the man looked at her and said, hey, I'm a small businessman and my business has been floundering. And if I go on it, I'm sure it's going to sink. And she looked at him. She says, my dear friend, you mind my business and I'll mind your business. And immediately all the fear left him because, hey, here's the Queen Elizabeth, a monarch of absolute power and wealth. If I mind her business, she'll mind my business. What a deal.
 
 Seek first. The kingdom of God and his righteousness and all other things will be added to you. It's the same. It's the same deal. Right thinking, right priorities, wrong thinking, wrong priorities. Listen, two kinds of people here today.
 
@@ -454,8 +454,6 @@ That is an act of absolutely blind faith. There's no evidence for it. And you kn
 That's why you can't believe. Don't tell me that you can't believe in God. What you mean is I refuse to doubt myself, even though I've got every bit of evidence.
 
 I don't care how successful you are. Even the most successful people are making a total mess of some parts of their lives. Come to him. Jesus Christ knew what it was to trust God. In the wilderness, the devil came and said, turn these stones into bread. And he didn't do it. Why?
-
-He continued to depend on God. He wouldn't take matters into his own hands. He wouldn't decide to disobey God, get in control. And because he was faithful, he died as a substitute. And he took the punishment that we deserve. For our will to power.
 
 ---
 
@@ -490,7 +488,9 @@ He continued to depend on God. He wouldn't take matters into his own hands. He w
 
 ---
 
-## 结束祷告
+## 结束祷告 / Closing Prayer
+
+He continued to depend on God. He wouldn't take matters into his own hands. He wouldn't decide to disobey God, get in control. And because he was faithful, he died as a substitute. And he took the punishment that we deserve. For our will to power.
 
 And that means today, you can go to him and know that if you believe not just in him, but believe him, he's your substitute. Your sins are wiped away. And you put yourself in the hands of a father who knows what you need. The name of the Lord is a strong tower. Run into it and you're safe.
 

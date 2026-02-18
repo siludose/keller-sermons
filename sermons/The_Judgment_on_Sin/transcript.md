@@ -68,6 +68,9 @@ It's not centered on God. And because it's not centered on God, all kinds of thi
 
 There's pride. There's selfishness. There's denial.
 
+### The People's Rebellion
+
+
 There's anger. There's envy. We've been looking at it for two months.
 
 And those seeds under the right circumstances are so deep and so evil that the human heart is capable of this under the right circumstances. But the way in which people have tried to deal with this and not answered either. I mean, a lot of people realize, unless you say we're all that evil, you have to say some people are subhuman.
@@ -137,6 +140,9 @@ The Hebrew word that's translated quarrel here in English is a word that means a
 Treason. You've brought us here. We're all going to die.
 
 We're all going to be jackal food. Well, we're going to start with you. We'll make you the appetizer.
+
+### Moses at the Rock
+
 
 In other words, they said, you've killed us through your criminal incompetence and your stupidity. Moses, however, knows that what they're doing is not just after him, they're after God. See?
 
@@ -208,6 +214,9 @@ That's why it's in the Old Testament when someone was brought forth to judgment.
 
 You have the rod. What is God doing? And then he says, I'll stand before you by the rock.
 
+### Striking versus Speaking
+
+
 Now, the Hebrew preposition says at the rock or over the rock. And the translators that we use, the new and national version, that's the English translation we use here, is almost afraid to say what it actually says. God says, I will stand before you at the rock, over the rock, on the rock.
 
 They say by the rock same thing. I will stand before you at the rock, bring the rod of God up and strike the rock. The execution.
@@ -277,6 +286,9 @@ The evil of the world, the sinfulness of the world, can only be done through jud
 He came and took the judgment himself. And you see what that means? If you were humble yourself and say, Lord, I deserve to be struck, but you were struck for me.
 
 Then on the last day, God can deal, he can wipe out evil without wiping out you. God could always have brought down the rod on evil, but then he wipes this all out. If you believe in him, he can wipe out evil and he will on the last day without wiping out you.
+
+### Grace from the Stricken Rock
+
 
 Do you hear him? Now, here's the last thing to say. The water comes from the stricken rock.
 

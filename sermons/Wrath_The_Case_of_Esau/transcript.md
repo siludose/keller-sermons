@@ -52,6 +52,9 @@ Esau is consoling himself with the thoughts of killing you. That's a perfect exa
 
 He feels better when he thinks about how he's going to decapitate you. He holds the grudge. Jacob has to leave, and there's no need to go any further, other than to know that when Isaac does actually, in a sense, pronounce a blessing on Esau, he predicts that Esau is going to live by the sword, that Esau is going to stay a man driven by anger all of his life.
 
+### A Story of Forgiveness
+
+
 Let me tell you about another family. A lady named Amy Federiki lives in the New York area, and she and her family was the subject of a major article in the New York Times back in January. She had a pretty hard life, because when she was 26, she got married, and a few weeks after she got married, she found her husband had pancreatic cancer, and a few, three months after that, he died, and only one, she's a widow at 26.
 
 One year later, she was commuting home from her Manhattan job to her home in Queens on Long Island, and she was in the car, and a man got up in the car, turned around and started shooting everybody, and she was one of the six people who were killed in the Long Island railroad massacre. She was part of a very close family, and the article goes on to show how remarkable that family was in its response to the whole tragedy. One of the first things that the family did was they donated Amy's organs to three people and saved their lives.
@@ -105,6 +108,9 @@ Tim Keller offers a clear and compassionate answer. Drawing from a series of tea
 Whether you're overwhelmed by the state of our world, struggling with your own mistakes or choices or looking for hope and joy, what is wrong with the world will help you see how the gospel speaks to both the heartache of our world and the pain within each of us. This newly released book What Is Wrong with the World is our thanks for your gift this month to help gospel and life share the good news of Jesus. Request your copy today at gospelandlife.com slash give.
 
 That's gospelandlife.com slash give. Now here's Dr. Keller with the rest of today's teaching.
+
+### When Anger Goes Wrong
+
 
 Be angry. It's a sin if you're never angry, but it also tells us how anger goes wrong. Here's how it goes wrong.
 
@@ -162,6 +168,9 @@ You've been hurt by somebody, and you're going to pay the world back by not trus
 
 In other words, your bitterness toward people who have wronged you and disillusioned you, that's now distorting. It's defiling you. I've had people say, I met a guy once who hated Japanese.
 
+### The Prison of Bitterness
+
+
 He was in a prisoner of war camp years ago during World War II, and he hates the Japanese now. You know what? He's more in prison now than he was then.
 
 The only way that a person who is wronged you can really keep controlling you is if you stay mad at them. If you stay mad at somebody, that bitterness is defiling you. It's controlling you.
@@ -215,6 +224,9 @@ I will not. Well, last of all. So the first principle is you have to be aware of
 Secondly, you've got to be willing to be God full. That means you've got to not just say, I shouldn't be mad. I shouldn't be mad.
 
 I shouldn't be mad. Instead, you got to go underneath and say, why has productivity? Oh, Tim Keller, why has your productivity become so important to you?
+
+### Grace Overcomes Bitterness
+
 
 Oh, Baruch, why has your career become so important to you? You say it's not enough just to say, why am I so angry? I shouldn't be angry.
 

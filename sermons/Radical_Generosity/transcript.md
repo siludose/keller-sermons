@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Why the Church Must Talk About Money
+
 Welcome to Gospel in Life. Why does the Bible talk about money so much?
 
 How we think about and use our money is one of the most common subjects throughout Scripture. And the Bible tells us something striking. You cannot experience deep spiritual growth without putting your money and your attitude toward it in God's hands. Listen as Tim Keller shows us why generosity is not optional for Christians, but a vital mark of authentic faith. I've been bringing your Gospel of John to church for the last year and a half. You'll have to look over into somebody else's Bible. I'm going to read to you from 2 Corinthians 9.
@@ -11,6 +13,8 @@ I'll explain why the detour in a moment. 2 Corinthians 9, verses 6 through 15. P
 Now he who supplies seed in the sower and bread for food will also supply and increase your store of seed and will enlarge the harvest of your righteousness. You will be made rich in every way so that you may be generous on every occasion. And through us, your generosity will result in thanksgiving to God. The service that you perform is not only supplying the needs of God's people, but also overflowing in many expressions of thanks to God. Because of the service by which you have proved yourselves, men will praise God for the obedience that accompanies your confession of the Gospel of Christ and for your generosity in sharing with them and with everyone else. And in their prayers for you, their hearts will go out to you because of the surpassing grace God has given you. Thanks be to God for his indescribable gift.
 
 This is God's Word. Now, one of the things you can always expect near the end of the year is you've got a lot of special features. You've got Christmas coming and Advent. You've got Thanksgiving. And therefore, we're going to move back and forth and each week you may get a John sermon, you may not.
+
+### The Parable of Whole-Person Healing
 
 But we'll finish John up this spring. Now, here's what I'd like to talk about today. I'd like to talk about money. One of the very first things that I learned when I came to New York in figuring out where people were at, I found out that there were a lot of people who that New Yorkers get extremely nervous when ministers talk about money. And part of the reason, partly because of that research that I did, I've stayed away from the subject. And one of the good things is that many people like about the church is that there don't seem to be lots of appeals and canvases and things like that.
 
@@ -28,6 +32,8 @@ How many hours are you working? How satisfying is your work to you?
 
 You have to tell me about personal stresses may be happening in your life. You got to tell me everything. And if you looked at her and said, no, wait a minute, you're a doctor. You stick to the physical.
 
+### Radical Generosity: The Mark of a True Christian
+
 I don't want to talk to you about my personal stresses. And I don't want to talk to you about the personal problems I have at work. That's not your department. You help me with my health. What would she say?
 
 She'd say, I'm sorry. The answer is, I'm sorry. They're all connected. You can't break your life into departments. Maybe the reason that you're always getting sick is because there's some kind of psychological strain on you. And the physiological effects are real. They're not psychosomatic, but they're being caused by something.
@@ -35,6 +41,8 @@ She'd say, I'm sorry. The answer is, I'm sorry. They're all connected. You can't
 You might need counseling as well as my treatment. And therefore, you got to tell me everything. Of course, that's what the doctor's going to say. And in the same way, God says, you come to me. Because you want meaning. Because you want renewal. Because you want strength.
 
 Because you want forgiveness. You want me in your life. Then you've got to let me talk to you about your money.
+
+### The Twofold Impact of Generosity
 
 You see, if you want, I want God in my life, but I don't want anybody talking to me about what God says about money. That's impossible. And just like the doctor will kick you out after a while and say, I'm sorry. What you want is impossible. You want me to deal with your health, but you won't tell me everything. And you won't see that you're an interconnected person. You won't see that you're an interconnected whole.
 
@@ -52,6 +60,8 @@ And then lastly, the measure of that generosity. How do you know that you're gen
 
 How much? You know, bottom line, New York, right?
 
+### The Tomato Parable: The Importance of Meaning
+
 So the impact of that generosity, the motivation for that generosity, and the measure of that generosity. Let's run through those three things because they're all here. Now, first of all, let's see. I'm going to actually, you know, you could easily turn this around and, but the impact lasts, but I want to put it first because I want you to see the importance of radical Christian generosity for the world.
 
 Paul says, pardon me, I have to keep this in context. Paul in 2 Corinthians is raising money for famine relief. There's hints of passage I read you, but you see it over in 2 Corinthians 8.
@@ -59,6 +69,8 @@ Paul says, pardon me, I have to keep this in context. Paul in 2 Corinthians is r
 There's been a famine in Jerusalem. There's many people there who are in need, and Paul is going to Asia Minor and to the churches in that area, and he is raising money. He's asking for money for the Christians there to give money to do famine relief in Jerusalem. And therefore, if you look carefully, you'll see that Paul is saying the impact of this generosity will be twofold. Not only will there be people who are physically fed, but secondly, we see, for example, in verse 13, radical generosity will also lead people to praise God.
 
 See, there's a twofold impact. There's a twofold impact. There's a twofold impact to radical generosity.
+
+### The Spiritual Revival in Latin America
 
 Let me show you what that means and then how radical generosity brings it about. Twofold. Not only does it feed people, but it also leads them to praise God.
 
@@ -73,6 +85,8 @@ There's more to us than meets the eye or the microscope. There's two parts to yo
 And in any city in this country where churches stop doing that, you know there'd be an immediately negative impact on the quality of life in those cities. So obviously the church has always dealt with the body, but the church, unlike any other institution, religious institutions, can deal with both the body the material and the immaterial. Because the religious institutions not only can do the feeding and the medical and so on, but they can also give you meaning in life, tell you what the purpose of things is, without which, if you don't have that, all the dealing with the body and the physical and material really is kind of meaningless. For example, what can botanists tell you about a tomato?
 
 They can tell you a lot of things about tomatoes. They can tell you a lot more than I know about tomatoes. There's only one thing they can tell you. They can't tell you, and that's the most important thing. They can tell you everything about the tomato, except why. Why the tomato?
+
+### How Radical Generosity Transformed the Roman Empire
 
 They can't tell you about that. Do you see why that's important, though?
 
@@ -93,6 +107,8 @@ These two sociologists have written these two different books independently of e
 See, that's radically empowering. It's radically democratic. You might say, it's democratic. It's radicalizing.
 
 That's what they say, actually, in the books. And the fact that through Christianity, they got power for the present and hope for the future means they're able to face their lives. And where there are whole villages that are coming to Christ, what happens is families come together and the economic conditions change. Because, you see, these people are having the big issue addressed. Not simply. What the church can do is not simply feed people, but it can lead them to praise God. And the fact is, unless you've got something to praise, you've got no meaning in your life.
+
+### Four Qualities That Changed the World
 
 And a full stomach is not enough. Don't you see?
 
@@ -121,6 +137,8 @@ Now look and see, for a moment, four qualities that these Christians had that ev
 See what that means? I have to run through these more briefly. You see, the Christians were Jews and Africans and Greeks and Romans, but they were Christians first, and they were Greeks and Jews and Romans and Africans second. What Christianity does is it gives you a higher authority than your cultural tradition, and it gives you a higher loyalty than your race. It relativizes your relationship to your own culture so that you can critique it, and it says your Christians could appreciate other people's cultures and they could be critical of their own. They no longer took their identity from who they were racially, and it cut racism down at the root.
 
 See, their native lands were as their foreign lands, and their foreign lands were as native lands. So the absence of racism. Secondly, a high, high view of life. It says they do not kill the unwanted. Back then, it was normal that when you had a female child, to throw it in the river, and parents had the right to do that. Slaves also were expendable. You could kill a slave if you wanted to.
+
+### The Motivation for Generosity: Creation and Redemption
 
 Christians, though, saw every life, no matter how unwanted or expendable, to be absolutely inviolate, infinitely precious. That view of life.
 
@@ -152,6 +170,8 @@ They just give you help in the most practical way possible. They are so generous
 
 Are you unusually generous? Are you known for your generosity?
 
+### The Father and Child Parable
+
 If not, you're not like they were. And maybe it's because you don't have the same thing operating inside that was operating inside of them. What was operating inside of them?
 
 You know what their motivation was? It's right there in verse 13 again. It says, Something had happened inside of them.
@@ -176,6 +196,8 @@ It's mine. You gave it to me. You buy the kid a candy bar and you say, could I j
 
 No, it's mine. And you look at them and you say, you're kidding, right?
 
+### The Power of Redemption: How the Gospel Changes Everything
+
 You're kidding. It's yours. I know it's yours. I gave it to you. Yeah, it's yours. I'm not taking it back, but come on. Suppose somebody gave you a house.
 
 In the Burbs. $400,000 house. And they say there's only one thing.
@@ -190,6 +212,8 @@ And God comes to scripture, and if he would say, if he would say, I've given you
 
 You're kidding. 1 Corinthians 4, 7 says, what do you have that is not a gift?
 
+### Spurgeon's Parable: The Priceless Medicine
+
 And therefore, how dare you treat it as if it's anything but a gift? Christians understand that. Even though Christians also know the natural heart says, like the heart of a little child says, it's mine.
 
 So creation is the first motivation, but redemption is the second one. It says here that it's a response to the gospel. Now, what is the gospel?
@@ -199,6 +223,8 @@ You know, it says, for example, in chapter 8, I am not commanding you to give, P
 Paul is actually saying, the way you know that you have actually experienced the grace of God is if you're radically generous. And would not... Paul is actually saying, if you need to be commanded, if you're commanded to give, you have never experienced the grace of God. If, on the other hand, you want to give generously, radically, if your attitude toward your possessions has been mightily changed, that is the only proof you've got, actually, one of the few proofs you have, that you really have experienced the grace of God. Luther says that a Christian is somebody who every day gets up and looks at God and says, Jesus, and says, Lord, you are my goodness, and I'm your punishment. You took everything I deserve, and now I get everything you deserved. Luther says every day a Christian is somebody who gets up and says, I'm rich.
 
 I am rich. I've been adopted into the family. I've been accepted into the beloved. I have a guarantee to rule and reign forever. I've got his holy power living in me that will inevitably overwhelm all my flaws, all my weaknesses, all my sadnesses. A Christian is somebody who feels absolutely rich and therefore turns around and says, has a completely different attitude toward your possessions.
+
+### The Language of Love and Generosity
 
 There is no... This is an illustration that some of you heard. I got it from Charles Spurgeon.
 
@@ -212,6 +238,8 @@ This thing is so precious. This medicine is so precious that all these other thi
 
 The Bible says, to you who believe, Jesus Christ is precious. To you who know what he's done for you, your attitude toward everything else is this. You say, look at what I have. Everything else is expendable. Everything else in my life is eternally and utterly expendable. You know you're in love with somebody when you want to give them everything. You know, I know there's an awful lot of efforts being made on the part of people who are nervous.
 
+### Diagnosing Grace
+
 So before they get married, they sign a little agreement saying, if we get a divorce, you don't get this and you don't get that. And maybe in some cases, I don't know if that's wise or not, but I know that's not the language of the heart in love. Because when you're in a warm, passionate embrace, you know what you want to say?
 
 You say, I am yours and everything I have is yours. Here's how you know whether you've got a love relationship based on an experience of the grace of Christ or whether you've got a formal, legalistic, moralistic relationship with God. Thinking that because you've done your best, He owes you.
@@ -223,6 +251,8 @@ A person who's a moralist says, God owes me. I've worked pretty hard. I've worke
 See the difference? And that's the reason why Paul can go so far in saying, you've proved yourself. You've proved yourself. You've proved yourself with radical generosity. Do you understand that?
 
 And here, just before we finish, there's probably people in this room who don't know where they stand with Jesus. They don't know what your relationship is. I want you to know that one of the great glories of the church and one of the great comforts of my life is to know that every week there's a significant number of people here like that. Jesus wants you here.
+
+### The Measure of Generosity: Tithing
 
 Jesus says, Jesus says, I'm a physician. And it's not the well, who I need, I need the sick. It's not the people who are spiritually solid that I want to talk to. It's the people who are confused and who don't know what they believe. He wants to see you here. He's a physician.
 
@@ -250,6 +280,8 @@ You'd make due, and you'd be grumpy and unhappy. Make due now. Only instead of t
 
 And there's a lot of you who just can't get there because it'll take you time, because you are boxed in, because you're learning about radical generosity. Maybe today for the first time, and you say, boy, it's going to be a while before I can get there because of the obligations I've got. All right, then get in that direction. Move that way. Say, Lord, I want to get there. Give to the place, the point where you get scared, and make a plan, and be gutsy, and move toward that, and it may take you a while, but get there. In Malachi 3, God says, bring the whole tithe into the storehouse.
 
+### Unclench Your Fist
+
 Prove me. Put me to the test, He says. And I will pour down into your heart blessings that you cannot imagine. That's Malachi 3. He says, bring the full tithe into the storehouse. Put me to the test, whether I do not bring down a blessing into your heart. If you begin to give the way God says, He actually says, put me to the test.
 
 Dare to give in the proportions I'm talking about. Dare. And I promise you, I'll put something in your hand.
@@ -259,6 +291,8 @@ Now, the blessing, we don't know what that blessing is. Does it mean more money?
 Sometimes it does. Blessing means something much more than that. In some of your cases, you won't start to worry. You won't stop worrying about money until you start to give like this.
 
 The first blessing that you'll get from radical generosity is when you start to give in these proportions, and you find that God is supporting you the way it says in this text. You'll stop worrying about money for the first time in your life. Some of you are eaten up with worry, and until you begin to obey this text, you'll never get to the security. God says, I want to put blessings in your hands, but I can't put it into a clenched fist. Your fists are tight, clenched around your possessions, afraid you're going to lose them. Open your hand up.
+
+### Closing Prayer
 
 I can't put my blessing into a tight fist. Let go of your things, and wait till you see what I put into your hands. Look what happened when Jesus opened his hand.
 

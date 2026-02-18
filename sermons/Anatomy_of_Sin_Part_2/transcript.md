@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel in Life. Some people say the fundamental problem of the world is poverty. Others say it's bad systems, poor education or biology, but what if none of these can fully explain the brokenness we see, both in the headlines and in our own hearts?
 
 In today's teaching, Tim Keller looks at how the Bible's teaching on sin gives us a deeply honest and yet incredibly hopeful view of the world. I'd like to read to you our text on which the teaching is based this morning. It's Jeremiah chapter 2.
@@ -42,6 +44,8 @@ The soul should be centered on God. If there is a God, we saw last week, if ther
 
 That's sin, a dislocation of the soul and all of our problems come from our unwillingness to center on him because we do not want to lose control. Whatever we center on controls us. So we say, we have no awe of him, we don't center on him now.
 
+### The Consequences of Sin
+
 That was last week, the character sin, today we're going to look at the consequences. What actually happens? What are the effects?
 
 What are the things that actually happen when we do that? And the effects, of course, are terribly drastic. You see, right here in the beginning of this marvelous passage, it says, God says, your wickedness will punish you.
@@ -68,6 +72,8 @@ How do we break things? How does everything fall apart? Things fall apart.
 
 Says the novel. That's right. Because it's sin.
 
+### Lover Gods: Idols That Enslave and Empty Us
+
 Now, what are the consequences? There are actually two in this particular passage. There's two that are mentioned.
 
 And they're mentioned under a wonderful image, a wonderful new metaphor. And that metaphor is this. God in a penetrating way says that sin leads us to fall in love with other gods.
@@ -91,6 +97,8 @@ I must go after them. What do we learn here? It is an image that God uses to the
 They lived with the animals. Their livelihood depended on their animals. Their lives depended on the animals.
 
 And here's one thing they knew, that when an animal got into the mating season, there was no stopping that animal. The picture is of an animal in the grip of craving, in the grip of a foundational instinct. No stopping that animal.
+
+### The Enslaving Power of Sin
 
 What are we learning here? The first thing we learn is it's sort of a general thing, under this subject of slavery. First of all, sin has a power to enslave that we hide from ourselves.
 
@@ -141,6 +149,8 @@ Are you more of a self-sense, a self-sacrifice than Paul? Are you a better perso
 Can't you see it? If you start out denying it, I'm not defiled, you'll end up saying it's no use. Eventually you'll see that there is a power in you that is beyond you.
 
 You can spend a lot of time rationalizing it. You can take courses in both psychology and sociology to do everything to redefine sin in such a way that we're able to say we're not defiled, but in the end we'll say it's no use. But here's what's so interesting about these three verses.
+
+### Sin as Fatal Attraction: Everyone Has a Bottom Line
 
 It doesn't just tell us that sin is an enslaving power, but it tells us why. And the reason it tells us, this is fascinating. God tells us that the reason that we are under the power of sin is because, listen, sin is a fatal attraction.
 
@@ -208,7 +218,11 @@ Drawing from a series of teachings given at Redeemer, Dr. Keller shows how the r
 
 This newly released book, What Is Wrong with the World, is our thanks for your gift this month to help gospel and life share the good news of Jesus. Request your copy today at gospelandlife.com slash give. That's gospelandlife.com slash give.
 
-Now here's Dr. Keller with the rest of today's teaching. Test yourself for a minute.
+Now here's Dr. Keller with the rest of today's teaching.
+
+### Test Yourself: What Are Your Lover Gods?
+
+Test yourself for a minute.
 
 For example, is there anything that if you would lose it, you would say, I actually talked about this under a different guys two weeks ago, did we know? Anything that you look at, you say, if I don't have this or if I lose this or if I fail to get it, I die, I have nothing to live for. I must have it.
 
@@ -219,6 +233,8 @@ What would you say if God does this to me, if God lets this happen, then I want 
 The word must. If you use it about anything but God, you're under the power of that thing. Right, look at the bottom, look at your depression, look at your disappointments, look at your anger, look at your worry.
 
 And instead of saying, how can I change my circumstances, you have to say, look, the reason I'm so worried, the reason I'm petrified, the reason I'm so discouraged, is because there's something about which I am saying, I must have it. That's why having these emotions. It's at the bottom of everything.
+
+### Lover Gods Always Leave You Empty
 
 The bondage of sin, your idle gods, your lover gods will always leave you and slay, but secondly, they will always leave you empty. Look at this passage. Secondly, they will always leave you empty.
 
@@ -296,6 +312,8 @@ How can they help you then? You see, an awful lot of you still are out there say
 
 I don't feel, I don't see any fatal attraction in my life. You see, wait till the trouble comes. Call on your gods then.
 
+### When Trouble Comes, Call on Your Gods
+
 I'm going to give you three examples. False gods will never help you. These lover gods will never help you in three situations.
 
 Three, okay? Really bad sickness. Bereavement and death and failure, they'll never do it.
@@ -357,6 +375,8 @@ Because they don't exist. They're an extension of yourself. They're an extension
 You see they have no life in them. They're just stuck. They're just stone.
 
 They'll never help you when your heart is broken. And if you cannot find any comfort when your heart is broken, it's because there's something more God than God in your life. Now lastly, all right.
+
+### The Bride's Ornaments: Christ as Our Beauty
 
 These things leave you enslaved and they leave you empty. Well how can we be healed? Wonderful.
 

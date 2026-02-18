@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel in Life. Are you longing to see real change in your life, in your habits, your relationships, your heart? Today, Tim Keller explores how lasting change actually happens in the life of a Christian and why the Gospel offers a radically different process of transformation than anything else.
 
 The Scripture reading tonight is found on page 9 of the bulletin and it's Romans 8, 1-13. There's therefore now no condemnation for those who are in Christ Jesus. For the law of the Spirit of life has set you free in Christ Jesus from the law of sin and death.
@@ -19,6 +21,8 @@ But if by the Spirit you put to death the deeds of the body you will live. This 
 And so in this brief series, I'm taking you to Romans 6, 7 and 8. And the question is, how does Christ, how does faith in Christ actually lead to real change in one's life? Today we get to Romans 8 and we see that in Jesus we get three things, quite relevant for the subject, three things we get.
 
 We get a new freedom to know ourselves, let me put it in the second person. We get a new freedom, you get a new freedom to know yourself. You get a new method to change yourself, and you get a new power to be yourself.
+
+### New Freedom to Know Yourself: No Condemnation
 
 You get a new freedom to know, method to change, power to be yourself, point one. New freedom to know yourself, Romans 7, which we looked at last week, right up to verse 1, that is Romans 8, verse 1, right up to verse 22, 23, 24 of the end of chapter 7, is saying this, that in every one of us, there is a dark mass, even the best of us, even the St. Paul's, there's a dark mass of self-absorption, self-concentration, self-centeredness.
 
@@ -40,6 +44,8 @@ But there's a conservative mindset and there's a conservative mindset who does u
 
 And when you find yourself, and you will, doing things worse, more cruel, more cowardly than anything you've ever done, you won't have a category for it, you won't know how to deal with it, you will go into denial. But the gospel of Jesus, Jesus attitude, Jesus statement, if you're in Christ, you are simultaneously evil and absolutely loved, gives us a freedom, when you say, well, that's crazy, that's contradictory, yeah, yeah, it's crazy, admittedly, it's really weird. But let me show you how great it is.
 
+### Simultaneously Evil and Absolutely Loved
+
 Because first of all, it gives you an unmatched, unique, sociological freedom. What I mean by that is, you don't have to divide, you can't, if you understand this, divide the world anymore into the good guys, the bad guys. Some people say there's the good people, then there's the liberals.
 
 Some say there's the good people, then there's the fundamentalists. Everybody's saying there's a good bad, but if you're a Christian, if you have any understanding of this, you know, you know that the difference between you and a prostitute, you and a murderer, you and a Nazi. The only difference between you and them is that the seeds in your heart that make you capable of being or doing that just never got watered, so they never sprouted.
@@ -58,6 +64,8 @@ And are you going to tell me it's emotionally unhealthy to be able to call yours
 
 And it's the gospel that gives us that. The gospel gives you freedom to admit who you are when the information comes. To see where you do need to change, the freedom to know yourself, point one, point two.
 
+### A New Method for Change: Identifying the Flesh
+
 The second thing we learn here is the gospel gives you a new method for change, a method. Up in verse three, there's another reiteration of one of the themes of Romans seven. It says, for God has done what the law weakened by the flesh could not do.
 
 And remember, we talked about this last week, one of the points that Paul makes in Romans seven is that we've got all this self-centeredness and this self-absorption and this self-concentration. We've got this mass in us that's making our own lives miserable with this self-concentration. It makes our lives miserable people around us.
@@ -71,6 +79,8 @@ If by the Spirit you put the death, the deeds of the body you will live. Now in 
 It's a self-salvation project, that's what it means to live according to the flesh and live in the flesh. And what he's saying in verse 13 is fascinating. He says, if you live according to the flesh, you will die, but if you root out and destroy your particular ways of trying to save yourself, if you root out and destroy your particular ways of doing self-salvation, you will live.
 
 If you just go with the flow, you will die. If you live according to self-salvation project, you will die. But if you root out and identify and destroy your particular ways of doing self-salvation, then and only then will you live, will you say, how does that work?
+
+### What Preoccupies Your Heart and Mind
 
 What is this new method? At the heart of the new method, verse five and six says, is recognizing and changing what you mind. It hasn't changed what you put your mind on.
 
@@ -96,6 +106,8 @@ But she says the thing the movie didn't show is that every time, whenever Eric, 
 
 Because Harold Abrams and Eric Little were both setting their mind on the same thing. They wanted to run, they wanted to win, and they wanted to run and win a race. But for totally different reasons.
 
+### Two Runners: Praising the Savior vs. Being Your Own
+
 Because when Harold Abrams is asked, why are you running? He describes the hundred-yard dash and he says, when that gun goes off, I've got ten seconds, he says, quote unquote, to justify my existence. And what he's saying is, only if I can win this race, if I can be an accomplished athlete, and I know I matter, then I can face the world because I've accomplished this thing.
 
 But of course, Eric Little in the movie says to Jenny, Jenny, God made me fast. And when I run, I feel his pleasure. Now listen, here's one guy and he's running to praise his Savior, and here's the other guy who's running to become his own Savior.
@@ -107,6 +119,8 @@ If he wins great, if he doesn't win great, because he's already justified. His l
 He said so. And by the way, as you know, in the movie, even after he wins, he finds it unsatisfying because idols never deliver. Now you begin to understand, to set the mind on the flesh is not just having bad thoughts.
 
 It's essentially to put your mind and your heart on something besides Jesus Christ as functional Savior. And to see how that actually works, let me just give you another kind of example. I remember some years ago, many years ago, counseling two young men at the same time.
+
+### The Career Idol: When Identity Foundations Collapse
 
 Both of them had just lost their jobs because their bosses had been pretty stupid and wrong and unfair. Because of an unfair action, the part of their bosses, they both lost their job and they both had a blot on their career record. But Guy A, pretty much got over it, forgave the boss, moved on, and sin was doing so well that he more than compensated for that little blot, it essentially was a non-issue.
 
@@ -131,6 +145,8 @@ How does that poor guy now really turn the corner? Here's what was going on. The
 But, and he said, look, I technically, I believe that there's no condemnation for those who are in Christ Jesus. And technically, I believe that I'm loved, but here's the simple fact, I should be able to say, the king of the universe loves me. Who cares what my boss thinks, but I can't.
 
 Because what my boss thinks is more real to me than what the king of the universe says. That's just, you know, what the boss says is on video, but what the king of the universe says is sort of on audio. I know with my head, but I don't know with my heart, and that's the third thing.
+
+### Power to Change: The Ministry of the Holy Spirit
 
 Where do you get the power to really make this change? And the answer is, it's actually in verse 13, but it's also in verse 5 and 6. Verse 13 says, you have to put to death the deeds of the body, you have to destroy and root out your fleshly way of living, your self-savations projects by the spirit.
 
@@ -178,7 +194,11 @@ But it's part of the radioactive materials that the Holy Spirit's given us. Firs
 
 Yeah, but for us, this is one of the radioactive parts, this is some of the material that the Holy Spirit is using to destroy the self-salvation. You can find it anywhere. At the end of the Iron Giant, the Great Cartoon, the Iron Giant, he takes a nuke to save the people, and it gets resurrected to some incredible music, you see.
 
-I can't, Kathy and I can't watch that without weeping about Jesus, and you might say, you know, T. But let me really show you how it works. At the end of the tale of two cities, Sidney Carton resembles Charles Darnay.
+I can't, Kathy and I can't watch that without weeping about Jesus, and you might say, you know, T. But let me really show you how it works.
+
+### Mortification Through Joy: The Cross as Radioactive Material
+
+At the end of the tale of two cities, Sidney Carton resembles Charles Darnay.
 
 Charles Darnay is in the Bastille, I guess, and he's been sentenced to death, he's condemned, and he's going to be guillotined, right? Sidney Carton breaks in stealthily to the jail. Knox Charles Darnay out, and some of his companions take the unconscious man and unconscious man and steal him out of the jail, and Sidney Carton takes his place, takes his clothes, and waits to die in his place.
 

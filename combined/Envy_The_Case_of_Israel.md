@@ -4,9 +4,7 @@
 
 ---
 
-Welcome to Gospel in Life. Some people say the fundamental problem of the world is poverty. Others say it's bad systems, poor education, or biology, but what if none of these can fully explain the brokenness we see, both in the headlines and in our own hearts?
-
-In today's teaching, Tim Keller looks at how the Bible's teaching on sin gives us a deeply honest and yet incredibly hopeful view of the world. The teaching this morning is based on a text that is printed in the bulletin. It's a brief text.
+## 症状：轻看上帝所赐的 / The Symptom: Despising What God Gives
 
 Just give you a little background when we print such a brief text. It's Numbers, Chapter 11, verses 45 and 6. This happens in the midst of a fairly long narrative that many of you are familiar with the broad contours of Israel, the Israelites, were the slave labor force of Egypt.
 
@@ -75,6 +73,36 @@ This is funny, I guess. When they were in Egypt, they said, yes, we have lots of
 Well, it was free, but when they were there they said, but what good is all this free food, when you're not free. But now they're free, and what are they saying? What good is our freedom, if we're going to starve?
 
 When they were back there, out there I can be happy, but right now this isn't good enough. When they were out there, back there I could have been happy, but right now it's not good enough. I'll make you laugh some more.
+
+---
+
+我想讨论嫉妒。嫉妒是什么？嫉妒是当你看到某人拥有的东西，当你想要他们拥有的东西时的感觉，你开始变得苦涩和愤怒。现在，在我们的文化中，我们不常谈论嫉妒。
+
+我们谈论很多其他的罪。我们谈论愤怒。我们谈论贪婪。我们谈论傲慢。
+
+但我们不常谈论嫉妒。为什么？因为嫉妒很深，很秘密。嫉妒不是你能简单地看到的东西。
+
+嫉妒发生在内心深处。嫉妒是关于你想要的东西而不能拥有。现在，让我给你圣经中嫉妒的例子。以色列是上帝的选民。
+
+上帝给了以色列律法。上帝给了以色列圣殿。上帝给了以色列祭司。上帝给了以色列应许的土地。
+
+以色列应该满足。以色列应该感谢。但以色列不是。以色列嫉妒。
+
+以色列看着他们周围的其他国家，他们有他们不能拥有的东西。他们有王。他们有军队。他们有权力。
+
+然后以色列开始嫉妒。以色列说："我们想要一个王。我们想要像他们一样。我们想要权力。
+
+" 现在，这听起来可能没有那么糟糕。但这就是问题所在。以色列有上帝。以色列有上帝的保护。
+
+但以色列想要其他国家拥有的东西。以色列不满足于与上帝在一起。而且，当以色列得到他们想要的王时，会发生什么？以色列变得像其他所有人一样糟糕。
+
+以色列的王变得腐败。以色列的王变得自我中心。以色列的王制造了麻烦。所以嫉妒没有给以色列任何好处。
+
+嫉妒只是让以色列沮丧。
+
+---
+
+## 嫉妒的内在挑剔机制 / The Internal Flawomatic
 
 There's some people who think that New Yorkers have more of a problem with this than most anybody else. There's a theory. Anybody read the couple of weeks ago, New York Times Magazine, an article by John Tierney called Picky, Picky, Picky, do you see that?
 
@@ -149,6 +177,20 @@ And of course you're going to find it. This is the reason why you're constantly 
 Ah, because, you know, I just need a change. I don't like the way I am out there, back there. It's poisoning your life.
 
 You can never sit down and enjoy what's in front of you. You can never sit back and just receive what you've got. To one degree and another, we're all suffering from it.
+
+---
+
+现在，这就是我想要指出的。嫉妒摧毁。嫉妒摧毁幸福。
+
+如果你正在嫉妒，你不能快乐。你无法高兴地看到其他人拥有的东西。你无法为他们的成功而高兴。你被困在苦涩中。
+
+嫉妒摧毁关系。如果你嫉妒你的朋友，你不能真正与他们相处。你开始对他们苦恼。你开始在他们身后说东西。
+
+你开始想他们的坏事。嫉妒摧毁和平。如果你嫉妒，你不能在平静中。你被困在躁动和不满中。
+
+---
+
+## 根源：不信靠上帝 / The Root: Not Trusting God
 
 That's the symptom. Well, you say, well, what's the root of it? I can sort of see why this is kind of making my life a gray thing, a gray situation.
 
@@ -237,6 +279,30 @@ I want this as well. I want this as well. Those things will not fulfill you.
 They will not satisfy you and you will find fault with them. You have to. They'll never satisfy, they'll never please.
 
 And everything around you because you don't trust him. You will find fault with. You'll be picky, picky, picky.
+
+---
+
+现在，为什么我们嫉妒？我想给你几个原因。首先，我们嫉妒，因为我们相信谎言。谎言是什么？
+
+谎言是我们的价值来自于我们拥有的东西。谎言是我们的价值来自于我们有多成功。谎言是我们的价值来自于他人如何看待我们。如果你相信这个谎言，那么当你看到有人拥有比你更多或比你更成功的东西时，你会嫉妒。
+
+你会想："他们比我更有价值。他们比我更重要。" 但这不是真的。你的价值不来自你拥有的东西。
+
+你的价值不来自于你的成功。你的价值来自于你被创造的事实。你的价值来自于你被上帝所爱。其次，我们嫉妒，因为我们比较。
+
+我们看着其他人，我们比较他们的生活与我们的生活。我们看着他们的房子、他们的汽车、他们的工作、他们的关系，我们开始比较。而这总是危险的。你永远可以找到拥有比你更多的人。
+
+你永远可以找到比你更成功的人。你永远可以找到有你想要的生活的人。如果你进行比较游戏，你总是会输。有人总是会比你"更好"。
+
+第三，我们嫉妒，因为我们不满足。我们不感谢我们拥有的东西。我们不欣赏我们的生活。我们一直看着我们没有的东西。
+
+我们一直想要更多。但满足来自感谢。满足来自欣赏你拥有的。满足来自看着你的生活，说："这很好。
+
+我很高兴。"
+
+---
+
+## 解药：天上的真粮 / The Antidote: The True Bread of Heaven
 
 Your flammatic will be going off all the time. Now what's the antidote? Well, here's the antidote.
 
@@ -358,58 +424,7 @@ The sermons and talks you hear on the Gospel and Life Podcast were recorded betw
 
 ---
 
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《福音人生》。有些人说世界的根本问题是贫困。其他人说这是坏制度、教育不足或生物学，但如果这些都不能完全解释我们所看到的破裂——在新闻标题中和我们自己的心里——会怎样？在今天的教导中，蒂姆·凯勒看圣经关于罪的教导如何给我们一个既深刻诚实又令人难以置信的希望的观点。
-
-我想讨论嫉妒。嫉妒是什么？嫉妒是当你看到某人拥有的东西，当你想要他们拥有的东西时的感觉，你开始变得苦涩和愤怒。现在，在我们的文化中，我们不常谈论嫉妒。
-
-我们谈论很多其他的罪。我们谈论愤怒。我们谈论贪婪。我们谈论傲慢。
-
-但我们不常谈论嫉妒。为什么？因为嫉妒很深，很秘密。嫉妒不是你能简单地看到的东西。
-
-嫉妒发生在内心深处。嫉妒是关于你想要的东西而不能拥有。现在，让我给你圣经中嫉妒的例子。以色列是上帝的选民。
-
-上帝给了以色列律法。上帝给了以色列圣殿。上帝给了以色列祭司。上帝给了以色列应许的土地。
-
-以色列应该满足。以色列应该感谢。但以色列不是。以色列嫉妒。
-
-以色列看着他们周围的其他国家，他们有他们不能拥有的东西。他们有王。他们有军队。他们有权力。
-
-然后以色列开始嫉妒。以色列说："我们想要一个王。我们想要像他们一样。我们想要权力。
-
-" 现在，这听起来可能没有那么糟糕。但这就是问题所在。以色列有上帝。以色列有上帝的保护。
-
-但以色列想要其他国家拥有的东西。以色列不满足于与上帝在一起。而且，当以色列得到他们想要的王时，会发生什么？以色列变得像其他所有人一样糟糕。
-
-以色列的王变得腐败。以色列的王变得自我中心。以色列的王制造了麻烦。所以嫉妒没有给以色列任何好处。
-
-嫉妒只是让以色列沮丧。现在，这就是我想要指出的。嫉妒摧毁。嫉妒摧毁幸福。
-
-如果你正在嫉妒，你不能快乐。你无法高兴地看到其他人拥有的东西。你无法为他们的成功而高兴。你被困在苦涩中。
-
-嫉妒摧毁关系。如果你嫉妒你的朋友，你不能真正与他们相处。你开始对他们苦恼。你开始在他们身后说东西。
-
-你开始想他们的坏事。嫉妒摧毁和平。如果你嫉妒，你不能在平静中。你被困在躁动和不满中。
-
-现在，为什么我们嫉妒？我想给你几个原因。首先，我们嫉妒，因为我们相信谎言。谎言是什么？
-
-谎言是我们的价值来自于我们拥有的东西。谎言是我们的价值来自于我们有多成功。谎言是我们的价值来自于他人如何看待我们。如果你相信这个谎言，那么当你看到有人拥有比你更多或比你更成功的东西时，你会嫉妒。
-
-你会想："他们比我更有价值。他们比我更重要。" 但这不是真的。你的价值不来自你拥有的东西。
-
-你的价值不来自于你的成功。你的价值来自于你被创造的事实。你的价值来自于你被上帝所爱。其次，我们嫉妒，因为我们比较。
-
-我们看着其他人，我们比较他们的生活与我们的生活。我们看着他们的房子、他们的汽车、他们的工作、他们的关系，我们开始比较。而这总是危险的。你永远可以找到拥有比你更多的人。
-
-你永远可以找到比你更成功的人。你永远可以找到有你想要的生活的人。如果你进行比较游戏，你总是会输。有人总是会比你"更好"。
-
-第三，我们嫉妒，因为我们不满足。我们不感谢我们拥有的东西。我们不欣赏我们的生活。我们一直看着我们没有的东西。
-
-我们一直想要更多。但满足来自感谢。满足来自欣赏你拥有的。满足来自看着你的生活，说："这很好。
-
-我很高兴。" 现在，这如何改变？我们如何停止嫉妒？首先，**我们需要记住我们的价值。**
+现在，这如何改变？我们如何停止嫉妒？首先，**我们需要记住我们的价值。**
 
 我们的价值不来自外部事物。我们的价值来自于我们被上帝所爱。我们的价值来自于基督为我们而死。我们的价值来自于我们是上帝创造的，他认为我们是有价值的。
 

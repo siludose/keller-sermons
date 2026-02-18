@@ -6,6 +6,8 @@ Welcome to Gospel in Life. Some people say the fundamental problem of the world 
 
 In today's teaching, Tim Keller looks at how the Bible's teaching on sin gives us a deeply honest and yet incredibly hopeful view of the world. The teaching this morning is based on a text that is printed in the bulletin. It's a brief text.
 
+### The Symptom: Despising What God Gives
+
 Just give you a little background when we print such a brief text. It's Numbers, Chapter 11, verses 45 and 6. This happens in the midst of a fairly long narrative that many of you are familiar with the broad contours of Israel, the Israelites, were the slave labor force of Egypt.
 
 They were in Egypt and they helped build under the lash the great pyramids and many of the great, not the great pyramids necessarily, but the many great works of architecture in ancient Egypt. But they were slaves. They were cruelly oppressed.
@@ -73,6 +75,8 @@ This is funny, I guess. When they were in Egypt, they said, yes, we have lots of
 Well, it was free, but when they were there they said, but what good is all this free food, when you're not free. But now they're free, and what are they saying? What good is our freedom, if we're going to starve?
 
 When they were back there, out there I can be happy, but right now this isn't good enough. When they were out there, back there I could have been happy, but right now it's not good enough. I'll make you laugh some more.
+
+### The Internal Flawomatic
 
 There's some people who think that New Yorkers have more of a problem with this than most anybody else. There's a theory. Anybody read the couple of weeks ago, New York Times Magazine, an article by John Tierney called Picky, Picky, Picky, do you see that?
 
@@ -147,6 +151,8 @@ And of course you're going to find it. This is the reason why you're constantly 
 Ah, because, you know, I just need a change. I don't like the way I am out there, back there. It's poisoning your life.
 
 You can never sit down and enjoy what's in front of you. You can never sit back and just receive what you've got. To one degree and another, we're all suffering from it.
+
+### The Root: Not Trusting God
 
 That's the symptom. Well, you say, well, what's the root of it? I can sort of see why this is kind of making my life a gray thing, a gray situation.
 
@@ -235,6 +241,8 @@ I want this as well. I want this as well. Those things will not fulfill you.
 They will not satisfy you and you will find fault with them. You have to. They'll never satisfy, they'll never please.
 
 And everything around you because you don't trust him. You will find fault with. You'll be picky, picky, picky.
+
+### The Antidote: The True Bread of Heaven
 
 Your flammatic will be going off all the time. Now what's the antidote? Well, here's the antidote.
 

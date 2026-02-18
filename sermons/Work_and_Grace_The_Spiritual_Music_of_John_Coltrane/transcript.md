@@ -90,6 +90,9 @@ He was a great example of it. And you can hear it whenever he plays. His music i
 
 It's always deep. There's never extraneous things to it, whether he's playing a million notes or just one note. He grabs you and shakes you at your core of your soul.
 
+### The Hand of God in Art
+
+
 And that, to me, because of the way I believe, is the hand of God. When I hear him play, it's not just the person playing. It's the voice of God screaming out that horn.
 
 I have to say that in listening to music, I've never heard the awesome power of the creators so manifest in an individual ever. I think you'd be hard-pressed to find that kind of depth. Many places else.
@@ -181,6 +184,9 @@ Thanks for the performance was fantastic. Another question I actually for both o
 That in between sets, he would go and practice with other musicians but just hang out in some ways his music changed so much because he was constantly practicing and dedicated to music. And I guess I have a question regarding music and art as a form and how Christians relate to that. Particularly, when you dedicate so much of your life and so much intensity to music, to what degree does that can the music become something you worship in itself.
 
 And, and it sounds like from what I've heard you say, Coltrane moved past that to actually using the music as a form of worship being God or expression of his worship to God. And I'm not sure exactly where that balance is if you spend every waking hour of your whole life practicing to be able to produce something and this could go for any art form, then is that an idol in your life or is that a remarkable dedication that shows your worship to God? That's a great question.
+
+### Dedication and Idolatry
+
 
 He's saying, when does your dedication to your art, whether it's music, any kind of art, your practice of it, when does it kind of, when does the line blur and it become idols? An idol to you that you worship. This is a thing that we all struggle with.
 
@@ -274,6 +280,9 @@ It was never technique for technique sake. It was technique in the service of a 
 
 But in the beginning, I think almost anybody in a career in the very beginning, you are, it is a kind of works righteousness. You're working hard because you want to be accepted. But you often see with people who get the acceptance they want.
 
+### Beyond Success
+
+
 They get successful and they still go on. And I think it's because they realize at a certain point now I've got a vision. I want to get it out.
 
 And obviously, my concern is more rhetoric and narrative. And I'm always frustrated now because I know what I want to say but I never feel like I quite get there to say it. In the earlier days of being a preacher, I worked by crazy because I wanted people to accept me.
@@ -365,6 +374,9 @@ And bring him on. Okay. I will.
 Yeah. I've got tears in my eyes and I thank you all so much. Yeah.
 
 It just means so much. And there are so many people out there who need hope and future. And God has blessed me to do what I love doing and to reach out and this just inspires me so.
+
+### Grace and Gratitude
+
 
 Oh, thank you. Thank you. Thank you.
 

@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel in Life. During January, we're inviting our listeners to consider becoming a Gospel in Life monthly partner. Monthly partners are an important part in helping us to plan for how we can be the most effective in reaching people all over the world with the gospel.
 
 If you'd like to become a monthly partner, just visit gospelinlife.com slash partner. That's gospelinlife.com slash partner. What comes to mind when you hear about the Ten Commandments?
@@ -12,7 +14,11 @@ Since what may be known about God is plain to them because God has made it plain
 
 Therefore, God gave them over in the sinful desires of their hearts to sexual impurity for the degrading of their bodies with one another." Suppressing the truth and suppressing the truth is not admitting there's a God there and the reason that people are suppressing the truth is because, what does it say in verse 21? They won't thank him. The thing that gets this God angry, a God as great as this, a creator God who sifts the stars through his fingers like sand, to whom the Milky Way is a piece of lint.
 
-What gets this great and good being angry? Ingratitude. Now, a question comes up.
+What gets this great and good being angry? Ingratitude.
+
+### Ingratitude as Plagiarism and Treason
+
+Now, a question comes up.
 
 Is God being petty? Why would God get angry about ingratitude? It seems like a petty thing.
 
@@ -60,6 +66,8 @@ My friends, that is treason. You're saying, I want to be governor of my own life
 
 That's treason. It's cosmic treason. It's ingratitude of the highest order.
 
+### The Secret We Keep from Ourselves
+
 And this passage says it's secret treason because the passage says something very, very, very profound. And that is that the wrath of God is being revealed from heaven against the wickedness of men who suppress the truth. Since they can see in nature, it says, since the creation of the world God's invisible qualities have been clearly seen in what is created, though they knew God, they neither glorified him as God nor gave thanks, but suppressed the truth.
 
 The reason this is a secret treason is because you keep it secret from yourself. It says that even though you know there is a God, no matter who you are, who created you, that owns you, to whom you owe a debt, we all press that truth down to some degree. We suppress it.
@@ -81,6 +89,8 @@ It says in verse 21, because they refuse to thank him, it says their thinking be
 Ingratitude leads to repression, repression leads to darkness, and darkness leads to all the sin problems that we've got. And the only answer, this passage tells us, is to exchange the lie for the truth of who God is to us and the debt we owe him, exchange the lie for the truth of gratitude. And when you take that truth and put it back in the center of your life, joy explodes again.
 
 Now that's what the passage says, but let's break it down. Let's go back to each of those steps. Number one, all right, number one.
+
+### Ingratitude Leads to Repression
 
 It says here, ingratitude leads to repression. You see this word for at the beginning of verse 21, it says for. The reason they repress and suppress the truth, even though they look out into nature and there's a creator God obvious, Paul says, because they don't want to glorify him as God or give thanks to him, they hold down the truth.
 
@@ -108,6 +118,8 @@ They say, well, that doesn't prove God. No, it doesn't. It doesn't prove that th
 
 But what kind of fool would bet your life on that? And what Paul is saying is anybody who does shows a bias. Paul says, if you really are that, if you're that willing to suppress the truth, it shows a bias.
 
+### Psychological Reasons to Deny God
+
 You know, Freud, Marx, Feuerbach, and Nietzsche all said that Christians need God. They've got psychological needs for God. You see this, and they all had different approaches, of course, to it.
 
 And Marx said the rich needed God to keep the poor down. And of course, Sigmund Freud said people needed God because they need to have a deity to whom they can atone for their rebellion against authority figures. And Nietzsche had his own view, and Ludwig Feuerbach, and they all said there's psychological reasons why people need to believe in God.
@@ -124,6 +136,8 @@ Oh, how great it would be if it was. That's not what the response has been to me
 
 And that shows, I'd say, a deep bias. That's what Paul says. Here's people who are willing to bet their lives on a fairly slim chance.
 
+### Repression Leads to Darkness
+
 Ingratitude leads to repression, but then it goes further. Repression leads to darkness. It says here, verse 21, since they would not give thanks to him, their thinking became futile and their foolish hearts were darkened.
 
 Now, the word futile means pointless. It means not being able to see the purpose in something. And that is the truth.
@@ -133,6 +147,8 @@ What Paul is saying here is if you reject the personal God because you don't wan
 When we put our faith in them, deep down, we know they can't satisfy our deepest longings. The truth is that we've made lesser gods of good things, things that can't give us what we really need. In his book Counterfeit Gods, The Empty Promises of Money, Sex, and Power and the Only Hope That Matters, Tim Keller shows us how a proper understanding of the Bible reveals the truth about societal ideals and our own hearts, and shows us that there is only one God who can wholly satisfy our desires.
 
 This month, we'll send you Counterfeit Gods as our thank you for your gift to help Gospel & Life share the love of Christ with people all over the world. You can request your copy at gospelandlife.com slash give. That's gospelandlife.com slash give.
+
+### Three Case Studies on Morality Without God
 
 Now here's Dr. Keller with the rest of today's teaching. Let me give you three case studies.
 
@@ -186,6 +202,8 @@ And almost all of them justify what they've done. Well, I know I raped her becau
 
 And you see, the ingratitude leads to the self-pity, leads to the bitterness, and it leads to prison. But even if you're not in the real prison, self-pity is a prison. And everything comes from that ingratitude.
 
+### Gratitude as the Mainspring of Life
+
 On the other hand, if you get up in a day and you stand on the Christian platform, and the Christian platform is this, I have a creator God who created me, I owe him everything, I've never even begun to repay him for what he's done for me, and therefore, never on any day have I ever gotten what I deserve. I've only gotten better than I deserve. And because of that, everything I receive today is the mercy of God.
 
 On the basis of that, your life becomes a mainspring of grateful joy. You see, here's the answer to the whole problem. This terrible secret that goes down and down and down and down, ingratitude leads to repression, repression leads to darkness, darkness leads to self-pity, and all sorts of evil behaviors that kill your own conscience, you go against what you know is right.
@@ -235,6 +253,8 @@ Where's the logic in all that? And it's over. Your bitterness is over.
 Your worry is over. Even that bad self-image is over. Because you get power and freedom in your life to the degree that you can say, Father, thank you for accepting me fully in Jesus Christ.
 
 I don't have to prove myself anymore to anybody. Thankfulness is the mainspring. Power and freedom and joy in your life to the degree you exercise and use the gratitude you've got.
+
+### Faith as Grateful Response to Grace
 
 But there's another kind of person in the room. Here's what you have to figure out. You may be a person with a general belief in God.
 

@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel in Life. How comfortable are you when it comes to being open about your faith? This month on the podcast, Tim Keller looks at what the Bible says about having a public faith.
 
 He shows us what it looks like to be open about our faith in a pluralistic society in a way that creates civility and peace and meaningful dialogue with our neighbors. It is very common for a lot of people, even people who want to live the Christian life to feel that they've got to check their brains at the door. A lot of people will say to me, I know that probably Christianity isn't really true, but I want it to be true or I live a general Christian life, but I know that there's all sorts of problems with the historical accounts.
@@ -22,6 +24,8 @@ We will take questions up here. You might want to be questioning the left brain,
 
 You need some more? We have a few more, yeah. Here we go.
 
+### The Case Outline: Three Stages of Evidence
+
 If you look at this, let me give you a case. Tonight I am not making a case on this sheet for the authority of the Bible. I'm not trying to say, I'm not saying, here's the argument for why we have to believe everything the Bible teaches.
 
 I'm sure on here you have a case that the Bible is historically reliable, that the Jesus that shows you really happened, he really existed. Here's the argument outline, three stages, and then I'll try to break it down. Number one, if you honestly look at what the gospels claim, you will see they're not written as legends or fiction, they are either historical accounts or a deliberate hoax that's right on the front versus argument outline.
@@ -36,6 +40,8 @@ Now let me just quickly run through what I just mentioned as how do you judge an
 
 As basically reliable. We're not saying that they're inherent, but it's basically reliable. Why do you trust them?
 
+### The Bibliographic Test
+
 There's several rules, and if you, several tests that you give to historical documents, and if you give those tests to the Bible, it comes out as a reliable historical document too. Here are the tests. Number one, and this one I won't even read through, the bibliographic test.
 
 If somebody, pardon me, he's got one. You don't have one. How did you not get one?
@@ -45,6 +51,8 @@ Did you save one? The bibliographic test, you can always get more. When it comes
 It'll come down every day, it'll just appear. The bibliographic test, I won't mention unless somebody brings it up later. Some people say, well, we don't have the originals, so how do we know?
 
 The fact is that we don't have the originals, but we have hundreds of documents within a few decades, hundreds of copies within a few decades of the originals, and so nobody really denies that we have essentially what originally was written by the gospel writers. If anybody's got a problem with that, I'll go into that. That's number one.
+
+### The Genre Test: History Not Legend
 
 Number two, this is important. The genre test. If you want to know whether historical documents are historical, an ancient document that is, you have to ask yourself, was it written to be a history?
 
@@ -90,6 +98,8 @@ That the gospels were certainly not legends, in one sense, they're not good enou
 
 He says, if they are not history, they are realistic prose fiction of a kind that actually never existed before the 18th century. Little episodes like Jesus writing in the dust when they brought him the woman taken an adultery, which have no doctrinal significance at all are the mark of it. So what do you see the second point you've got here is either the gospels or total hoaxes deliberate lies or else they're historical documents, but the one thing you can't say is well, they're legends.
 
+### The Corroboration Test
+
 You can't say that. The third historic test of historiography would be the corroboration test. If you have a historical document, the question that comes up is, is there any way to know that other witnesses, other authorities corroborate the testimony?
 
 And we have a lot of corroboration. We have some historical witnesses we still have, and then we have some witnesses we don't have. Now, look, the witnesses we still have, here, Tacitus, who was a Roman historian, wrote in 1815, writes that in 64 AD, Nero punished the Christians, and then he says, Christ was executed when Tiberius was emperor by the order of the procurator, Pontius Pilate.
@@ -115,6 +125,8 @@ Because when was the Battle of Gettysburg, 1863, 50th anniversary. Do you know h
 It was incredible. They all came together and they talked about things, and could somebody really have written a book within those 50 years that talked about battles or talked about things that happened, that hundreds and thousands of the people on the battlefield had seen within the lifetime of those people. Unless they'd happened, you see?
 
 There must have been corroboration within that time frame. The gospel's written too soon after the events. And so we know that there must have been eyewitnessed corroboration as well.
+
+### The Problem of Miracles
 
 Over the end, we are now at the end. The problem of miracles, now see where we are, bibliographically, we know we have the originals basically. Number two, the genre, they are historical documents or hoaxes.
 
@@ -153,6 +165,8 @@ That's why here at Gospel and Life, August is Go and Share Month. Throughout Aug
 It's a powerful resource that explores how Christianity makes emotional, cultural, and rational sense in today's world. It's our thanks for your gift, and provides a way you can do a small act to share the gospel by reading the book with a friend giving one to a coworker or passing on both copies to people who are exploring the Christian faith. It's a simple way to start a Gospel conversation or continue it.
 
 To request your two copies of Making Sense of God, simply go to Gospel and Life.com-slash-give. Again, that's Gospel and Life.com-slash-give. Now, here's Dr.
+
+### Open Forum: Questions and Answers
 
 Keller with the remainder of today's teaching. So let's get started, first hand. That's a good question.
 

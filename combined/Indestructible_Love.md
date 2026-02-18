@@ -4,21 +4,7 @@
 
 ---
 
-Welcome to Gospel in Life. You don't have to look far to see that something's deeply wrong with our world and with us. But is there an answer that gets to the root of why?
-
-In today's message, Tim Keller explores the human condition through stories in the Bible, uncovering what Scripture says about sin and why it's the only explanation deep enough to face the truth about ourselves. I'm going to read you from Isaiah chapter 49. I'm going to read verses 8 down to 16.
-
-It's in your bulletin. I'm going to read to verse 16. This is what the Lord says.
-
-In the time of my favor, I will answer you and in the time of day of salvation, I will help you. I will keep you and I will make you to be a covenant for the people to restore the land and to re assign its desolate inheritances to say to the captives, come out and to those in darkness be free. They will feed beside the roads and find pasture on every barren hill.
-
-They will neither hunger nor thirst, nor will the desert heat or the sun beat upon them. He who has compassion on them will guide them and lead them beside springs of water. I will turn all my mountains into roads and my highways will be raised up.
-
-See, they will come from afar, some from the north from this west, some from the region of Aswan. Shout for joy, oh heavens, rejoice so earth, burst into song, oh mountains, for the Lord comforts his people and will have compassion on his afflicted ones. But Zion said, the Lord has forsaken me, the Lord has forgotten me.
-
-Can a mother forget the baby at her breast had had no compassion on the child she has born? Though she may forget, I will not forget you. See, I have engraved you on the palms of my hands.
-
-Your walls are ever before me. Let's end there. This is God's Word.
+## 沮丧的心灵 / The Despondent Heart
 
 Now, if you've been coming over the weeks, you know, this is the actually end of a series on what the Bible has to say about what's wrong with the human heart, what's wrong with the human race, what the Bible calls sin. And if you're part of this series, you need to know that if you've been following this series, this is the ultimate cure. Well, we actually have here, let me remind you this when we've been in Isaiah for a while, what we have here is something written to people who are going to face our facing exile.
 
@@ -79,6 +65,48 @@ It's very interesting. In verse 14, we see someone saying in spite of all these 
 I don't feel left by you. I don't feel that you're committed to me. And we see how God deals with a despondent heart.
 
 And that's pretty instructive. How does God deal with it? How does God deal with a person who's despondent in despair?
+
+---
+
+现在，如果你这几周都来听讲了，你应该知道，这其实是关于圣经中对人类心灵、人类种族的罪恶问题的一系列讲解的最后部分。而如果你是这个系列的一部分，你需要知道，如果你一直跟着这个系列听讲，这就是最终的答案。实际上，当我们已经读到以赛亚书一段时间时，这里的内容是写给那些将要面对流放的人。
+
+犹太人失去了耶路撒冷，这也是为什么会有关于锡安城墙的讨论的原因。锡安是指建有圣殿的那个山丘，有时也指代耶路撒冷这座城市。因此，当巴比伦帝国围攻并摧毁了耶路撒冷时，一切都毁了。耶路撒冷的城墙被摧毁，圣殿也被摧毁，人们被流放到异乡。
+
+以赛亚书中的这段话是主对这些人的预言。在这里他提出了问题，并且给出了答案。问题是：我们该如何面对这一切？我们应该怎么做？
+
+直到第13节，我们没有把这一整段都印出来，在这一章中，我们有典型的神学讨论。通过以赛亚，上帝说他会如何处理这个问题。从第8节开始，第49章的1到8节讲述了这个神秘人物——主仆人，他将要来，并且会遭受苦难。根据第9至12节的内容，作为结果，他将会聚集一个新的民族，从东方和西方（实际上是沙漠那边）以及北方和南方带来新人。
+
+并且会有从黑暗中被带出来的人，被释放的人。因此，因为他的苦难，他将要建立一个新的团体。最后，在第13节，这个巨大的神学论述的高潮部分，我们被告知，通过仆人和这群人的工作，上帝将会做一件如此强大的事，以至于能够拯救整个世界。因为在这一段中，我们看到“喜乐”、“天”、“地”、“山岭”、“田野”，上帝实际上要更新整个创造。
+
+无论上帝做什么，都将如此强大，以至于天地万物都会被更新，一切都会焕发出新的生机。这就是上帝所说的。这是多么宏伟！多么巨大！
+
+这太宏大了，太大了！因为第14节直接击中了你的心。如果你在阅读这一章，你会感受到这一点，而我则无法通过这里的内容完全传达给你。但当你继续往下读时，你会发现上帝说：“我要这样做。
+
+”“我要那样做。” 当然，在这段神学论述中，上帝正在召唤自然界开花赞美他。然后第14节出现了。那么第14节说了什么？
+
+它说什么？听众们对上帝的回应是什么？他们说了什么？哇，不，他们说了什么？
+
+看，我仍然很沮丧。这时，上帝说：“看看我要做的一切。”但经文却说：锡安说，“耶和华离弃了我；耶和华忘记了我。” 这里你看到的是，上帝向人们阐述了这一神学论述，而人们回应道：现实生活的困境压倒了那些遥远、抽象、远离的承诺。
+
+你的所有神学理论。我只知道锡安倾覆了。我的生活破碎了。你怎么能让我经历这一切？
+
+换句话说，上帝在这里给出了伟大的神学论述，但人们却说：“我还是很沮丧。”“你抛弃了我。” 你忘了我。我不知道你在说些什么，什么天地之间。
+
+我不知道我是谁。我不知道这里发生了什么事。因此我们所面对的是工业级的沮丧，人的心灵。要让人心感到快乐和被爱是非常艰难的。
+
+确实，有些人比其他人更糟糕。但基本上来说，听我说，你要对人的心灵这样说： 你是个耻辱。你是垃圾。你是可恶的。
+
+这些话你永远不会忘记。你一辈子都不会忘记这样的话。但是你要对人的心灵说：你很棒，你很好。我喜欢你。
+
+你需要这样的鼓励。这种感觉很快就会消逝。五分钟后，你就需要再次听到这样的话。否则你会忘了。
+
+尽管有人声称爱，但人心还是会陷入沮丧中。那么神怎么办呢？我们来看看这里的情况。非常有趣的是，在第14节，我们看到一个人说，尽管有这些伟大的声明，我还是很沮丧，你并不爱我。
+
+我不觉得被你抛弃了。我觉得你不忠于我。然后我们看到了神如何处理沮丧的心灵。这很有启发性。
+
+---
+
+## 上帝停下来并争辩 / God Stops and God Argues
 
 First of all, let me show you two general principles and then three specific principles, two general ways in which God works with a despondent depressed person. And then three very specific things that he joins us to do. First, there's two real general principles and they go like this.
 
@@ -156,7 +184,63 @@ Look, well, I'll just say what the three things are. He says, think of who you. 
 
 Look at what I have done. And practice who you are, okay? Think of who I am.
 
-Look at what I've done and practice who you are. Now, here's the three. First of all, think of who I am.
+Look at what I've done and practice who you are. Now, here's the three.
+
+---
+
+神是如何做的呢？当一个人在绝望中感到沮丧时，神又是如何对待他的？首先，让我给你讲两个基本原则和三个具体原则。有两个基本的方法神与沮丧的人打交道。
+
+然后有三项具体的行动。首先是两个**真正的一般原则，它们是**这样的： 首先，神会停下来。这可能不容易让你看到，除非你整章都读了，但神在前进的过程中看到了这一点。他在第1到13节中谈论了很多事情。
+
+这一段的结构非常美妙。我今晚也不打算详细讨论它，因为我们不会过多关注这部分内容。但他实际上谈到了救赎历史中的三个伟大阶段：从十字架到新团体再到新创造，从十字架到团体再到新创造。真的非常美妙。
+
+然后他突然停下来问：有什么问题吗？这就像当然有。他要我说，如果有任何问题，有人举手说：“我抑郁了。我绝望了。
+
+” 我不明白你在说什么。我觉得被抛弃了。我觉得一切都完了。上帝停了下来。
+
+因为第15节、第16节，事实上整章的内容都是如此。上帝停止了说话。祂改变了话题，因为当他们说“你忘了我”时，整章的其余内容都在谈论这个想法。换句话说，上帝让祂自己被中断了，祂停了下来。
+
+这一点非常重要。最近我在思考自己的牧师生涯时意识到，无论你是男性还是女性，无论你的种族是什么，无论你的年龄如何，我们每个人都有我们特有的愚蠢之处。当我年轻的时候，我有一种倾向不去停下来。当有人沮丧地说话时，有一种倾向就是继续讲神学。
+
+比如，让我把讲座说完吧。你知道的，你只是要靠信心战斗。你是被收养的家庭成员。你会统治和管理。
+
+你知道的，你的神学。当你年轻时，作为年轻的牧师或年轻的团队成员，有一种倾向就是说：“我能解决这个问题。” 让我继续我的事工吧。让我把神学倾倒给你们吧。
+
+但上帝停了下来。另一方面，随着我成为年长的牧者，很明显，我意识到自己仍然不想停下来，只是出于不同的原因。现在当你看到有人沮丧时，尽管有这些伟大的宣称，当你说“我知道基督教教导什么，我知道圣经说什么”，而你仍然感到抑郁时， 有一种倾向就是看轻他们说：“快点振作起来。” 但你知道，当你年长时，你见过人们如何度过难关，你会说：“来吧，你会挺过去的。
+
+一切都会好起来的。” 你在为什幺自怜呢？比你更糟糕的问题人们都经历过，你们也度过了，我也经历过。所以当你年轻时，有一种倾向不去真正停下来倾听；当你年长时，也有种倾向不去真正停下来倾听。
+
+我不知道什么时候才能成为一位好牧者。我知道的是，神是被打断的。祂停下来了。但另一个普遍的原则是，祂会停下来，也会争辩，因为第15节和第16节是在进行辩论。
+
+第15节和第16节是充满对抗性的。第15节和第16节反驳了沮丧心灵的说法，并且这是完美的平衡，因为在另一方面，祂对心灵有同情心，但也在争辩。现在，如果你想要一个完美体现这个原则的例子，也就是这种平衡，无论你是自己处于沮丧中还是在帮助别人，最好的例子就是诗篇42篇，其中有一个诗人感到沮丧，他对自己说：“为什么你的心灵如此沮丧？为什么你的心灵如此沮丧？
+
+” “为什么”这个词在他心里反复出现。现在，如果你仔细看看这里，这就是完美的平衡，因为在一方面，他在倾听心灵的声音；在另一方面，他又在与自己的心灵辩论：你的心灵为何如此沮丧？你在做什么？这就是我要说的原则，在我们进入具体细节之前，这是个普遍原则。
+
+如果你不倾听自己的心灵，你会陷入心理的废墟。但如果只听从自己的心灵，你也同样会陷入心理的废墟。顺便提一句，几乎所有的人都会犯其中一种错误。有些人就是不愿意倾听，他们说：“哦，你知道，你啊，你啊，你否认它。
+
+你没有，你知道，一点也不难过。” 我并不生气，我很安好，我很好。然后就一直忙碌着，不去坐下来倾听自己的心灵，不去找出问题到底有多严重？原因是什么？
+
+所以很多人只是这样，你知道的，我们都是外向的人，所以我们出去做些事情吧，我会没事的。我们不倾听自己的心灵。另一方面，有些人则完全只听从自己的心灵。他们让心灵被遗忘，被抛弃。
+
+你想知道化学反应吗？我被遗忘了，我被忽略了。现在听好了，如果你只听从你的心意，却不与它对话，也不去掌握它，只是说真话，那你就是脱离了现实。我意思是，你必须这样做。
+
+如果你不这样做，如果你从来不倾听你的心声，或者只听从你的心而不去倾听，那么上帝所做的就是他会停下来倾听。他非常认真地对待这件事，但他也会争辩。这就是一般的原理。然而，当上帝面对沮丧的心时，他具体做了哪些事情呢？
+
+有三件事情。你知道吗？正如我在开头暗示的那样，这三件事不仅治愈了沮丧的心，也治愈了罪恶的心。“忘记”和“弃绝”的词义不同。
+
+“弃绝”更多是指外部行为，意味着你没有为我做些什么，但“忘记”更多是指内心的感受，即你已经拒绝了我。弃绝更侧重于缺乏关注，而忘记则更多是出于内心的排斥，因为你认为有问题，不是吗？我觉得自己不好。有时，沮丧更多的是愤怒而不是羞愧；有时则是更多的羞愧而不是愤怒。
+
+它们虽然不同，但彼此非常接近。有时候很难分辨哪一个是主导情绪。所以当上帝面对沮丧的罪恶的心时，他要求我们做三件事。他让我们去做这三件事，并且这些都在第15和16节以及第16A中提到。
+
+看吧，我直接告诉你这三件事是什么。他说："想想你是谁。""看看我是谁。""看看我做了什么。
+
+"然后实践你所是的样子。"现在，这里就是那三件事。"
+
+---
+
+## 刻在他的掌心 / Engraved on His Palms
+
+First of all, think of who I am.
 
 Who is he? Now, we have here a metaphor that God deliberately chooses to tell us something about who he is. Verse 15, can a mother forget the baby at her breast and have no compassion on the child?
 
@@ -344,194 +428,9 @@ That would be, if you're going to put a chisel, that's just terrible. That must 
 
 Many centuries later, somebody came to another doubter, another despondent person, his name was Thomas. And he said to Thomas, look at the palms of my hands. And when you look at Jesus Christ, look at the palms of his hands to see where your name is, and you will see nail prints.
 
-Why? This is the reason why we're a beauty to him. The reason we're such a beauty to God is because our names have been engraved in something more precious than stones, more precious than diamonds.
-
-The sufferings of Jesus, the nails of Jesus, are the tools with which our names are engraved on the palms of the hands. And what that means, finally we have an answer to how 15 can be true. 16,000 is how 15 can be true.
-
-If Jesus Christ has, is our high priest, if he stands before the Father's throne, and he says, look at what I have done. Look at my suffering. Look at how I've paid for everything.
-
-Look at how I've made a sacrifice. Do you know what that means? Over the years, when I first heard that Jesus Christ was our high priest, and this is in Hebrews chapter 7, I'll affect the whole book of Hebrews, and it's in verse 1, chapter 2, where it says that Jesus Christ, it's just an image, but it's getting a point across.
-
-Jesus Christ stands before the throne of God. And he shows the wounds. And he pleads for us.
-
-When I first heard about that, I said, well, that's good, but it's not completely comforting, because how many times will God finally listen to Jesus about me? I mean, I keep failing, and I keep failing, and I keep failing, and I guess every day, Monday morning Jesus will come on up there and say, look, Tim did it again. But for my sake, would you please continue to love him?
-
-I see God up there on the throne saying, well, all right. But that's to miss the whole thrust of everything this whole passage is about. When Jesus Christ stands before the father's throne now, we know this.
-
-He is not, when he says, love my brothers and sisters. When he pleads for us, he's not demanding, he's not asking for mercy. You know that?
-
-He's not asking for mercy. He's demanding justice. Okay, give me 60 seconds, will you?
-
-Jesus Christ is saying this, thy law, O God, the man's death. For sin, I have paid all their debts. They trusted me, their debts are paid, and therefore for you to get any punishment from them would be to be getting two payments.
-
-Therefore, O God, all thy holiness, all thy justice, not just thy mercy, not just thy mercy, not just thy love, all thy holiness, all thy justice, all of your nature demands that you see them as a beauty. Every other religion and probably most of you who went to churches, Christian churches believe the same thing. Every other religion thinks that when it comes to my relationship with God, it's sort of like a set of scales.
-
-You see the set of scales, right? You know, in old courtrooms, they always have some blind lady or something like that. You know, the blindfold on with the blindfolds on with the scales.
-
-And what does everybody think? Well, I have good deeds and bad deeds, and if I have more good deeds and bad deeds of my good deeds, I weigh my bad deeds, then God will deal with me. And Christianity says, the very holiness of God, the very righteousness of God, compared to which all the mountains of the world and all the planets of the world are like a piece of dust, are on your side now.
-
-That's the reason why first John, if you think I'm exaggerating, first John 1 verse 8 says, if we confess our sins, he is faithful and just to forgive us our sins. It doesn't say he's faithful and merciful. Oh, of course he is, but I didn't say that.
-
-If he would not forgive, if he would not continually accept us, those of us who believed in Jesus Christ, he would be unjust. And that means his whole nature is now for us. Let me put it to you in a nutshell.
-
-What power could turn the holiness, the righteousness, the vengeance, and the wrath of God against evil? What power could turn all that into mother's milk? What power in the whole universe could change things so that every bit of God's holiness now demands that he loves you like a mother?
-
-It's the cross. There's a hymn that goes, what wondrousness, what mysteries in this appointment shine, my breaches of the law are his and all his obedience, mine. That's the gospel.
-
-Lay your deadly doing down, down to Jesus' feet, stand in him and him alone, gloriously complete, and see if you see what he is and then see what he's done. You can start to live as you really are because the last part of verse 16 says something very simple. What does it say?
-
-He says, thy walls are ever before me. Well, you wait a minute. Wait a minute.
-
-Wait a minute. The walls are broken. No, they're not.
-
-Not in God's mind. God says, I treat you the way you're going to be. I practice towards you, not the way you look right now, but the way you're going to be.
-
-And that's what we're supposed to be doing. It's another way to put it. It's simply this.
-
-We are supposed to also take what he has done for us and say, look, if this is how he sees me, then that's how I have to see myself. You have to apply this and it will do anything. When you suffer, what are you supposed to say?
-
-Why have you forsaken me? Wait a minute. Wait a minute.
-
-That word forsaken that's used in verse 14 is also used in Psalm 21, verse 1. It's the very same word Jesus cried on the cross. Jesus Christ is saying, you are not forsaken.
-
-I was forsaken. I was forsaken so that even when you're thrown into pits and you cry out and say, please don't sell me into slavery, God will never, never forget you. He'll never forget you because he forgot me.
-
-And you must never act as if he has. What that means is, when no matter what you're suffering, you say, this can't be punishment. It's can't be punishment.
-
-It's all fallen into the heart of Jesus. It can't be. When you feel guilty, you have to say, this can't bring me into condemnation.
-
-And when you feel disappointment, when you feel discouraged, ultimately discouragement forsaken is always comes from this. Discouragement and forsakenness means, I'm sorry. I know this is going to be vivid, but this is the text.
-
-When God says, you're going to mothers for something only I can give you. There is a milk that your soul needs. It's everlasting love.
-
-Mother's love can't be everlasting. Even the mothers who are great die. And most mothers aren't great.
-
-And whatever you're, if you're discouraged and you say, I'm forsaken, I'm forsaken, it's because there's something that you've made your mother instead of me. There's something that you say, if I have this, then I'm beautiful. You're only beautiful in me.
-
-And that's the reason why he says, if you see in a sense this, no matter what your situation is, whether it's guilt, whether it's lack of self-control, whether it's suffering, no matter what it is, you apply this. Apply this. This is the health of my soul.
-
-Can I just be honest? This is the health of my soul. Not just that in general, I'm living for Jesus, not just in general.
-
-He forgives me when I fall down, but that every fiber of God's attributes are for me. Therefore, the stars will fall from heaven, but his love for me cannot change. On the basis of that, I have something to stand on.
-
-Any other ground is sinking sand, some marsh, and it can be the healthier soul, too. Here's one less thing. I did use to have a house in which we had babies.
-
-I just remember this. The only time whenever it was quiet, my gosh, it's quiet. I suddenly realized why.
-
-It's because they were nursing. I mean, it was the only time they ever were, because they can't cry when they're nursing. How quiet is your soul?
-
-This is what God is saying. If your soul's not quiet, if it's restless, if it's a mess, you don't know what it's like to know who he is, to see what he's done, and to practice who you are now in him. Because when you get a handle on that, you finally got the milk.
-
-You're finally your soul's quieted. Let's pray. Our Father, we ask that you would show us how this, how Jesus was destroyed by justice so that now justice is on our side, and your love for us is indestructible.
-
-Would you please show us how that works out? Would you please show us how we can apply that? Father, this is a strong medicine.
-
-It's the most difficult thing for many of us to grab hold on. We try to hold on to it, and we find that we have to beat it into our heads over and over again, and we lose our orientation towards so quickly. Would you, Lord, tonight, buy your grace and grave these truths into our hearts deeper than they've ever been engraved so that we can start to practice who we are and really see what you've done.
-
-We pray this in Jesus' name. Amen. Thanks for joining us here on the Gospel Unliked Podcast.
-
-We hope that today's teaching encouraged you to go deeper into God's Word. You can help others discover this podcast by rating and reviewing it, and to find more great Gospel-centered content by Tim Keller, visit GospelUnliked.com. Today's sermon was recorded in 1999.
-
-The sermons and talks you hear on the Gospel Unliked Podcast were recorded between 1989 and 2017, while Dr.
-
 ---
 
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《生命中的福音》。我们不需要走太远就能看到这个世界和我们自身出了什么问题，但是否有一种答案能触及根本，解释为何如此？今天的信息中，提摩西·基勒尔通过圣经中的故事探讨了人类的处境，并揭示了圣经对罪的看法以及它为何是唯一能够面对我们自己真相的深刻解释。我将从以赛亚书第49章读起，读到第16节。
-
-这在你们的手册上有。我将读到第16节。这是耶和华说的： 正当我的良善时节，我要应允你；正当我救恩的日子，我要帮助你。我要保护你，使你成为与万民立约的磐石，为要恢复大地，安置荒凉之地的人口，对被囚禁的人说：出来吧！
-
-对那些在黑暗中行走的人说：见光吧！他们将在路边喂养，也在每座荒山找到牧场。他们既不饥饿也不干渴；烈日和旷野的热气都不会伤害他们。有怜悯心肠的人会引导他们，并领他们到水泉旁。
-
-我要使我的众山变为通路，修平我道路的崎岖。看哪，锡安说：耶和华离弃了我，耶和华忘记了我。难道母亲可以忘记吃奶的孩子吗？难道她能不怜悯自己所生的儿子吗？
-
-虽然她可能忘记，但我却不忘记你。看哪，我将你刻在我的掌心上。你的城墙都在我的眼前。让我们在这里结束。
-
-这是神的话语。现在，如果你这几周都来听讲了，你应该知道，这其实是关于圣经中对人类心灵、人类种族的罪恶问题的一系列讲解的最后部分。而如果你是这个系列的一部分，你需要知道，如果你一直跟着这个系列听讲，这就是最终的答案。实际上，当我们已经读到以赛亚书一段时间时，这里的内容是写给那些将要面对流放的人。
-
-犹太人失去了耶路撒冷，这也是为什么会有关于锡安城墙的讨论的原因。锡安是指建有圣殿的那个山丘，有时也指代耶路撒冷这座城市。因此，当巴比伦帝国围攻并摧毁了耶路撒冷时，一切都毁了。耶路撒冷的城墙被摧毁，圣殿也被摧毁，人们被流放到异乡。
-
-以赛亚书中的这段话是主对这些人的预言。在这里他提出了问题，并且给出了答案。问题是：我们该如何面对这一切？我们应该怎么做？
-
-直到第13节，我们没有把这一整段都印出来，在这一章中，我们有典型的神学讨论。通过以赛亚，上帝说他会如何处理这个问题。从第8节开始，第49章的1到8节讲述了这个神秘人物——主仆人，他将要来，并且会遭受苦难。根据第9至12节的内容，作为结果，他将会聚集一个新的民族，从东方和西方（实际上是沙漠那边）以及北方和南方带来新人。
-
-并且会有从黑暗中被带出来的人，被释放的人。因此，因为他的苦难，他将要建立一个新的团体。最后，在第13节，这个巨大的神学论述的高潮部分，我们被告知，通过仆人和这群人的工作，上帝将会做一件如此强大的事，以至于能够拯救整个世界。因为在这一段中，我们看到“喜乐”、“天”、“地”、“山岭”、“田野”，上帝实际上要更新整个创造。
-
-无论上帝做什么，都将如此强大，以至于天地万物都会被更新，一切都会焕发出新的生机。这就是上帝所说的。这是多么宏伟！多么巨大！
-
-这太宏大了，太大了！因为第14节直接击中了你的心。如果你在阅读这一章，你会感受到这一点，而我则无法通过这里的内容完全传达给你。但当你继续往下读时，你会发现上帝说：“我要这样做。
-
-”“我要那样做。” 当然，在这段神学论述中，上帝正在召唤自然界开花赞美他。然后第14节出现了。那么第14节说了什么？
-
-它说什么？听众们对上帝的回应是什么？他们说了什么？哇，不，他们说了什么？
-
-看，我仍然很沮丧。这时，上帝说：“看看我要做的一切。”但经文却说：锡安说，“耶和华离弃了我；耶和华忘记了我。” 这里你看到的是，上帝向人们阐述了这一神学论述，而人们回应道：现实生活的困境压倒了那些遥远、抽象、远离的承诺。
-
-你的所有神学理论。我只知道锡安倾覆了。我的生活破碎了。你怎么能让我经历这一切？
-
-换句话说，上帝在这里给出了伟大的神学论述，但人们却说：“我还是很沮丧。”“你抛弃了我。” 你忘了我。我不知道你在说些什么，什么天地之间。
-
-我不知道我是谁。我不知道这里发生了什么事。因此我们所面对的是工业级的沮丧，人的心灵。要让人心感到快乐和被爱是非常艰难的。
-
-确实，有些人比其他人更糟糕。但基本上来说，听我说，你要对人的心灵这样说： 你是个耻辱。你是垃圾。你是可恶的。
-
-这些话你永远不会忘记。你一辈子都不会忘记这样的话。但是你要对人的心灵说：你很棒，你很好。我喜欢你。
-
-你需要这样的鼓励。这种感觉很快就会消逝。五分钟后，你就需要再次听到这样的话。否则你会忘了。
-
-尽管有人声称爱，但人心还是会陷入沮丧中。那么神怎么办呢？我们来看看这里的情况。非常有趣的是，在第14节，我们看到一个人说，尽管有这些伟大的声明，我还是很沮丧，你并不爱我。
-
-我不觉得被你抛弃了。我觉得你不忠于我。然后我们看到了神如何处理沮丧的心灵。这很有启发性。
-
-神是如何做的呢？当一个人在绝望中感到沮丧时，神又是如何对待他的？首先，让我给你讲两个基本原则和三个具体原则。有两个基本的方法神与沮丧的人打交道。
-
-然后有三项具体的行动。首先是两个**真正的一般原则，它们是**这样的： 首先，神会停下来。这可能不容易让你看到，除非你整章都读了，但神在前进的过程中看到了这一点。他在第1到13节中谈论了很多事情。
-
-这一段的结构非常美妙。我今晚也不打算详细讨论它，因为我们不会过多关注这部分内容。但他实际上谈到了救赎历史中的三个伟大阶段：从十字架到新团体再到新创造，从十字架到团体再到新创造。真的非常美妙。
-
-然后他突然停下来问：有什么问题吗？这就像当然有。他要我说，如果有任何问题，有人举手说：“我抑郁了。我绝望了。
-
-” 我不明白你在说什么。我觉得被抛弃了。我觉得一切都完了。上帝停了下来。
-
-因为第15节、第16节，事实上整章的内容都是如此。上帝停止了说话。祂改变了话题，因为当他们说“你忘了我”时，整章的其余内容都在谈论这个想法。换句话说，上帝让祂自己被中断了，祂停了下来。
-
-这一点非常重要。最近我在思考自己的牧师生涯时意识到，无论你是男性还是女性，无论你的种族是什么，无论你的年龄如何，我们每个人都有我们特有的愚蠢之处。当我年轻的时候，我有一种倾向不去停下来。当有人沮丧地说话时，有一种倾向就是继续讲神学。
-
-比如，让我把讲座说完吧。你知道的，你只是要靠信心战斗。你是被收养的家庭成员。你会统治和管理。
-
-你知道的，你的神学。当你年轻时，作为年轻的牧师或年轻的团队成员，有一种倾向就是说：“我能解决这个问题。” 让我继续我的事工吧。让我把神学倾倒给你们吧。
-
-但上帝停了下来。另一方面，随着我成为年长的牧者，很明显，我意识到自己仍然不想停下来，只是出于不同的原因。现在当你看到有人沮丧时，尽管有这些伟大的宣称，当你说“我知道基督教教导什么，我知道圣经说什么”，而你仍然感到抑郁时， 有一种倾向就是看轻他们说：“快点振作起来。” 但你知道，当你年长时，你见过人们如何度过难关，你会说：“来吧，你会挺过去的。
-
-一切都会好起来的。” 你在为什幺自怜呢？比你更糟糕的问题人们都经历过，你们也度过了，我也经历过。所以当你年轻时，有一种倾向不去真正停下来倾听；当你年长时，也有种倾向不去真正停下来倾听。
-
-我不知道什么时候才能成为一位好牧者。我知道的是，神是被打断的。祂停下来了。但另一个普遍的原则是，祂会停下来，也会争辩，因为第15节和第16节是在进行辩论。
-
-第15节和第16节是充满对抗性的。第15节和第16节反驳了沮丧心灵的说法，并且这是完美的平衡，因为在另一方面，祂对心灵有同情心，但也在争辩。现在，如果你想要一个完美体现这个原则的例子，也就是这种平衡，无论你是自己处于沮丧中还是在帮助别人，最好的例子就是诗篇42篇，其中有一个诗人感到沮丧，他对自己说：“为什么你的心灵如此沮丧？为什么你的心灵如此沮丧？
-
-” “为什么”这个词在他心里反复出现。现在，如果你仔细看看这里，这就是完美的平衡，因为在一方面，他在倾听心灵的声音；在另一方面，他又在与自己的心灵辩论：你的心灵为何如此沮丧？你在做什么？这就是我要说的原则，在我们进入具体细节之前，这是个普遍原则。
-
-如果你不倾听自己的心灵，你会陷入心理的废墟。但如果只听从自己的心灵，你也同样会陷入心理的废墟。顺便提一句，几乎所有的人都会犯其中一种错误。有些人就是不愿意倾听，他们说：“哦，你知道，你啊，你啊，你否认它。
-
-你没有，你知道，一点也不难过。” 我并不生气，我很安好，我很好。然后就一直忙碌着，不去坐下来倾听自己的心灵，不去找出问题到底有多严重？原因是什么？
-
-所以很多人只是这样，你知道的，我们都是外向的人，所以我们出去做些事情吧，我会没事的。我们不倾听自己的心灵。另一方面，有些人则完全只听从自己的心灵。他们让心灵被遗忘，被抛弃。
-
-你想知道化学反应吗？我被遗忘了，我被忽略了。现在听好了，如果你只听从你的心意，却不与它对话，也不去掌握它，只是说真话，那你就是脱离了现实。我意思是，你必须这样做。
-
-如果你不这样做，如果你从来不倾听你的心声，或者只听从你的心而不去倾听，那么上帝所做的就是他会停下来倾听。他非常认真地对待这件事，但他也会争辩。这就是一般的原理。然而，当上帝面对沮丧的心时，他具体做了哪些事情呢？
-
-有三件事情。你知道吗？正如我在开头暗示的那样，这三件事不仅治愈了沮丧的心，也治愈了罪恶的心。“忘记”和“弃绝”的词义不同。
-
-“弃绝”更多是指外部行为，意味着你没有为我做些什么，但“忘记”更多是指内心的感受，即你已经拒绝了我。弃绝更侧重于缺乏关注，而忘记则更多是出于内心的排斥，因为你认为有问题，不是吗？我觉得自己不好。有时，沮丧更多的是愤怒而不是羞愧；有时则是更多的羞愧而不是愤怒。
-
-它们虽然不同，但彼此非常接近。有时候很难分辨哪一个是主导情绪。所以当上帝面对沮丧的罪恶的心时，他要求我们做三件事。他让我们去做这三件事，并且这些都在第15和16节以及第16A中提到。
-
-看吧，我直接告诉你这三件事是什么。他说：“想想你是谁。”“看看我是谁。”“看看我做了什么。
-
-”然后实践你所是的样子。“现在，这里就是那三件事。” 首先，想想我是谁。他是谁呢？
+首先，想想我是谁。他是谁呢？
 
 在这里，上帝故意用了一个比喻来告诉我们关于他的一些信息。第15节说：母乳哺育的妇女难道会忘记吃奶的婴孩吗？她不会忘记，但我要不忘记你。那么，为什么上帝选择一个哺乳的母亲来描述他自己呢？
 
@@ -640,6 +539,102 @@ The sermons and talks you hear on the Gospel Unliked Podcast were recorded betwe
 摊开手掌意味着握手、欢迎、接纳。当我摊开手掌时，我就是最脆弱的。那么问题来了：为什么要把名字刻在手掌上呢？如果要用凿子雕刻，那真是糟糕透顶了。
 
 确实很痛。许多世纪后，有人来到另一个怀疑者、一个沮丧的人面前，他的名字叫多马。他对多马说：“看看我的手掌。”当你看到耶稣基督时，请看看他手掌上的地方，找到你的名字，并且你会看到钉痕。
+
+---
+
+## 十字架将愤怒化为乳汁 / The Cross Turns Wrath to Milk
+
+Why? This is the reason why we're a beauty to him. The reason we're such a beauty to God is because our names have been engraved in something more precious than stones, more precious than diamonds.
+
+The sufferings of Jesus, the nails of Jesus, are the tools with which our names are engraved on the palms of the hands. And what that means, finally we have an answer to how 15 can be true. 16,000 is how 15 can be true.
+
+If Jesus Christ has, is our high priest, if he stands before the Father's throne, and he says, look at what I have done. Look at my suffering. Look at how I've paid for everything.
+
+Look at how I've made a sacrifice. Do you know what that means? Over the years, when I first heard that Jesus Christ was our high priest, and this is in Hebrews chapter 7, I'll affect the whole book of Hebrews, and it's in verse 1, chapter 2, where it says that Jesus Christ, it's just an image, but it's getting a point across.
+
+Jesus Christ stands before the throne of God. And he shows the wounds. And he pleads for us.
+
+When I first heard about that, I said, well, that's good, but it's not completely comforting, because how many times will God finally listen to Jesus about me? I mean, I keep failing, and I keep failing, and I keep failing, and I guess every day, Monday morning Jesus will come on up there and say, look, Tim did it again. But for my sake, would you please continue to love him?
+
+I see God up there on the throne saying, well, all right. But that's to miss the whole thrust of everything this whole passage is about. When Jesus Christ stands before the father's throne now, we know this.
+
+He is not, when he says, love my brothers and sisters. When he pleads for us, he's not demanding, he's not asking for mercy. You know that?
+
+He's not asking for mercy. He's demanding justice. Okay, give me 60 seconds, will you?
+
+Jesus Christ is saying this, thy law, O God, the man's death. For sin, I have paid all their debts. They trusted me, their debts are paid, and therefore for you to get any punishment from them would be to be getting two payments.
+
+Therefore, O God, all thy holiness, all thy justice, not just thy mercy, not just thy mercy, not just thy love, all thy holiness, all thy justice, all of your nature demands that you see them as a beauty. Every other religion and probably most of you who went to churches, Christian churches believe the same thing. Every other religion thinks that when it comes to my relationship with God, it's sort of like a set of scales.
+
+You see the set of scales, right? You know, in old courtrooms, they always have some blind lady or something like that. You know, the blindfold on with the blindfolds on with the scales.
+
+And what does everybody think? Well, I have good deeds and bad deeds, and if I have more good deeds and bad deeds of my good deeds, I weigh my bad deeds, then God will deal with me. And Christianity says, the very holiness of God, the very righteousness of God, compared to which all the mountains of the world and all the planets of the world are like a piece of dust, are on your side now.
+
+That's the reason why first John, if you think I'm exaggerating, first John 1 verse 8 says, if we confess our sins, he is faithful and just to forgive us our sins. It doesn't say he's faithful and merciful. Oh, of course he is, but I didn't say that.
+
+If he would not forgive, if he would not continually accept us, those of us who believed in Jesus Christ, he would be unjust. And that means his whole nature is now for us. Let me put it to you in a nutshell.
+
+What power could turn the holiness, the righteousness, the vengeance, and the wrath of God against evil? What power could turn all that into mother's milk? What power in the whole universe could change things so that every bit of God's holiness now demands that he loves you like a mother?
+
+It's the cross. There's a hymn that goes, what wondrousness, what mysteries in this appointment shine, my breaches of the law are his and all his obedience, mine. That's the gospel.
+
+Lay your deadly doing down, down to Jesus' feet, stand in him and him alone, gloriously complete, and see if you see what he is and then see what he's done. You can start to live as you really are because the last part of verse 16 says something very simple. What does it say?
+
+He says, thy walls are ever before me. Well, you wait a minute. Wait a minute.
+
+Wait a minute. The walls are broken. No, they're not.
+
+Not in God's mind. God says, I treat you the way you're going to be. I practice towards you, not the way you look right now, but the way you're going to be.
+
+And that's what we're supposed to be doing. It's another way to put it. It's simply this.
+
+We are supposed to also take what he has done for us and say, look, if this is how he sees me, then that's how I have to see myself. You have to apply this and it will do anything. When you suffer, what are you supposed to say?
+
+Why have you forsaken me? Wait a minute. Wait a minute.
+
+That word forsaken that's used in verse 14 is also used in Psalm 21, verse 1. It's the very same word Jesus cried on the cross. Jesus Christ is saying, you are not forsaken.
+
+I was forsaken. I was forsaken so that even when you're thrown into pits and you cry out and say, please don't sell me into slavery, God will never, never forget you. He'll never forget you because he forgot me.
+
+And you must never act as if he has. What that means is, when no matter what you're suffering, you say, this can't be punishment. It's can't be punishment.
+
+It's all fallen into the heart of Jesus. It can't be. When you feel guilty, you have to say, this can't bring me into condemnation.
+
+And when you feel disappointment, when you feel discouraged, ultimately discouragement forsaken is always comes from this. Discouragement and forsakenness means, I'm sorry. I know this is going to be vivid, but this is the text.
+
+When God says, you're going to mothers for something only I can give you. There is a milk that your soul needs. It's everlasting love.
+
+Mother's love can't be everlasting. Even the mothers who are great die. And most mothers aren't great.
+
+And whatever you're, if you're discouraged and you say, I'm forsaken, I'm forsaken, it's because there's something that you've made your mother instead of me. There's something that you say, if I have this, then I'm beautiful. You're only beautiful in me.
+
+And that's the reason why he says, if you see in a sense this, no matter what your situation is, whether it's guilt, whether it's lack of self-control, whether it's suffering, no matter what it is, you apply this. Apply this. This is the health of my soul.
+
+Can I just be honest? This is the health of my soul. Not just that in general, I'm living for Jesus, not just in general.
+
+He forgives me when I fall down, but that every fiber of God's attributes are for me. Therefore, the stars will fall from heaven, but his love for me cannot change. On the basis of that, I have something to stand on.
+
+Any other ground is sinking sand, some marsh, and it can be the healthier soul, too. Here's one less thing. I did use to have a house in which we had babies.
+
+I just remember this. The only time whenever it was quiet, my gosh, it's quiet. I suddenly realized why.
+
+It's because they were nursing. I mean, it was the only time they ever were, because they can't cry when they're nursing. How quiet is your soul?
+
+This is what God is saying. If your soul's not quiet, if it's restless, if it's a mess, you don't know what it's like to know who he is, to see what he's done, and to practice who you are now in him. Because when you get a handle on that, you finally got the milk.
+
+You're finally your soul's quieted. Let's pray. Our Father, we ask that you would show us how this, how Jesus was destroyed by justice so that now justice is on our side, and your love for us is indestructible.
+
+Would you please show us how that works out? Would you please show us how we can apply that? Father, this is a strong medicine.
+
+It's the most difficult thing for many of us to grab hold on. We try to hold on to it, and we find that we have to beat it into our heads over and over again, and we lose our orientation towards so quickly. Would you, Lord, tonight, buy your grace and grave these truths into our hearts deeper than they've ever been engraved so that we can start to practice who we are and really see what you've done.
+
+We pray this in Jesus' name. Amen. Thanks for joining us here on the Gospel Unliked Podcast.
+
+We hope that today's teaching encouraged you to go deeper into God's Word. You can help others discover this podcast by rating and reviewing it, and to find more great Gospel-centered content by Tim Keller, visit GospelUnliked.com. Today's sermon was recorded in 1999.
+
+The sermons and talks you hear on the Gospel Unliked Podcast were recorded between 1989 and 2017, while Dr.
+
+---
 
 为什么？这就是我们为何在他眼中如此美丽的原因。我们之所以在上帝眼中如此美丽，是因为我们的名字被刻在比石头、比钻石更珍贵的东西上。耶稣的受难和钉痕是将我们的名字刻在他的手掌上的工具。
 

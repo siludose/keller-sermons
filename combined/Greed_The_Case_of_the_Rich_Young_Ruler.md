@@ -4,6 +4,8 @@
 
 ---
 
+## 引言与经文诵读 / Introduction and Scripture Reading
+
 Welcome to Gospel in Life. Some people say the fundamental problem of the world is poverty. Others say it's bad systems, poor education, or biology, but what if none of these can fully explain the brokenness we see, both in the headlines and in our own hearts?
 
 In today's teaching, Tim Keller looks at how the Bible's teaching on sin gives us a deeply honest and yet incredibly hopeful view of the world. Father, I want to congratulate you for how well you're saying amazing grace. Well, you never choir, we didn't have a trumpet, you know, and you did a great job, and I think it's because after the number of years, the one of the ways you know you're a Christian and you've been a Christian for a while is that your whole life flashes before you when you sing that.
@@ -17,6 +19,22 @@ If you want to enter life, obey the commandments, which ones the man inquired? J
 Jesus answered, if you want to be perfect, go, sell your possessions and give to the poor, and you will have treasure in heaven, then come follow me. When the young man heard this, he went away sad because he had great wealth. Then Jesus said to his disciples, I tell you the truth, it's hard for a rich man to enter the kingdom of heaven.
 
 Again, I tell you, it's easier for a camel to go through the eye of a needle than for a rich man to enter the kingdom of God, and then the disciples heard this. They were greatly astonished and asked, who then can be saved? This is God's word.
+
+---
+
+欢迎来到《福音人生》。我们都在某种形式的贪婪中挣扎。也许不是对金钱的渴望，而是对安全、权力或地位的渴望。蒂姆·凯勒通过圣经中的故事来探讨贪婪，该故事向我们揭示了贪婪的真实成本。
+
+贪婪是什么？贪婪是过度想要有。贪婪是说："我需要更多。我不能有足够。
+
+"贪婪是由恐惧驱动的——对没有足够、失败或贫困的恐惧。现在，在我们的文化中，贪婪被称为"雄心"或"进取精神"。我们说有成功的人充满激情。我们说富人是成功的。
+
+我们珍视财富和物质的获取。但圣经对此有不同的看法。圣经说贪婪是罪。贪婪是使我们与上帝分离的东西。
+
+贪婪是我们不应该追求的东西。
+
+---
+
+## 那个什么都有的人 / The Man Who Had It All Together
 
 This is the very famous story of the rich young ruler, rich young man, and he was rich in two ways. He had both great moral wealth and great financial wealth, you notice? First of all, he has great moral wealth, he's a very decent person, a person characterized by moral excellence.
 
@@ -58,7 +76,31 @@ There's a danger that you could be sent away grieving. Why was it he sent away g
 
 Why did he go away like that? I would say, unless we understand those, the four reasons I see, we might be in danger of being sent away the same way. So let's take a look, there's four reasons.
 
-Each one is more serious than the last, four reasons that he went away grieving. The first reason is, let me just lay these out, and each one is more serious, therefore, each one takes a little bit more thought. The first one is, he went away grieving because he talked to the real Jesus.
+Each one is more serious than the last, four reasons that he went away grieving.
+
+---
+
+现在，让我告诉你圣经中的一个故事。一个年轻的富有统治者来到耶稣。统治者很富有。
+
+他有很多金钱。他有很多财产。他有地位和权力。但他对耶稣说一些有趣的话。
+
+他说："良善的老师，我应该做什么才能进入永生？" 现在，这很有趣。这个人有一切。他有金钱。
+
+他有权力。他有地位。但他缺少什么。他缺少永恒的生命。
+
+他缺少与上帝的关系。所以他来到耶稣。他说："告诉我我应该做什么。" 耶稣说："如果你想进入生命，你知道诫命。
+
+不要杀人。不要通奸。不要偷窃。不要作假见证。
+
+尊重你的父母。爱你的邻舍如同自己。" 统治者说："所有这些我都保守了。我从少年以来就遵守了这些。
+
+还有什么？" 现在，这很有趣。这个人认为他通过遵守法律已经做到了足够。他认为他已经足够好了。
+
+---
+
+## 他遇见了真正的耶稣 / He Met the Real Jesus
+
+The first reason is, let me just lay these out, and each one is more serious, therefore, each one takes a little bit more thought. The first one is, he went away grieving because he talked to the real Jesus.
 
 Now, I won't take long on this point, but I think you need to say this. One of the reasons why he was disturbed, it was because he was talking to the real Jesus and he was hearing the real message of Jesus. When you talk to the real Jesus, you are always shocked.
 
@@ -74,7 +116,25 @@ And you see, whenever you actually do come up against the real Jesus, what alway
 
 The other way offended, there's hope, because you could always think about it, at least you've seen the truth, and you might come back. But the one thing it's impossible is to have met the real Jesus and to be indifferent. And if there's anybody here who experiences one of the forms of indifference, in other words, if you find Christianity laughable, irrelevant boring, or if you find Christianity to be just a kind of sweet, comforting thing that it's nice to dip into occasionally.
 
-Or if you find Christianity kind of vaguely guilt-producing and kind of vaguely anxiety-ridden, you haven't seen the real Jesus, because you are in the grip of indifference. Whenever you meet the real Jesus, he disturbs you, and that's the first reason he was disturbed. Secondly, the second reason he went away grieving was that Jesus smashed two of his basic assumptions about how religion works.
+Or if you find Christianity kind of vaguely guilt-producing and kind of vaguely anxiety-ridden, you haven't seen the real Jesus, because you are in the grip of indifference. Whenever you meet the real Jesus, he disturbs you, and that's the first reason he was disturbed.
+
+---
+
+但耶稣看着他，耶稣做了一件有趣的事情。圣经说耶稣爱他。但耶稣也告诉他真相。耶稣说："如果你想完全，去，把你的财产卖掉，把钱给穷人。
+
+然后跟随我。" 现在，这是一个强有力的要求。耶稣本质上是说："你说你想要永恒的生命。好的。
+
+那就把你所有的财产都放弃吧。把钱给那些有需要的人。然后跟随我。" 现在，统治者发生了什么？
+
+圣经说统治者听到这个，他变得很伤心。他去了。为什么？因为他有很多财产。
+
+他无法放手。他无法离开他的财富。他无法跟随耶稣。
+
+---
+
+## 耶稣粉碎了宗教假设 / Jesus Smashed His Religious Assumptions
+
+Secondly, the second reason he went away grieving was that Jesus smashed two of his basic assumptions about how religion works.
 
 Jesus smashed his religious views. Now what's really instructive for us is that the religious views that this young man had are not just common in his day, but they're absolutely common today. You see, he came knowing that he was lacking something.
 
@@ -161,6 +221,28 @@ It cuts across the horizontal, it makes minced meat of the horizontal on either 
 In other words, this young man is good relatively speaking, relative to other people, he's very good, it's his doctrine of goodness that's wrong. And as a result, he goes away grieving. Jesus has smashed his assumptions.
 
 These assumptions that virtually everybody else has, too. Thirdly, the reason he went away grieving was because he was talking to the real Jesus. Secondly, because Jesus smashed his religious assumptions.
+
+---
+
+这个故事告诉我们什么关于贪婪？
+
+首先，它告诉我们贪婪阻止我们跟随耶稣。当我们被财富、权力或物质所束缚时，我们无法真正跟随耶稣。我们太执着于其他东西。其次，它告诉我们贪婪是一个偶像。
+
+当我们追求财富时，我们是在崇拜。我们把财富放在上帝的位置。我们说："财富是我的上帝。我会追求财富。
+
+我会为财富工作。" 但偶像永远不会满足。偶像永远不会给你你需要的。偶像永远不会填补你的生命中的空虚。
+
+只有上帝能做到。第三，它告诉我们财富可以蒙蔽我们。这个年轻的统治者认为他做得很好。他遵守了法律。
+
+他是一个好人。但他缺少什么。他缺少与上帝的关系。他缺少永恒的生命。
+
+财富使他感到安全。财富使他感到满足。但财富是一个幻觉。它没有真正满足他。
+
+它没有给他他真正需要的。
+
+---
+
+## 耶稣触及核心：交出你的梦想 / Jesus Got Personal: Surrender Your Dreams
 
 Thirdly, he went away grieving because Jesus got personal. Now I would suggest to you that even though Jesus has contradicted his views, that's not the real reason that he is so grieved. No.
 
@@ -250,7 +332,37 @@ Yeah, we're trampling on people, but it makes us money. And you know what's the 
 
 It's become a monster. Anything will. Jesus says, yes, you lack one thing.
 
-And what is that? Here's the end. The fourth reason, see, he does lack one thing, it's not the giving away of the money.
+And what is that? Here's the end.
+
+---
+
+现在，这对我们意味着什么？首先，**这意味着**我们需要诚实地看待我们的财富。****我们有什么权力？
+
+我们有什么属于我们？对于许多人来说，答案是"很多"。在美国，我们很多人都很富有。我们有房子。
+
+我们有汽车。我们有物品。我们有安全。但我们有多少人会为了跟随耶稣而放弃？
+
+有多少人会说："我会把我所有的都放弃"？这很难。对我们大多数人来说都很难。其次，**这意味着**我们需要检查我们的心。****
+
+我们在追求什么？我们在崇拜什么？金钱是我们的上帝吗？是权力吗？
+
+是安全吗？耶稣说："没有人可以服两个主人。要么他会爱其中一个，恨另一个；要么他会忠于一个，鄙视另一个。你不能同时侍奉上帝和金钱。
+
+" 这是一个强有力的陈述。你不能同时有两个主人。你必须选择。第三，**这意味着**我们需要学会慷慨。****
+
+如果金钱是问题，那么解决方案是什么？解决方案是给。圣经说："给比接受更快乐。"圣经说那些给予的人被祝福。
+
+圣经说当我们给穷人时，我们给耶稣。所以如果你在与贪婪作斗争，试试这个：给。给你的教会。给慈善机构。
+
+给需要帮助的人。给你的朋友和家人。当你给时，当你放开金钱时，你开始被释放。你开始意识到金钱不如关系重要。
+
+你开始意识到给予比获取更令人满足。
+
+---
+
+## 天上的财宝：祂属你，你属祂 / Treasure in Heaven: He Is Yours and You Are His
+
+The fourth reason, see, he does lack one thing, it's not the giving away of the money.
 
 It's treasure in heaven. The reason that this young man has missed it all is because he doesn't understand treasure in heaven. And Jesus Christ comes and says, you have to get rid of your monster.
 
@@ -288,76 +400,7 @@ Our website again is gospelandlife.com slash partner. Today's sermon was recorde
 
 ---
 
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《福音人生》。我们都在某种形式的贪婪中挣扎。也许不是对金钱的渴望，而是对安全、权力或地位的渴望。蒂姆·凯勒通过圣经中的故事来探讨贪婪，该故事向我们揭示了贪婪的真实成本。
-
-贪婪是什么？贪婪是过度想要有。贪婪是说："我需要更多。我不能有足够。
-
-"贪婪是由恐惧驱动的——对没有足够、失败或贫困的恐惧。现在，在我们的文化中，贪婪被称为"雄心"或"进取精神"。我们说有成功的人充满激情。我们说富人是成功的。
-
-我们珍视财富和物质的获取。但圣经对此有不同的看法。圣经说贪婪是罪。贪婪是使我们与上帝分离的东西。
-
-贪婪是我们不应该追求的东西。现在，让我告诉你圣经中的一个故事。一个年轻的富有统治者来到耶稣。统治者很富有。
-
-他有很多金钱。他有很多财产。他有地位和权力。但他对耶稣说一些有趣的话。
-
-他说："良善的老师，我应该做什么才能进入永生？" 现在，这很有趣。这个人有一切。他有金钱。
-
-他有权力。他有地位。但他缺少什么。他缺少永恒的生命。
-
-他缺少与上帝的关系。所以他来到耶稣。他说："告诉我我应该做什么。" 耶稣说："如果你想进入生命，你知道诫命。
-
-不要杀人。不要通奸。不要偷窃。不要作假见证。
-
-尊重你的父母。爱你的邻舍如同自己。" 统治者说："所有这些我都保守了。我从少年以来就遵守了这些。
-
-还有什么？" 现在，这很有趣。这个人认为他通过遵守法律已经做到了足够。他认为他已经足够好了。
-
-但耶稣看着他，耶稣做了一件有趣的事情。圣经说耶稣爱他。但耶稣也告诉他真相。耶稣说："如果你想完全，去，把你的财产卖掉，把钱给穷人。
-
-然后跟随我。" 现在，这是一个强有力的要求。耶稣本质上是说："你说你想要永恒的生命。好的。
-
-那就把你所有的财产都放弃吧。把钱给那些有需要的人。然后跟随我。" 现在，统治者发生了什么？
-
-圣经说统治者听到这个，他变得很伤心。他去了。为什么？因为他有很多财产。
-
-他无法放手。他无法离开他的财富。他无法跟随耶稣。这个故事告诉我们什么关于贪婪？
-
-首先，它告诉我们贪婪阻止我们跟随耶稣。当我们被财富、权力或物质所束缚时，我们无法真正跟随耶稣。我们太执着于其他东西。其次，它告诉我们贪婪是一个偶像。
-
-当我们追求财富时，我们是在崇拜。我们把财富放在上帝的位置。我们说："财富是我的上帝。我会追求财富。
-
-我会为财富工作。" 但偶像永远不会满足。偶像永远不会给你你需要的。偶像永远不会填补你的生命中的空虚。
-
-只有上帝能做到。第三，它告诉我们财富可以蒙蔽我们。这个年轻的统治者认为他做得很好。他遵守了法律。
-
-他是一个好人。但他缺少什么。他缺少与上帝的关系。他缺少永恒的生命。
-
-财富使他感到安全。财富使他感到满足。但财富是一个幻觉。它没有真正满足他。
-
-它没有给他他真正需要的。现在，这对我们意味着什么？首先，**这意味着**我们需要诚实地看待我们的财富。****我们有什么权力？
-
-我们有什么属于我们？对于许多人来说，答案是"很多"。在美国，我们很多人都很富有。我们有房子。
-
-我们有汽车。我们有物品。我们有安全。但我们有多少人会为了跟随耶稣而放弃？
-
-有多少人会说："我会把我所有的都放弃"？这很难。对我们大多数人来说都很难。其次，**这意味着**我们需要检查我们的心。****
-
-我们在追求什么？我们在崇拜什么？金钱是我们的上帝吗？是权力吗？
-
-是安全吗？耶稣说："没有人可以服两个主人。要么他会爱其中一个，恨另一个；要么他会忠于一个，鄙视另一个。你不能同时侍奉上帝和金钱。
-
-" 这是一个强有力的陈述。你不能同时有两个主人。你必须选择。第三，**这意味着**我们需要学会慷慨。****
-
-如果金钱是问题，那么解决方案是什么？解决方案是给。圣经说："给比接受更快乐。"圣经说那些给予的人被祝福。
-
-圣经说当我们给穷人时，我们给耶稣。所以如果你在与贪婪作斗争，试试这个：给。给你的教会。给慈善机构。
-
-给需要帮助的人。给你的朋友和家人。当你给时，当你放开金钱时，你开始被释放。你开始意识到金钱不如关系重要。
-
-你开始意识到给予比获取更令人满足。最后，**这意味着**我们需要重新订购我们的优先事项。******我们需要说："上帝首先。**上帝比金钱更重要。
+最后，**这意味着**我们需要重新订购我们的优先事项。******我们需要说："上帝首先。**上帝比金钱更重要。
 
 上帝比权力更重要。上帝比安全更重要。" 而当我们这样做时，当我们真的把上帝放在首位时，一切都改变。我们不再被贪婪所驱动。
 

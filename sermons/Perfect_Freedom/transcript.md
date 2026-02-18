@@ -76,6 +76,9 @@ You're going to live for something. There's going to be something that basically
 
 But he says, here's what you don't seem to know. Whatever that is, is a spiritual master. It's controlling you.
 
+### The Paradox of Slavery
+
+
 You think it's doing something for you, and it is doing something for you. But you have offered yourself to it. You've offered yourself.
 
 You've given yourself. You're under its control. You're being controlled by it.
@@ -155,6 +158,9 @@ It's one thing to fall in love to somebody. It's another thing to give your life
 It's another thing to commit yourself, and that's the ring that's baptism. And so when he talks about baptism, he's not talking about super Christians, or he's talking about everybody who's really given their lives to Jesus. What is true of these people?
 
 Verse five, they are united. We are united to him. And that word united is a strange word, actually.
+
+### United with Christ
+
 
 It's a horticultural word, and it means that we've been engrafted into the root. The root. Not engrafted up here, even though there's other places in the Bible that talk about that.
 
@@ -236,6 +242,9 @@ Get rid of your low goals. Get rid of all your goals. Get rid of your low goals 
 
 Get rid of your low goals. Instead of saying, what I am trying to say is people so often say, well, if I become a Christian, what I have to stop doing that, will I still be able to do that? Anticipate that you will not be able to anticipate the magnitude of the changes that when they begin to come, you will be so grateful for.
 
+### Freedom Beyond Imagination
+
+
 But they are way beyond anything that you could ever dare ask or think. Nor, when you are getting started, is your mind open enough and alive enough and that, frankly, spiritually smart enough to know what it is you need. So first of all, you have to recognize the shape of your spiritual slavery.
 
 Secondly, you have to begin to grasp the scope and the breadth of your cosmic unity with him. But lastly, you must, and here is the secret, you must live daily out of your new identity. You must live daily out of your new identity.
@@ -315,6 +324,9 @@ And he decrees emancipation for all the slaves. And he sets up his soldiers and 
 But the illustration goes on, do you think that's all it takes? It says the reality is that whenever a member of the enslaved group haven't been enslaved all their lives haven't been enslaved for centuries. Whenever a member of the enslaved group would meet a member of the oppressing group, they would tremble and quake.
 
 And when the members of the impressing group would still order around the members of the enslaved group and tell them what to do and say, go here and go there. They did it. They did it.
+
+### True Liberation
+
 
 Now, the member of the oppressing group didn't have the power really to do that anymore. And if they'd stood up, they couldn't have done a thing. And yet over and over and over again, the member of the enslaved group continued to act like slaves because though their status had changed, really changed.
 

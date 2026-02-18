@@ -8,7 +8,9 @@
 
 We live in a society starved for experience, absolutely starved for a sense of authority and for any kind of deep experience of the soul. Because we live in a secular technological society that reduces everything to commodity. All of this—the meditation, the workout regimens, the therapy, the New Age movement—these are substitutes for prayer, for the vacuum left in our lives because we do not pray or don't know how to pray.
 
-No amount of sex, no amount of therapy, no amount of meditation can substitute for prayer, which is intimacy with the infinite. ### Prayer is Difficult
+No amount of sex, no amount of therapy, no amount of meditation can substitute for prayer, which is intimacy with the infinite.
+
+### Prayer is Difficult
 
 I happen to know that it's harder to pray for 30 minutes than it is to preach for 30 minutes. I've never had a sermon so bad that I forgot I was preaching.
 

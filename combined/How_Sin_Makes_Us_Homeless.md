@@ -4,27 +4,9 @@
 
 ---
 
-Welcome to Gospel in Life. You don't have to look far to see that something's deeply wrong with our world and with us. But is there an answer that gets to the root of why?
+## 罪破坏上帝的设计 / Sin Breaks God's Design
 
-In today's message, Tim Keller explores the human condition through stories in the Bible, uncovering what Scripture says about sin and why it's the only explanation deep enough to face the truth about ourselves. We go to the next couple of weeks, four weeks actually. We're going to be looking at what Isaiah tells us about what's wrong with us.
-
-Isaiah has some pretty fascinating things to say because the longest, in some ways, the greatest Old Testament prophet. And what we have here is one of the great prophecies about the Messiah and what the Messiah will do. Isaiah 61, 1 to 11.
-
-The Spirit of the sovereign Lord is on me because the Lord has anointed me to preach good news to the poor. He has sent me to bind up the broken hearted to proclaim freedom for the captives and release from darkness for the prisoners, to proclaim the year of the Lord's favor and the day of vengeance of our God, to comfort all who mourn, and provide for those who grieve in Zion, to bestow on them a crown of beauty instead of ashes, the oil of gladness instead of mourning, and a garment of praise instead of a spirit of despair. They will be called oaks of righteousness, a planting of the Lord for the display of His splendor.
-
-They will rebuild the ancient ruins and restore the places long devastated. They will renew the ruined cities that have been devastated for generations. Aliens will shepherd your flocks, foreigners will work your fields and vineyards, and you will be called priests of the Lord.
-
-You will be named ministers of your God. You will feed on the wealth of nations and in their riches you will boast. Instead of their shame, my people will receive a double portion.
-
-Instead of disgrace, they will rejoice in their inheritance. And so they will inherit a double portion in their land, and everlasting joy will be theirs. For I, the Lord, love justice.
-
-I hate robbery and iniquity. In my faithfulness, I will reward them and make an everlasting covenant with them. Their descendants will be known among the nations, and they are offspring among the peoples.
-
-All who see them will acknowledge that they are a people. The Lord has blessed. I delight greatly in the Lord.
-
-My soul rejoices in my God, for he has clothed me with garments of salvation, and unwrapped me in a robe of righteousness. As a bridegroom adorns his head like a priest, and as a bride adorns yourself with her jewels. For as the soil makes the sprout come up, and a garden causes seeds to grow, so the sovereign Lord will make righteousness and praise spring up before all nations.
-
-This is God's word. Now, because this is the third in the series, we need to take some stock what we're doing, why we're doing it, where we've come. We're talking about sin, doing a series on sin.
+Now, because this is the third in the series, we need to take some stock what we're doing, why we're doing it, where we've come. We're talking about sin, doing a series on sin.
 
 Why? Well, because early in the century, maybe late 19th century, early 20th century, this isn't, we can't be completely, you can't pinpoint this exactly, basically our Western society told us to get rid of the concept of sin. To get rid of it.
 
@@ -150,6 +132,32 @@ There's personal transformation. There's social transformation. There's spiritua
 
 There's psychological wholeness. There's economic wholeness. There's racial wholeness.
 
+---
+
+欢迎来到《福音人生》。一个没有家的人是什么意思？在这个信息中，蒂姆·凯勒探讨了罪如何使我们无家可归，以及我们如何在基督里找到家。现在，当我们想到无家可归时，我们通常想到一个人没有住房。
+
+一个没有地方睡觉的人。一个在街道上的人。但在精神层面上，有更深的无家可归。精神无家可归是当一个人与他或她的出身分离时。
+
+这是当一个人属于某个地方的感觉丧失时。这是当一个人漂流，不知道他们属于哪里。现在，圣经说这就是罪对我们所做的。罪使我们无家可归。
+
+罪使我们与上帝分离。罪使我们与我们真正属于的地方分离。让我解释一下。在创造中，人类与上帝和谐地生活。
+
+人类住在上帝的花园里。人类与上帝有亲密的关系。人类知道他或她属于哪里。但然后人类犯了罪。
+
+人类背弃了上帝。而一切改变了。人类被赶出花园。人类与上帝分离。
+
+人类变成了一个流浪者。圣经说："该隐……被赶出上帝的面前……变成了一个无定居人。"该隐说："我的惩罚太大，不能承受。看哪，你将我赶出你的面，我将从你的面前隐藏。
+
+" 该隐无家可归。他与他的创造者分离。他漂流。现在，这的精神真理是什么？
+
+真理是：我们都像该隐一样。我们都被驱赶出。我们都与上帝分离。我们都无家可归。
+
+为什么？因为罪。罪使我们无家可归。
+
+---
+
+## 罪的代价：化为灰烬 / The Wages of Sin: Ashes
+
 The whole nine yards. And the Messiah comes back and says, that's what I'm about to do. Now, what does that tell us about sin?
 
 That's the first point. And here's what it tells us about sin. The wages of sin is ashes.
@@ -264,7 +272,33 @@ What else is the resurrection for? Therefore, when the Messiah comes, he's going
 
 That's what he's after. That's the only way you can understand so many of the prophecies of Isaiah. That's the problem.
 
-Now, how is God going to do that? And the answer is here in this tremendous Messiah. Now, this Messiah, in verse 1, again, I have to give you a little help.
+Now, how is God going to do that? And the answer is here in this tremendous Messiah.
+
+---
+
+现在，这如何表现在我们的生活中？
+
+首先，它在我们的虚空中表现。许多人有一个空虚的感觉。许多人说"我不属于任何地方"或"我不知道我是什么"或"生活没有意义"。这个空虚来自无家可归。
+
+我们被创造有与上帝在一起的地方。但是我们已经通过罪离开了那个地方。所以我们感到空虚。其次，它表现在我们的渴望中。
+
+许多人在寻找。他们尝试许多东西来填补空虚。他们尝试成功。他们尝试关系。
+
+他们尝试性。他们尝试毒品。他们尝试购物。他们尝试权力。
+
+他们在寻找一个地方。他们在寻找一个属于的地方。但是无论他们尝试什么，都不满足。为什么？
+
+因为他们真正寻求的是上帝。他们**真正的家是**与上帝。第三，它表现在我们的孤独中。许多人感到孤独。
+
+许多人感到与他人分离。许多人有关系，但他们仍然感到孤独。为什么？因为他们的真正孤独来自与上帝的分离。
+
+人类不能真正与其他人团聚，除非他或她首先与上帝团聚。
+
+---
+
+## 君王与受苦仆人 / The Conquering King and Suffering Servant
+
+Now, this Messiah, in verse 1, again, I have to give you a little help.
 
 It doesn't hit you right away as an English reader so much. But anyway, this particular Messiah, right away, we're told the spirit of the sovereign Lord is upon me because the Lord has anointed me to preach. Now, before we go on any further, the Lord has anointed me to preach.
 
@@ -335,6 +369,30 @@ And therefore, substitution. Jesus Christ, when he comes to earth, is able to de
 That's the reason why he gets ashes. He is psychologically broken. That's why he gets mourning.
 
 And he spiritually broken in that the father cuts him off. He's like, God, my God, why I stop forsaking me so he gets the spirit of despair. Now, what does that mean for us practically?
+
+---
+
+现在，但这里有好消息。圣经说基督改变了这一切。基督来带我们回家。
+
+基督来改变我们与上帝的关系。基督来给我们一个地方。耶稣说："我去是为你们预备地方。"耶稣说他正在为我们预备一个地方。
+
+而当我们相信耶稣时，当我们向他投降时，我们不再无家可归。我们被带回家。我们与上帝重新团聚。我们有一个属于的地方。
+
+现在，但不仅仅如此。当我们相信耶稣时，当我们进入教会社区时，我们也与其他相信者有家。圣经说教会是上帝的家族。教会是一个地方，人们属于。
+
+教会是一个地方，人们被接受。教会是一个地方，人们被爱。所以当我们加入教会时，我们找到了一个家。我们找到了一个社区。
+
+我们找到了一个属于的地方。现在，这如何改变我们？首先，它消除了空虚。当我们与上帝有关系时，当我们知道我们属于他时，空虚开始消失。
+
+我们开始有一个目的。我们开始有意义。其次，它改变了我们的寻求。当我们知道上帝爱我们时，当我们知道他为我们预备了地方时，我们不再需要寻求其他东西。
+
+我们停止尝试填补无法填补的空虚。第三，它消除了孤独。当我们与上帝有关系时，当我们在教会社区中时，我们不再孤独。我们被上帝爱。
+
+我们被他人爱。我们属于。
+
+---
+
+## 活出禧年的原则 / Living the Jubilee
 
 Let's get to that. Let's make a little list. How should we respond?
 
@@ -510,60 +568,7 @@ You can help others discover this podcast by rating and reviewing it and to find
 
 ---
 
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《福音人生》。一个没有家的人是什么意思？在这个信息中，蒂姆·凯勒探讨了罪如何使我们无家可归，以及我们如何在基督里找到家。现在，当我们想到无家可归时，我们通常想到一个人没有住房。
-
-一个没有地方睡觉的人。一个在街道上的人。但在精神层面上，有更深的无家可归。精神无家可归是当一个人与他或她的出身分离时。
-
-这是当一个人属于某个地方的感觉丧失时。这是当一个人漂流，不知道他们属于哪里。现在，圣经说这就是罪对我们所做的。罪使我们无家可归。
-
-罪使我们与上帝分离。罪使我们与我们真正属于的地方分离。让我解释一下。在创造中，人类与上帝和谐地生活。
-
-人类住在上帝的花园里。人类与上帝有亲密的关系。人类知道他或她属于哪里。但然后人类犯了罪。
-
-人类背弃了上帝。而一切改变了。人类被赶出花园。人类与上帝分离。
-
-人类变成了一个流浪者。圣经说："该隐……被赶出上帝的面前……变成了一个无定居人。"该隐说："我的惩罚太大，不能承受。看哪，你将我赶出你的面，我将从你的面前隐藏。
-
-" 该隐无家可归。他与他的创造者分离。他漂流。现在，这的精神真理是什么？
-
-真理是：我们都像该隐一样。我们都被驱赶出。我们都与上帝分离。我们都无家可归。
-
-为什么？因为罪。罪使我们无家可归。现在，这如何表现在我们的生活中？
-
-首先，它在我们的虚空中表现。许多人有一个空虚的感觉。许多人说"我不属于任何地方"或"我不知道我是什么"或"生活没有意义"。这个空虚来自无家可归。
-
-我们被创造有与上帝在一起的地方。但是我们已经通过罪离开了那个地方。所以我们感到空虚。其次，它表现在我们的渴望中。
-
-许多人在寻找。他们尝试许多东西来填补空虚。他们尝试成功。他们尝试关系。
-
-他们尝试性。他们尝试毒品。他们尝试购物。他们尝试权力。
-
-他们在寻找一个地方。他们在寻找一个属于的地方。但是无论他们尝试什么，都不满足。为什么？
-
-因为他们真正寻求的是上帝。他们**真正的家是**与上帝。第三，它表现在我们的孤独中。许多人感到孤独。
-
-许多人感到与他人分离。许多人有关系，但他们仍然感到孤独。为什么？因为他们的真正孤独来自与上帝的分离。
-
-人类不能真正与其他人团聚，除非他或她首先与上帝团聚。现在，但这里有好消息。圣经说基督改变了这一切。基督来带我们回家。
-
-基督来改变我们与上帝的关系。基督来给我们一个地方。耶稣说："我去是为你们预备地方。"耶稣说他正在为我们预备一个地方。
-
-而当我们相信耶稣时，当我们向他投降时，我们不再无家可归。我们被带回家。我们与上帝重新团聚。我们有一个属于的地方。
-
-现在，但不仅仅如此。当我们相信耶稣时，当我们进入教会社区时，我们也与其他相信者有家。圣经说教会是上帝的家族。教会是一个地方，人们属于。
-
-教会是一个地方，人们被接受。教会是一个地方，人们被爱。所以当我们加入教会时，我们找到了一个家。我们找到了一个社区。
-
-我们找到了一个属于的地方。现在，这如何改变我们？首先，它消除了空虚。当我们与上帝有关系时，当我们知道我们属于他时，空虚开始消失。
-
-我们开始有一个目的。我们开始有意义。其次，它改变了我们的寻求。当我们知道上帝爱我们时，当我们知道他为我们预备了地方时，我们不再需要寻求其他东西。
-
-我们停止尝试填补无法填补的空虚。第三，它消除了孤独。当我们与上帝有关系时，当我们在教会社区中时，我们不再孤独。我们被上帝爱。
-
-我们被他人爱。我们属于。现在，这对我们的生活意味着什么？**这意味着如果你感到无家可归，如果你感到迷失，如果你感到空虚，有一个解决方案。**
+现在，这对我们的生活意味着什么？**这意味着如果你感到无家可归，如果你感到迷失，如果你感到空虚，有一个解决方案。**
 
 解决方案是回到家。回到上帝。回到你属于的地方。现在，这如何开始？
 

@@ -68,6 +68,9 @@ Don't think those negative thoughts. Stop thinking about that. Stop thinking abo
 
 Control your thoughts. You know, expel the negative thoughts. That's how you get calm.
 
+### When Peace Is Shattered
+
+
 But here we see the peace of God is not the absence of some thoughts. It's the presence of God himself. The God of peace will be with you.
 
 Christian peace is not expelling negative thoughts. The problem with expelling negative thoughts is what you're really doing there is you're just refusing to face how bad things are. You know, you're not being realistic.
@@ -148,6 +151,9 @@ And when you die, you rot, that's it. And when the sun dies, everything goes awa
 
 Okay, what are the implications of that? One of them is there is no right and wrong. You may feel there's right and wrong.
 
+### The Practice of Trust
+
+
 Darwin says, you may have a feeling, but your feeling shouldn't trump anybody else's. You can feel it, but there is no right and wrong. There's really no way to tell people how they ought to live.
 
 Holmes is right. Ultimately, what a human being is is just we've we're the product of these forces and we're going to go away someday and what's to say that, you know, it may feel more significant than an animal or a rock, but you're not. And what the biographers said was Holmes was simply thinking out the implications of not believing there's a God or there's a purpose in life.
@@ -225,6 +231,9 @@ I said, Lord, don't let her break up with me. Of course, it was the wrong girl. 
 But I actually helped God. I mean, I actually did what I could to help God with the prayer because she was that one summer near the very end of the relationship. She was working at a a poke, you know, a resort for the summer in a poke, and I got a job as a short order cook at the same resort.
 
 I was saying, Lord, I'm making this as easy as possible for you. You know, I've asked for this prayer and I'm just, you know, I'm taking the distance down everything. But I look back at it.
+
+### Thinking on What Is True
+
 
 God was saying, my son, when a child of mine makes a request. I always give that person what he or she would have asked for if they knew everything I know. Do you believe that?
 
@@ -305,6 +314,9 @@ You're saying I have to love God, but I love a lot of things. I love material co
 I love romance. I love, you know, there's lots of things. I have to love God not these things.
 
 And he says, no, no, no. But you have to say that if you love God supremely, you not only get God the immutable, but you will find that all that what you have been loving in these things was actually in God. He puts it like this.
+
+### The Secret of Peace
+
 
 He's praying. Augustine writes, quote, what do I love when I love thee? Not the beauty of bodies, nor the fair harmony of time, nor the brightness of the light, so glads into our eyes, nor sweet melodies of varied songs, nor the fragrance, smell of flowers.
 

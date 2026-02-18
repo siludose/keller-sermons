@@ -10,9 +10,13 @@ She will give birth to a son and you are to give him the name Jesus, because He 
 
 This is God's Word. If there's one word that sums up Christmas, it comes up all the time in Scripture readings and in the carols at all the services, it's the word Emanuel, Emanuel. It means God with us.
 
+### Emmanuel: Most Repulsive and Most Attractive
+
 And it's only got in English eight letters. And yet I tell you it is heavier than the heavens and the earth. I would like to open it up for a moment this morning and I would propose to you that in that one word, Emanuel, you have the most offensive and the most comforting, the most repulsive and the most attractive message that the world has ever heard.
 
 It's the most repulsive and the most attractive. It's the most repulsive because it says Jesus Christ is God and it's the most attractive because it says Jesus Christ is God with us. Look.
+
+### Christmas Celebrates the Most Offensive Doctrine
 
 First of all, it tells us that Jesus Christ is God. It's ironic that of all the Christian holidays, this is the one that's most broadly accepted and so popular. It's ironic because of all the Christian holidays, this particular holiday celebrates the one Christian doctrine which is the most offensive, the most in your face.
 
@@ -34,7 +38,11 @@ You know, Jesus says, I am the way of the truth in the life. No one comes to the
 
 And they say, I could accept classic Christianity. I love everything about classic Christianity except for that only wayness. But I can't stand.
 
-It's too exclusive, they say. Now let's say a couple things about that quickly. First of all, the only wayness of Jesus Christ, the only wayness of Christianity is not an intolerant attitude.
+It's too exclusive, they say.
+
+### The Only Wayness Is Not Intolerance
+
+Now let's say a couple things about that quickly. First of all, the only wayness of Jesus Christ, the only wayness of Christianity is not an intolerant attitude.
 
 Ah, people say that's the problem. If it was only, if only Christians could get rid of that intolerance, if they could only get rid of that exclusive attitude, then I could handle it a lot better. But don't you see?
 
@@ -66,6 +74,8 @@ Whether you're a Christian or you're still exploring faith, The prodigal God wil
 
 Now, here's Dr. Keller with the rest of today's teaching. But before you try to destroy Christmas, that is, and get all the retailers on Fifth Avenue very mad at you whether or not they believe.
 
+### Christmas Makes Christianity Radically Inclusive
+
 I would suggest to you for a moment that you are wrong if you think the Christianity is an exclusive religion and that Christmas makes it an exclusive religion. All my friends, Christmas is telling us that Christianity is a radically inclusive religion and here's what I mean. When you hear someone say, ah yes, Christians believe they have to believe in Jesus to get to God.
 
 Well, I believe that all good people, all worthy people, all decent and moral and loving people, no matter what they believe, can find God. Does that sound more inclusive to you? I tell you that is actually a form of very, very narrow exclusivity.
@@ -73,6 +83,8 @@ Well, I believe that all good people, all worthy people, all decent and moral an
 And here's why a person who says that may look more inclusive than a Christian, but actually their premise is that morality and goodness is enough to find God. That's their premise. Their premise is that that's enough to be loving, to be compassionate.
 
 That's enough to find the divine, that's enough to find the good. Anyone they say who is really wonderful and loving and disciplined and diligent and able can find God, what about the rest of us? You exclusive types who say anybody, no matter what they believe, any good person can find God.
+
+### A Religion for Failures, Not Just the Able
 
 What about those of us who are not disciplined? What about those of us who are not unselfish? What about those of us who have lived lives in our record when we look at it, we're not proud of it at all?
 
@@ -92,7 +104,11 @@ Everything else about Christianity makes no sense without Christmas. Jesus is Go
 
 Jesus says God and that's why it does make all other religions obsolete. Oh, you hate to hear that because it's so much more radically inclusive than they are. Jesus says no matter who you are, no matter what you've done, take hold of me, rest of me, all you need is need, all you need is nothing.
 
-See, repulsive and attractive at once, he is not only God but God with us. Listen friends, as I conclude, let me just point this out to you. This is a medicine chest, Christmas is a medicine chest in which you've got the medicine to heal whatever ails you.
+See, repulsive and attractive at once, he is not only God but God with us.
+
+### Emmanuel: A Medicine for Every Ailment
+
+Listen friends, as I conclude, let me just point this out to you. This is a medicine chest, Christmas is a medicine chest in which you've got the medicine to heal whatever ails you.
 
 And I wish you saw that and I every year I try to break through the sentimental feelings and the nostalgic feelings that you get whenever you come to a Christmas service. I want you to see what's really there. Let me give you just a couple real quick examples.
 
@@ -108,7 +124,11 @@ So stop trying to pay. Stop trying to get that damn spot out, as the lady Macbet
 
 God died for you. One drop of his blood will pay for anything. You can put it behind you.
 
-You've got to stop there. Don't you see, Emmanuel is a medicine that will handle anything. But most of all, let me say now what I said at the beginning of the service, Emmanuel is all about God coming to be with us.
+You've got to stop there. Don't you see, Emmanuel is a medicine that will handle anything.
+
+### The Cost of Getting Near God
+
+But most of all, let me say now what I said at the beginning of the service, Emmanuel is all about God coming to be with us.
 
 And if God, the great God of the universe, would become a wriggling little baby for us, what should you be willing to do to get near him? It cost him tremendously to get near us. It's going to cost you something to get near him, but nothing like what it cost him.
 

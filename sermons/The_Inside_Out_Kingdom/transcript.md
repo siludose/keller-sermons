@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel in Life. What does it really mean to live in a way that reflects God's kingdom? For many of us, the kingdom can feel like an abstract idea.
 
 But in today's teaching from the sermon on the Mount, Tim Keller shows how Christ offers us practical guidance for living out a compelling vision of a new kind of community shaped by grace. What are you? When people insult you, persecute you and falsely say all kinds of evil against you because of me.
@@ -16,7 +18,11 @@ Do not think that I have come to abolish the law or the prophets. I have not com
 
 Anyone who breaks one of the least of these commandments and teaches others to do the same will be called least in the kingdom of heaven. But whoever practices and teaches these commands will be called great in the kingdom of heaven. For I tell you that unless your righteousness surpasses that of the Pharisees and the teachers of the law, you will certainly not enter the kingdom of heaven.
 
-This is God's word. We're looking at the Sermon on the Mount because we're going to look for a number of weeks at what it means to live the Christian life. How is the Christian life concretely different when it's lived out?
+This is God's word.
+
+### Christianity Is Not Religion
+
+We're looking at the Sermon on the Mount because we're going to look for a number of weeks at what it means to live the Christian life. How is the Christian life concretely different when it's lived out?
 
 Now, last week when we looked at the first very first part of the Sermon on the Mount, the Beatitudes and the woes, we saw that the Christian life is based on a very different set of values in that of the world. And therefore, the first step in understanding the distinctiveness of the Christian life is to notice that it's distinct, the Christianity's distinct from the world and what all that means. We're not going back over that.
 
@@ -54,7 +60,11 @@ Because it's not this tree, this tree. Not this way, this way, not this house, t
 
 And traditionally, and I have to admit, I have done it too, as a preacher, traditionally, people read that and say, oh, what Jesus is saying is, you can either live, according to the sermon on the mount, you can live according to the law of God, the commandments of God, you can either obey God's laws, or you can disobey God's laws, see, life destruction, good fruit, bad fruit. You can either live obeying God's laws, or you can disobey God's laws. But a commentator changed my whole understanding of the sermon on the mount when he said, does it make sense that Jesus Christ would say, in summary, there are these two ways, and they look extremely alike, just that one of them has poison fruit, see, two houses, two ways, two trees.
 
-It makes sense that Jesus would talk about two ways at the conclusion of a sermon and not have talked about those two ways in the sermon. Does it make sense if those two ways that he's putting in front of us, one of which he's in joining, and one of which he's warning us against? Does it make sense that those two ways would be good and bad, people that obey God's law, people who disobey God's law?
+It makes sense that Jesus would talk about two ways at the conclusion of a sermon and not have talked about those two ways in the sermon.
+
+### Two Ways That Look Alike
+
+Does it make sense if those two ways that he's putting in front of us, one of which he's in joining, and one of which he's warning us against? Does it make sense that those two ways would be good and bad, people that obey God's law, people who disobey God's law?
 
 Because how would those both be two trees that look alike? How would those both be two houses that look alike? The commentator said, you've got to go back in and you go into the sermon on the mount, and see if he has, is the sermon on the mount how to live?
 
@@ -99,6 +109,8 @@ The key is Jesus says, if you want to be in the kingdom of heaven, there's a way
 Well, four ways and they build on each other. Gospel goodness surpasses religious righteousness in four ways. It's brighter because it's deeper.
 
 It's deeper because it's sweeter. It's sweeter because it's higher. Gospel goodness surpasses because it's brighter and deeper and sweeter and higher.
+
+### Brighter: Attractive to the World
 
 Number one, brighter. I mean, literally, it says, you're the light of the world. Notice there's two groups of people here.
 
@@ -160,7 +172,11 @@ You can look at some people and say, here's somebody who does not obey the ten c
 
 And religious people totally are. So the first point is, gospel goodness is brighter. It's attractive.
 
-You say, why? Well, let's move on. Because, secondly, gospel goodness is deeper.
+You say, why? Well, let's move on.
+
+### Deeper: The Heart Not Just Externals
+
+Because, secondly, gospel goodness is deeper.
 
 And here we're not talking about the relationship with the world. We're talking about a relationship with your own heart. When Jesus Christ said in verse 20, I tell you that unless your righteousness or passes that of the Pharisees and the teachers of the law, you will certainly not enter the kingdom of heaven.
 

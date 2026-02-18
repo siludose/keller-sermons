@@ -10,6 +10,8 @@ Each of you should look not only to your own interests but also to the interests
 
 Therefore, God exalted him to the highest place and gave him the name that is above every name, that at the name of Jesus every knee should bow in heaven and on earth and under the earth. And every tongue confess that Jesus Christ is Lord to the glory of God the Father. This is God's Word.
 
+### The Sickness: Glory-Hunger
+
 This is a great passage on humility that you just had read. When we have talked in the last few months about justice and the poor, I've always sensed that even though it's important, it's what the Bible says, we have the cultural window or back. You know what I mean?
 
 The culture says, great, we're really glad that you Christians are thinking about that. We're interested in that too. So you have your window to the back.
@@ -60,7 +62,11 @@ It's to grab God's status for oneself. It's wishing to be the creator, independe
 
 Leaves us empty at the center and therefore we learn to swagger. We're attacked by demons of fear and anxiety, so we bluff. We look around and whenever we see a new person, we use people as buttresses for the shaky ego that pride created every time you meet a new person, you are unconsciously wondering, how can this person contribute to my need to prove that I count?
 
-Life therefore becomes a constant battle to use people to bolster your own self. So there's the sickness, pride, which is a hunger for glory, a need for respect, a need to be assured that we're real. What would health look like then?
+Life therefore becomes a constant battle to use people to bolster your own self.
+
+### What True Humility Looks Like
+
+So there's the sickness, pride, which is a hunger for glory, a need for respect, a need to be assured that we're real. What would health look like then?
 
 If we didn't have this, what would health look like? And the answer is intriguing. It's all summed up in the word humility because see, keep on going.
 
@@ -168,7 +174,11 @@ And yet we, that's the truth. You're always thinking about yourself, how are you
 
 So you're always thinking about yourself, why there's something wrong with your ego, just like if you're ever thinking about your elbow, there's something wrong with your elbow. We're not healthy. We're vain, glorious, we're lacking in glory.
 
-And as a result, we're not humble at all. We're filled with drivenness, scornfulness, willfulness and self-consciousness. So what's the cure?
+And as a result, we're not humble at all. We're filled with drivenness, scornfulness, willfulness and self-consciousness.
+
+### The Cure: Gazing at Christ's Trajectory
+
+So what's the cure?
 
 Well, I'd like to show you that this passage is giving us a top cure, it speaks broadly middle and practically too. It wasn't until fairly recently, as well as I've known this passage. This is one of the most famous passages in the Bible.
 
@@ -246,7 +256,11 @@ Jesus Christ looks at you and says, to me and in me, you are more precious than 
 
 Because you will know the way up is down. The way to be rich is to give away. The way to be happy is not to seek your own happiness, but the happiness of others.
 
-And when you say that He did that for you, that fills you up so you're not empty anymore and you'll be able to not have to think about yourself and how you go. Let me give you just one practical thing on this. I've already told you that it will sense you can't work on your humility, but you can work on your pride.
+And when you say that He did that for you, that fills you up so you're not empty anymore and you'll be able to not have to think about yourself and how you go. Let me give you just one practical thing on this.
+
+### Letting Go of Reputation
+
+I've already told you that it will sense you can't work on your humility, but you can work on your pride.
 
 Here's what I remember. This King James version, the King James version of Philippians 2.7 is, he made himself of no reputation. And I remember some years ago, one of the humblest men I've ever worked with was a pastor on our staff named Dick Kaufman, he was here in the 90s.
 

@@ -6,7 +6,7 @@
 
 ---
 
-## 为什么教会必须谈论金钱
+## 为什么教会必须谈论金钱 / Why the Church Must Talk About Money
 
 Welcome to Gospel in Life. Why does the Bible talk about money so much?
 
@@ -17,12 +17,6 @@ I'll explain why the detour in a moment. 2 Corinthians 9, verses 6 through 15. P
 Now he who supplies seed in the sower and bread for food will also supply and increase your store of seed and will enlarge the harvest of your righteousness. You will be made rich in every way so that you may be generous on every occasion. And through us, your generosity will result in thanksgiving to God. The service that you perform is not only supplying the needs of God's people, but also overflowing in many expressions of thanks to God. Because of the service by which you have proved yourselves, men will praise God for the obedience that accompanies your confession of the Gospel of Christ and for your generosity in sharing with them and with everyone else. And in their prayers for you, their hearts will go out to you because of the surpassing grace God has given you. Thanks be to God for his indescribable gift.
 
 This is God's Word. Now, one of the things you can always expect near the end of the year is you've got a lot of special features. You've got Christmas coming and Advent. You've got Thanksgiving. And therefore, we're going to move back and forth and each week you may get a John sermon, you may not.
-
-But we'll finish John up this spring. Now, here's what I'd like to talk about today. I'd like to talk about money. One of the very first things that I learned when I came to New York in figuring out where people were at, I found out that there were a lot of people who that New Yorkers get extremely nervous when ministers talk about money. And part of the reason, partly because of that research that I did, I've stayed away from the subject. And one of the good things is that many people like about the church is that there don't seem to be lots of appeals and canvases and things like that.
-
-But there's an imbalance that can happen and here's why I have to make sure that today I talk about money. It's coming up on Thanksgiving and we're going to budget today to the congregation. It's a traditional time to talk about money in a congregation. Why should I do it?
-
-Why should we do it? For this reason, it's artificial, very artificial, to avoid the subject when A, so many of your problems, I know I listen to them, so many of your worries, so many of your difficulties, so many of the complexities of your life revolve around money. And then secondly, it's artificial because so much of the Bible is about money. It's about money. The Gospel of Luke is almost completely about money if you read it through and see how often it's mentioned. And therefore, it's very artificial to stay away from something that's so central to, in many cases, it's the thing that's really right now been worrying more than anything else.
 
 ---
 
@@ -40,7 +34,13 @@ Why should we do it? For this reason, it's artificial, very artificial, to avoid
 
 ---
 
-## 全人医治的比喻
+## 全人医治的比喻 / The Parable of Whole-Person Healing
+
+But we'll finish John up this spring. Now, here's what I'd like to talk about today. I'd like to talk about money. One of the very first things that I learned when I came to New York in figuring out where people were at, I found out that there were a lot of people who that New Yorkers get extremely nervous when ministers talk about money. And part of the reason, partly because of that research that I did, I've stayed away from the subject. And one of the good things is that many people like about the church is that there don't seem to be lots of appeals and canvases and things like that.
+
+But there's an imbalance that can happen and here's why I have to make sure that today I talk about money. It's coming up on Thanksgiving and we're going to budget today to the congregation. It's a traditional time to talk about money in a congregation. Why should I do it?
+
+Why should we do it? For this reason, it's artificial, very artificial, to avoid the subject when A, so many of your problems, I know I listen to them, so many of your worries, so many of your difficulties, so many of the complexities of your life revolve around money. And then secondly, it's artificial because so much of the Bible is about money. It's about money. The Gospel of Luke is almost completely about money if you read it through and see how often it's mentioned. And therefore, it's very artificial to stay away from something that's so central to, in many cases, it's the thing that's really right now been worrying more than anything else.
 
 So we obviously can't, in the name of being careful and sensitive to a culture that is very distrustful of organized religion, especially when it comes to money, that we would avoid the subject because you need to hear it. And the Bible says this, there can be no significant spiritual growth unless you put your money and your attitude toward it into God's hands. There can be no significant growth, no significant spiritual growth in your life unless you put your money and what you think about your money into God's hands. Because it's just too big and too pivotal an issue. If you would go to a doctor, and you go because of a general need to improve your health. If you went into a doctor and said, doctor, I am just not healthy. I'm always tired and I'm constantly getting sick.
 
@@ -51,14 +51,6 @@ She would look at would say, listen, you're going to have to tell me everything.
 How many hours are you working? How satisfying is your work to you?
 
 You have to tell me about personal stresses may be happening in your life. You got to tell me everything. And if you looked at her and said, no, wait a minute, you're a doctor. You stick to the physical.
-
-I don't want to talk to you about my personal stresses. And I don't want to talk to you about the personal problems I have at work. That's not your department. You help me with my health. What would she say?
-
-She'd say, I'm sorry. The answer is, I'm sorry. They're all connected. You can't break your life into departments. Maybe the reason that you're always getting sick is because there's some kind of psychological strain on you. And the physiological effects are real. They're not psychosomatic, but they're being caused by something.
-
-You might need counseling as well as my treatment. And therefore, you got to tell me everything. Of course, that's what the doctor's going to say. And in the same way, God says, you come to me. Because you want meaning. Because you want renewal. Because you want strength.
-
-Because you want forgiveness. You want me in your life. Then you've got to let me talk to you about your money.
 
 ---
 
@@ -80,15 +72,15 @@ Because you want forgiveness. You want me in your life. Then you've got to let m
 
 ---
 
-## 激进慷慨：真基督徒的标志
+## 激进慷慨：真基督徒的标志 / Radical Generosity: The Mark of a True Christian
 
-You see, if you want, I want God in my life, but I don't want anybody talking to me about what God says about money. That's impossible. And just like the doctor will kick you out after a while and say, I'm sorry. What you want is impossible. You want me to deal with your health, but you won't tell me everything. And you won't see that you're an interconnected person. You won't see that you're an interconnected whole.
+I don't want to talk to you about my personal stresses. And I don't want to talk to you about the personal problems I have at work. That's not your department. You help me with my health. What would she say?
 
-In the same way, God says, unless you're willing to talk to me about your money, unless you're willing to put your money and your attitude toward your money in my hands as well, we can't do business. Therefore, we have to take a look at the passages. And here's a passage. I mean, do you see the practical implications of that?
+She'd say, I'm sorry. The answer is, I'm sorry. They're all connected. You can't break your life into departments. Maybe the reason that you're always getting sick is because there's some kind of psychological strain on you. And the physiological effects are real. They're not psychosomatic, but they're being caused by something.
 
-That's a powerful argument. And it makes so much sense. Now, the scripture says, it gives a lot of places where it gives you principles for what it means to put your money in God's hands.
+You might need counseling as well as my treatment. And therefore, you got to tell me everything. Of course, that's what the doctor's going to say. And in the same way, God says, you come to me. Because you want meaning. Because you want renewal. Because you want strength.
 
-What does that mean, you say? What does the Bible say our attitude has to be?
+Because you want forgiveness. You want me in your life. Then you've got to let me talk to you about your money.
 
 ---
 
@@ -102,7 +94,15 @@ What does that mean, you say? What does the Bible say our attitude has to be?
 
 ---
 
-## 慷慨的双重影响
+## 慷慨的双重影响 / The Twofold Impact of Generosity
+
+You see, if you want, I want God in my life, but I don't want anybody talking to me about what God says about money. That's impossible. And just like the doctor will kick you out after a while and say, I'm sorry. What you want is impossible. You want me to deal with your health, but you won't tell me everything. And you won't see that you're an interconnected person. You won't see that you're an interconnected whole.
+
+In the same way, God says, unless you're willing to talk to me about your money, unless you're willing to put your money and your attitude toward your money in my hands as well, we can't do business. Therefore, we have to take a look at the passages. And here's a passage. I mean, do you see the practical implications of that?
+
+That's a powerful argument. And it makes so much sense. Now, the scripture says, it gives a lot of places where it gives you principles for what it means to put your money in God's hands.
+
+What does that mean, you say? What does the Bible say our attitude has to be?
 
 Well, there's a number of passages, but we're going to look at this one. And what this passage will tell us about is that it's the mark of real Christians to be radically generous. Did you notice as we read through there how often in many verses the word generosity, generosity, generosity comes up?
 
@@ -111,16 +111,6 @@ Radical generosity, remarkable generosity. That's the mark of a Christian. Now, 
 And then lastly, the measure of that generosity. How do you know that you're generous or not?
 
 How much? You know, bottom line, New York, right?
-
-So the impact of that generosity, the motivation for that generosity, and the measure of that generosity. Let's run through those three things because they're all here. Now, first of all, let's see. I'm going to actually, you know, you could easily turn this around and, but the impact lasts, but I want to put it first because I want you to see the importance of radical Christian generosity for the world.
-
-Paul says, pardon me, I have to keep this in context. Paul in 2 Corinthians is raising money for famine relief. There's hints of passage I read you, but you see it over in 2 Corinthians 8.
-
-There's been a famine in Jerusalem. There's many people there who are in need, and Paul is going to Asia Minor and to the churches in that area, and he is raising money. He's asking for money for the Christians there to give money to do famine relief in Jerusalem. And therefore, if you look carefully, you'll see that Paul is saying the impact of this generosity will be twofold. Not only will there be people who are physically fed, but secondly, we see, for example, in verse 13, radical generosity will also lead people to praise God.
-
-See, there's a twofold impact. There's a twofold impact. There's a twofold impact to radical generosity.
-
-Let me show you what that means and then how radical generosity brings it about. Twofold. Not only does it feed people, but it also leads them to praise God.
 
 ---
 
@@ -142,17 +132,15 @@ Let me show you what that means and then how radical generosity brings it about.
 
 ---
 
-## 番茄的比喻：意义的重要性
+## 番茄的比喻：意义的重要性 / The Tomato Parable: The Importance of Meaning
 
-You see, you are two parts. You are body and soul or body and spirit. You can put it either way.
+So the impact of that generosity, the motivation for that generosity, and the measure of that generosity. Let's run through those three things because they're all here. Now, first of all, let's see. I'm going to actually, you know, you could easily turn this around and, but the impact lasts, but I want to put it first because I want you to see the importance of radical Christian generosity for the world.
 
-There's an immaterial part to material part to you. The physiologist will tell you that you are a bag of chemicals. But if somebody tells you you're only a bag of chemicals, you'll punch them in the nose. Why?
+Paul says, pardon me, I have to keep this in context. Paul in 2 Corinthians is raising money for famine relief. There's hints of passage I read you, but you see it over in 2 Corinthians 8.
 
-Because you know you're more than just chemicals. You know that. If you are, frankly, if you're not more than just chemicals, then you have the right to treat a human being the way you would treat a real bag of chemicals. And the fact that we don't treat human beings the way we treat other bags of chemicals shows implicitly we believe there's a material and an immaterial part.
+There's been a famine in Jerusalem. There's many people there who are in need, and Paul is going to Asia Minor and to the churches in that area, and he is raising money. He's asking for money for the Christians there to give money to do famine relief in Jerusalem. And therefore, if you look carefully, you'll see that Paul is saying the impact of this generosity will be twofold. Not only will there be people who are physically fed, but secondly, we see, for example, in verse 13, radical generosity will also lead people to praise God.
 
-There's more to us than meets the eye or the microscope. There's two parts to you. Now, there's many ways to help people. And churches have always helped the body. Churches have always fed people. They've always built hospitals. They have always worked with the elderly and the disadvantages.
-
-And in any city in this country where churches stop doing that, you know there'd be an immediately negative impact on the quality of life in those cities. So obviously the church has always dealt with the body, but the church, unlike any other institution, religious institutions, can deal with both the body the material and the immaterial. Because the religious institutions not only can do the feeding and the medical and so on, but they can also give you meaning in life, tell you what the purpose of things is, without which, if you don't have that, all the dealing with the body and the physical and material really is kind of meaningless. For example, what can botanists tell you about a tomato?
+See, there's a twofold impact. There's a twofold impact. There's a twofold impact to radical generosity.
 
 ---
 
@@ -166,27 +154,21 @@ And in any city in this country where churches stop doing that, you know there'd
 
 ---
 
-## 拉丁美洲的属灵复兴
+## 拉丁美洲的属灵复兴 / The Spiritual Revival in Latin America
+
+Let me show you what that means and then how radical generosity brings it about. Twofold. Not only does it feed people, but it also leads them to praise God.
+
+You see, you are two parts. You are body and soul or body and spirit. You can put it either way.
+
+There's an immaterial part to material part to you. The physiologist will tell you that you are a bag of chemicals. But if somebody tells you you're only a bag of chemicals, you'll punch them in the nose. Why?
+
+Because you know you're more than just chemicals. You know that. If you are, frankly, if you're not more than just chemicals, then you have the right to treat a human being the way you would treat a real bag of chemicals. And the fact that we don't treat human beings the way we treat other bags of chemicals shows implicitly we believe there's a material and an immaterial part.
+
+There's more to us than meets the eye or the microscope. There's two parts to you. Now, there's many ways to help people. And churches have always helped the body. Churches have always fed people. They've always built hospitals. They have always worked with the elderly and the disadvantages.
+
+And in any city in this country where churches stop doing that, you know there'd be an immediately negative impact on the quality of life in those cities. So obviously the church has always dealt with the body, but the church, unlike any other institution, religious institutions, can deal with both the body the material and the immaterial. Because the religious institutions not only can do the feeding and the medical and so on, but they can also give you meaning in life, tell you what the purpose of things is, without which, if you don't have that, all the dealing with the body and the physical and material really is kind of meaningless. For example, what can botanists tell you about a tomato?
 
 They can tell you a lot of things about tomatoes. They can tell you a lot more than I know about tomatoes. There's only one thing they can tell you. They can't tell you, and that's the most important thing. They can tell you everything about the tomato, except why. Why the tomato?
-
-They can't tell you about that. Do you see why that's important, though?
-
-Look, is this tomato a beautiful work of creation, or please excuse me, is it a beautiful fruit, or is it just a damn tomato? It depends on the bigger question. See, is this, is this thing when you look at it, do you see something that's full of beauty and order and symmetry, a wonder of creation, a joy, or do you see it as something just to squash or throw at somebody?
-
-It depends on whether you believe there's any meaning in life at all. The point is, unless you see the big issues, we talk about what will help people. Friends, if people don't know why they are living, if people don't know what the purpose of things is, if people don't know how you know what the purpose of things is, if people don't know how you know what the purpose of things is, if people don't know what's right and wrong, if people don't know who they are in the universe, if they don't have both the big picture, the big issues, if they're not dealt with spiritually as well as physically, they're not being dealt with. One of the most important and interesting things that's happening in the world today is what's happening religiously in Latin America. Recently there have been two major studies written by sociologists, not writing from a Christian point of view, not published by Christians, in houses of publication, but two sociologists have written books on the fact that in Latin America the poor are turning to traditional Protestant Christianity in incredible numbers. In Brazil, 500,000 people a year are joining these churches. Guatemala is 30% now evangelical Protestant.
-
-Now let me tell you what I mean by traditional Protestant. I mean this. That is, traditional Christianity without the modern bias against the supernatural, up until 50 years ago, this is what all Christians believed, and still, traditional Christians believe this. They believe in the supernatural. The modern mind has faith that there is no supernatural, but that can't be proven. It's a bias. It's not objective.
-
-It's a faith assumption. Traditional Christians have always believed that the Bible is God's revelation. It's a miracle. It's God's word. That there is such a thing as a new birth, that Christ can come on in and change you from the inside. That he can live with you and give you power.
-
-That the kingdom of God can move into our lives and give us power to change lives and social structures. And those are the kind of churches that the poor are flooding into in Latin America. Lots of people have been trying to help the poor in Latin America in all kinds of very important ways. Extremely important ways. Community development and hunger relief and so on.
-
-But the poor themselves, the kind of help the poor are getting themselves is they're flooding into these churches. You know why?
-
-These two sociologists have written these two different books independently of each other and they say that classic Christianity is radically empowering. What the poor realize when they get a hold of the gospel is that whether you're high or low socially, we're all sinners. And then secondly, no matter who you are socially, in Christ, every human being has equal dignity before the Father.
-
-See, that's radically empowering. It's radically democratic. You might say, it's democratic. It's radicalizing.
 
 ---
 
@@ -206,25 +188,27 @@ See, that's radically empowering. It's radically democratic. You might say, it's
 
 ---
 
-## 激进慷慨如何改变罗马帝国
+## 激进慷慨如何改变罗马帝国 / How Radical Generosity Transformed the Roman Empire
+
+They can't tell you about that. Do you see why that's important, though?
+
+Look, is this tomato a beautiful work of creation, or please excuse me, is it a beautiful fruit, or is it just a damn tomato? It depends on the bigger question. See, is this, is this thing when you look at it, do you see something that's full of beauty and order and symmetry, a wonder of creation, a joy, or do you see it as something just to squash or throw at somebody?
+
+It depends on whether you believe there's any meaning in life at all. The point is, unless you see the big issues, we talk about what will help people. Friends, if people don't know why they are living, if people don't know what the purpose of things is, if people don't know how you know what the purpose of things is, if people don't know how you know what the purpose of things is, if people don't know what's right and wrong, if people don't know who they are in the universe, if they don't have both the big picture, the big issues, if they're not dealt with spiritually as well as physically, they're not being dealt with. One of the most important and interesting things that's happening in the world today is what's happening religiously in Latin America. Recently there have been two major studies written by sociologists, not writing from a Christian point of view, not published by Christians, in houses of publication, but two sociologists have written books on the fact that in Latin America the poor are turning to traditional Protestant Christianity in incredible numbers. In Brazil, 500,000 people a year are joining these churches. Guatemala is 30% now evangelical Protestant.
+
+Now let me tell you what I mean by traditional Protestant. I mean this. That is, traditional Christianity without the modern bias against the supernatural, up until 50 years ago, this is what all Christians believed, and still, traditional Christians believe this. They believe in the supernatural. The modern mind has faith that there is no supernatural, but that can't be proven. It's a bias. It's not objective.
+
+It's a faith assumption. Traditional Christians have always believed that the Bible is God's revelation. It's a miracle. It's God's word. That there is such a thing as a new birth, that Christ can come on in and change you from the inside. That he can live with you and give you power.
+
+That the kingdom of God can move into our lives and give us power to change lives and social structures. And those are the kind of churches that the poor are flooding into in Latin America. Lots of people have been trying to help the poor in Latin America in all kinds of very important ways. Extremely important ways. Community development and hunger relief and so on.
+
+But the poor themselves, the kind of help the poor are getting themselves is they're flooding into these churches. You know why?
+
+These two sociologists have written these two different books independently of each other and they say that classic Christianity is radically empowering. What the poor realize when they get a hold of the gospel is that whether you're high or low socially, we're all sinners. And then secondly, no matter who you are socially, in Christ, every human being has equal dignity before the Father.
+
+See, that's radically empowering. It's radically democratic. You might say, it's democratic. It's radicalizing.
 
 That's what they say, actually, in the books. And the fact that through Christianity, they got power for the present and hope for the future means they're able to face their lives. And where there are whole villages that are coming to Christ, what happens is families come together and the economic conditions change. Because, you see, these people are having the big issue addressed. Not simply. What the church can do is not simply feed people, but it can lead them to praise God. And the fact is, unless you've got something to praise, you've got no meaning in your life.
-
-And a full stomach is not enough. Don't you see?
-
-You say, what does the world need? What does the world need?
-
-Paul was in the Roman world. And the old religions and philosophies of that ancient world were disintegrating because they couldn't bear the freight of people's real meaning needs. The church came in, it could do it all. It could feed people and it could lead them to praise God. And it ran through the Roman Empire like lightning. Do you see how it changed things?
-
-It changed things radically. And here's how it changed things. It changed things through radical generosity.
-
-A lot of people say, well, it's fascinating. How did Christianity actually move through the Roman Empire and change it the way it's moving through cultures today?
-
-Wherever the church spreads, in New Testament purity, it changes everything. It addresses both the body and the soul, both the material and the immaterial. And only religious institutions can do that. And the only ones that can actually do it, they have to multiply.
-
-There is nothing, for example, there would be nothing better for New York City than in the next 10 years to have 2,000 new churches planted. That's the rate that things are being planted in parts of Latin America and parts of Korea. There is nothing that could possibly change people's lives.
-
-There is nothing that could possibly change people's lives physically, completely, you see, physically and spiritually, than a church. There is nothing more important to spread than that. Now, how does it happen?
 
 ---
 
@@ -250,7 +234,23 @@ There is nothing that could possibly change people's lives physically, completel
 
 ---
 
-## 早期基督徒改变世界的四种品质
+## 早期基督徒改变世界的四种品质 / Four Qualities That Changed the World
+
+And a full stomach is not enough. Don't you see?
+
+You say, what does the world need? What does the world need?
+
+Paul was in the Roman world. And the old religions and philosophies of that ancient world were disintegrating because they couldn't bear the freight of people's real meaning needs. The church came in, it could do it all. It could feed people and it could lead them to praise God. And it ran through the Roman Empire like lightning. Do you see how it changed things?
+
+It changed things radically. And here's how it changed things. It changed things through radical generosity.
+
+A lot of people say, well, it's fascinating. How did Christianity actually move through the Roman Empire and change it the way it's moving through cultures today?
+
+Wherever the church spreads, in New Testament purity, it changes everything. It addresses both the body and the soul, both the material and the immaterial. And only religious institutions can do that. And the only ones that can actually do it, they have to multiply.
+
+There is nothing, for example, there would be nothing better for New York City than in the next 10 years to have 2,000 new churches planted. That's the rate that things are being planted in parts of Latin America and parts of Korea. There is nothing that could possibly change people's lives.
+
+There is nothing that could possibly change people's lives physically, completely, you see, physically and spiritually, than a church. There is nothing more important to spread than that. Now, how does it happen?
 
 It spreads through radical generosity. Listen. When the church becomes what it ought to be, there is a magnetism and an attractiveness about people's lives in the church that attracts people, and radical generosity is a key. 20 or 30 years after the last apostle died, after John the Apostle died, there was a, we don't know who wrote this, but we have a very, very ancient Christian document, and it's called the Episcopal to Diognetus. Diognetus was a non-Christian, and somebody wrote him a letter saying, trying to explain Christianity, and this is what it says, and it's very interesting. It says, let me tell you why Christianity is spreading so fast. Christians busy themselves on earth, but their citizenship is in heaven.
 
@@ -263,26 +263,6 @@ Now look and see, for a moment, four qualities that these Christians had that ev
 See what that means? I have to run through these more briefly. You see, the Christians were Jews and Africans and Greeks and Romans, but they were Christians first, and they were Greeks and Jews and Romans and Africans second. What Christianity does is it gives you a higher authority than your cultural tradition, and it gives you a higher loyalty than your race. It relativizes your relationship to your own culture so that you can critique it, and it says your Christians could appreciate other people's cultures and they could be critical of their own. They no longer took their identity from who they were racially, and it cut racism down at the root.
 
 See, their native lands were as their foreign lands, and their foreign lands were as native lands. So the absence of racism. Secondly, a high, high view of life. It says they do not kill the unwanted. Back then, it was normal that when you had a female child, to throw it in the river, and parents had the right to do that. Slaves also were expendable. You could kill a slave if you wanted to.
-
-Christians, though, saw every life, no matter how unwanted or expendable, to be absolutely inviolate, infinitely precious. That view of life.
-
-Thirdly, they had an unusual view of sex. The third reason that people looked at them as so strange was because it says they share their table with all, but they don't share their bed with all. You see, the pagan understanding of sex was like an appetite. You know, if you got hungry, you ate, and if you felt sexy, you had sex. Christians came along and said, with an absolutely radical sex ethic, and what they said is, sex is God's appointed way to say to another human being, I belong completely and exclusively and permanently to must not be used, sex must not be used to say anything else to someone.
-
-Therefore, sex was a celebration of complete, exclusive, and permanent commitment. What was so interesting was every single one of the early Christians had been raised in the pagan sex ethic, and when they became Christians, and they realized the new Christian sex ethic, they felt liberated. What's ironic is, in most cases, you were raised in the Christian sex ethic, and were told that it's the pagan one that's liberated. And how did you find it?
-
-You know, when Christians are raised in the pagan one, they get into Christian, the Christian sex ethic, they find intimacy, they find healing, they find security. When you come up in the Christian sex ethic, and you get rid of pagan, how liberated are you?
-
-How excited are you? How happy are you?
-
-You see, the Christian sex ethic ran through the Roman Empire like lightning. It was so unique, and when people tried it, they said, this is it. But fourthly, these early Christians were radically generous. It says, they share their table with everyone. Though poor, they make many rich. And though they have nothing, they're short of everything, they have plenty of everything. And what that's saying is, these early Christians were marked by eye-popping generosity.
-
-They were radically generous. People couldn't believe how quick they were to give their money away to people. And not only that, they changed their attitude toward their simpler lifestyle that they had as a result. It says, though short of everything, they had plenty of everything.
-
-What does that mean? It means that they were short of things because they were so generous, and yet they were happy with what they had. Why, how could the Roman Empire, with its slavery and its infanticide, and its corruption and its decadence and its immorality, you know, you saw I, Claudius, along with me, how did a world like that turn Christian within a couple hundred years?
-
-How could Christianity have just spread the way it did? The answer is, nobody could match the beauty of the lives of these Christians. Their lifestyle was gorgeous. Their lifestyle was startling. A lack of racism, a high regard for human life, a sex ethic of purity and commitment, and lastly, radical generosity. People looked at Christians and said, what has happened inside of them to make them so quick to give their money away?
-
-They've never seen anything like it. Nobody can figure it out. Something radical must have happened on the inside, and that's true.
 
 ---
 
@@ -316,7 +296,27 @@ They've never seen anything like it. Nobody can figure it out. Something radical
 
 ---
 
-## 慷慨的动力：创造与救赎
+## 慷慨的动力：创造与救赎 / The Motivation for Generosity: Creation and Redemption
+
+Christians, though, saw every life, no matter how unwanted or expendable, to be absolutely inviolate, infinitely precious. That view of life.
+
+Thirdly, they had an unusual view of sex. The third reason that people looked at them as so strange was because it says they share their table with all, but they don't share their bed with all. You see, the pagan understanding of sex was like an appetite. You know, if you got hungry, you ate, and if you felt sexy, you had sex. Christians came along and said, with an absolutely radical sex ethic, and what they said is, sex is God's appointed way to say to another human being, I belong completely and exclusively and permanently to must not be used, sex must not be used to say anything else to someone.
+
+Therefore, sex was a celebration of complete, exclusive, and permanent commitment. What was so interesting was every single one of the early Christians had been raised in the pagan sex ethic, and when they became Christians, and they realized the new Christian sex ethic, they felt liberated. What's ironic is, in most cases, you were raised in the Christian sex ethic, and were told that it's the pagan one that's liberated. And how did you find it?
+
+You know, when Christians are raised in the pagan one, they get into Christian, the Christian sex ethic, they find intimacy, they find healing, they find security. When you come up in the Christian sex ethic, and you get rid of pagan, how liberated are you?
+
+How excited are you? How happy are you?
+
+You see, the Christian sex ethic ran through the Roman Empire like lightning. It was so unique, and when people tried it, they said, this is it. But fourthly, these early Christians were radically generous. It says, they share their table with everyone. Though poor, they make many rich. And though they have nothing, they're short of everything, they have plenty of everything. And what that's saying is, these early Christians were marked by eye-popping generosity.
+
+They were radically generous. People couldn't believe how quick they were to give their money away to people. And not only that, they changed their attitude toward their simpler lifestyle that they had as a result. It says, though short of everything, they had plenty of everything.
+
+What does that mean? It means that they were short of things because they were so generous, and yet they were happy with what they had. Why, how could the Roman Empire, with its slavery and its infanticide, and its corruption and its decadence and its immorality, you know, you saw I, Claudius, along with me, how did a world like that turn Christian within a couple hundred years?
+
+How could Christianity have just spread the way it did? The answer is, nobody could match the beauty of the lives of these Christians. Their lifestyle was gorgeous. Their lifestyle was startling. A lack of racism, a high regard for human life, a sex ethic of purity and commitment, and lastly, radical generosity. People looked at Christians and said, what has happened inside of them to make them so quick to give their money away?
+
+They've never seen anything like it. Nobody can figure it out. Something radical must have happened on the inside, and that's true.
 
 Now, let's look at what that is. It's the motivation. But before we do, just for a second, let me point this out.
 
@@ -327,16 +327,6 @@ Is the gospel spreading like lightning through New York because people look at f
 They just give you help in the most practical way possible. They are so generous. Does anybody say that about you?
 
 Are you unusually generous? Are you known for your generosity?
-
-If not, you're not like they were. And maybe it's because you don't have the same thing operating inside that was operating inside of them. What was operating inside of them?
-
-You know what their motivation was? It's right there in verse 13 again. It says, Something had happened inside of them.
-
-See, a motivation is a motor. It's something that drives you. What is so unique in Christians that it leads them to a generosity that other people can't account for?
-
-Now, I've already gotten by the fact that that radical generosity has got to be there. Now we look and see why. There are two motives operating in a Christian that makes them different than other people and changes their attitude toward their wealth and their possessions. Listen.
-
-The first one is creation, and the second one is redemption. The first motivation is this. It says, for example, it says, God is able to make all grace available, He who supplies seed to the sower and bread for food can also supply and increase your store of seed.
 
 ---
 
@@ -376,7 +366,17 @@ The first one is creation, and the second one is redemption. The first motivatio
 
 ---
 
-## 父亲与孩子的比喻
+## 父亲与孩子的比喻 / The Father and Child Parable
+
+If not, you're not like they were. And maybe it's because you don't have the same thing operating inside that was operating inside of them. What was operating inside of them?
+
+You know what their motivation was? It's right there in verse 13 again. It says, Something had happened inside of them.
+
+See, a motivation is a motor. It's something that drives you. What is so unique in Christians that it leads them to a generosity that other people can't account for?
+
+Now, I've already gotten by the fact that that radical generosity has got to be there. Now we look and see why. There are two motives operating in a Christian that makes them different than other people and changes their attitude toward their wealth and their possessions. Listen.
+
+The first one is creation, and the second one is redemption. The first motivation is this. It says, for example, it says, God is able to make all grace available, He who supplies seed to the sower and bread for food can also supply and increase your store of seed.
 
 Now, what he's saying is this. The reason you need to give away your wealth is because all the wealth you got is from God anyway. I know the advertisements say, spend this on yourself because you've worked hard for owe it to yourself. Have you ever noticed how many commercials basically say that?
 
@@ -391,10 +391,6 @@ No. Why?
 It's mine. You gave it to me. You buy the kid a candy bar and you say, could I just have a piece?
 
 No, it's mine. And you look at them and you say, you're kidding, right?
-
-You're kidding. It's yours. I know it's yours. I gave it to you. Yeah, it's yours. I'm not taking it back, but come on. Suppose somebody gave you a house.
-
-In the Burbs. $400,000 house. And they say there's only one thing.
 
 ---
 
@@ -425,7 +421,11 @@ In the Burbs. $400,000 house. And they say there's only one thing.
 
 ---
 
-## 救赎的动力：福音如何改变一切
+## 救赎的动力：福音如何改变一切 / The Power of Redemption: How the Gospel Changes Everything
+
+You're kidding. It's yours. I know it's yours. I gave it to you. Yeah, it's yours. I'm not taking it back, but come on. Suppose somebody gave you a house.
+
+In the Burbs. $400,000 house. And they say there's only one thing.
 
 Look how big it is. It's got all these rooms. I would like to have one room to live in, but I'll give you everything else. The whole house is yours. I'll have a separate. I won't bother you too much. I just would like part of it.
 
@@ -436,8 +436,6 @@ Now, you know, common sense would tell you that if the only reason you have any 
 And God comes to scripture, and if he would say, if he would say, I've given you everything that you have, but how about sharing with me, oh, say, 10% of work of the church, for the needs of the poor, and for the needs of people around you, just 10%, I've given you everything, I would just like you to share 10% with me, and you say, what? It's mine! And he says to you, you're kidding, right?
 
 You're kidding. 1 Corinthians 4, 7 says, what do you have that is not a gift?
-
-And therefore, how dare you treat it as if it's anything but a gift? Christians understand that. Even though Christians also know the natural heart says, like the heart of a little child says, it's mine.
 
 ---
 
@@ -458,7 +456,9 @@ And therefore, how dare you treat it as if it's anything but a gift? Christians 
 
 ---
 
-## 司布真的比喻：无价的药
+## 司布真的比喻：无价的药 / Spurgeon's Parable: The Priceless Medicine
+
+And therefore, how dare you treat it as if it's anything but a gift? Christians understand that. Even though Christians also know the natural heart says, like the heart of a little child says, it's mine.
 
 So creation is the first motivation, but redemption is the second one. It says here that it's a response to the gospel. Now, what is the gospel?
 
@@ -467,8 +467,6 @@ You know, it says, for example, in chapter 8, I am not commanding you to give, P
 Paul is actually saying, the way you know that you have actually experienced the grace of God is if you're radically generous. And would not... Paul is actually saying, if you need to be commanded, if you're commanded to give, you have never experienced the grace of God. If, on the other hand, you want to give generously, radically, if your attitude toward your possessions has been mightily changed, that is the only proof you've got, actually, one of the few proofs you have, that you really have experienced the grace of God. Luther says that a Christian is somebody who every day gets up and looks at God and says, Jesus, and says, Lord, you are my goodness, and I'm your punishment. You took everything I deserve, and now I get everything you deserved. Luther says every day a Christian is somebody who gets up and says, I'm rich.
 
 I am rich. I've been adopted into the family. I've been accepted into the beloved. I have a guarantee to rule and reign forever. I've got his holy power living in me that will inevitably overwhelm all my flaws, all my weaknesses, all my sadnesses. A Christian is somebody who feels absolutely rich and therefore turns around and says, has a completely different attitude toward your possessions.
-
-There is no... This is an illustration that some of you heard. I got it from Charles Spurgeon.
 
 ---
 
@@ -484,7 +482,9 @@ There is no... This is an illustration that some of you heard. I got it from Cha
 
 ---
 
-## 爱的语言与慷慨
+## 爱的语言与慷慨 / The Language of Love and Generosity
+
+There is no... This is an illustration that some of you heard. I got it from Charles Spurgeon.
 
 There's no better illustration than this. Charles Spurgeon, the old Baptist preacher, used to say, what if you knew you were dying of something and I had a medicine that could cure you for sure?
 
@@ -512,7 +512,7 @@ The Bible says, to you who believe, Jesus Christ is precious. To you who know wh
 
 ---
 
-## 认识恩典的诊断方式
+## 认识恩典的诊断方式 / Diagnosing Grace
 
 So before they get married, they sign a little agreement saying, if we get a divorce, you don't get this and you don't get that. And maybe in some cases, I don't know if that's wise or not, but I know that's not the language of the heart in love. Because when you're in a warm, passionate embrace, you know what you want to say?
 
@@ -542,7 +542,7 @@ And here, just before we finish, there's probably people in this room who don't 
 
 ---
 
-## 慷慨的衡量标准：十一奉献
+## 慷慨的衡量标准：十一奉献 / The Measure of Generosity: Tithing
 
 Jesus says, Jesus says, I'm a physician. And it's not the well, who I need, I need the sick. It's not the people who are spiritually solid that I want to talk to. It's the people who are confused and who don't know what they believe. He wants to see you here. He's a physician.
 
@@ -569,8 +569,6 @@ See, some of you can get there. Some of you say, I can't afford 10%. The answer 
 You'd make due, and you'd be grumpy and unhappy. Make due now. Only instead of the unhappiness of not knowing, feeling you don't have it, make due now, but take that money with the joy of knowing now you're a philanthropist for the first time. You never thought you could afford it. The fact is, you say, if I had a 10% reduction in income, I could make due. It would be painful. You can make due with the joy of knowing suddenly that your radical generosity can change the world and have the impact we've been talking about.
 
 And there's a lot of you who just can't get there because it'll take you time, because you are boxed in, because you're learning about radical generosity. Maybe today for the first time, and you say, boy, it's going to be a while before I can get there because of the obligations I've got. All right, then get in that direction. Move that way. Say, Lord, I want to get there. Give to the place, the point where you get scared, and make a plan, and be gutsy, and move toward that, and it may take you a while, but get there. In Malachi 3, God says, bring the whole tithe into the storehouse.
-
-Prove me. Put me to the test, He says. And I will pour down into your heart blessings that you cannot imagine. That's Malachi 3. He says, bring the full tithe into the storehouse. Put me to the test, whether I do not bring down a blessing into your heart. If you begin to give the way God says, He actually says, put me to the test.
 
 ---
 
@@ -603,7 +601,9 @@ Prove me. Put me to the test, He says. And I will pour down into your heart bles
 
 ---
 
-## 松开你紧握的拳头
+## 松开你紧握的拳头 / Unclench Your Fist
+
+Prove me. Put me to the test, He says. And I will pour down into your heart blessings that you cannot imagine. That's Malachi 3. He says, bring the full tithe into the storehouse. Put me to the test, whether I do not bring down a blessing into your heart. If you begin to give the way God says, He actually says, put me to the test.
 
 Dare to give in the proportions I'm talking about. Dare. And I promise you, I'll put something in your hand.
 
@@ -627,7 +627,7 @@ The first blessing that you'll get from radical generosity is when you start to 
 
 ---
 
-## 结束祷告
+## 结束祷告 / Closing Prayer
 
 I can't put my blessing into a tight fist. Let go of your things, and wait till you see what I put into your hands. Look what happened when Jesus opened his hand.
 

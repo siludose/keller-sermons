@@ -78,6 +78,9 @@ You got your meaning in life through family. And through basically fulfilling a 
 
 You just need to find a way to make a living because family was what everything was about. But we are the first culture in history that says, you define yourself by deciding what you want to be and attaining it. And then you have significance, which means that work, there's never been more psychological and social and emotional pressure on work to be either fulfilling or at least lucrative.
 
+### Our Work-Obsessed Culture
+
+
 There's never been a culture like that, which means A, B, C, D, A, B and C, you know, mean that we are more desperately in need of rest than we ever have less time for rest than ever. And D means we emotionally on the inside have less ability to rest and relax than we anyone ever has had, any cultures ever had. But as bad as that is, as aggravating as the modern situation is, the Sabbath is an ancient practice because there is an abiding human problem that has always been there.
 
 The Sabbath is obviously not a response to modern hecticness. There's something that's already been there and what is that thing that's already been down there? There's something else that needs to be addressed by Sabbath.
@@ -157,6 +160,9 @@ That is good. Now you can rest. Now you can relax.
 So you see, the definition of resting is to be utterly satisfied with what was done. Secondly, second verse. Scroll forward, Hebrews chapter 4 is talking about the gospel.
 
 The Hebrews writer is talking to Christians about what it means to believe in Jesus. And as he's talking about the gospel and believing in Jesus, suddenly he says this, there remains then a rest for the people of God. For anyone who through the gospel enters God's rest, rest from his own work just as God rested from his.
+
+### The Meaning of Conversion
+
 
 Now this is an amazing statement. What does it mean to become a Christian? I mean, there's a whole lot of ways of putting it.
 
@@ -238,6 +244,9 @@ Infinite restlessness. There is no rest for those who turn away from God. He was
 
 Infinite restlessness. Cosmic restlessness. Why?
 
+### The Finished Work of Christ
+
+
 So that when he died, he was able to say what he did. It is finished. What is finished?
 
 Everything necessary for salvation for the most exacting conscience, for the most incredibly perfectionistic, eternal, inner murmur. Do you see that? In other words, Jesus Christ came to live a life you should have lived, perfectly, and died that death you should have died, the penalty, perfectly, so that when God looks at you, because you have received Christ as your Savior, and what does it mean to receive Christ as Savior?
@@ -317,6 +326,9 @@ I'm not the one. God is the one. I am not God.
 Sabbath is not only a discipline of liberation. It's a discipline of trust. I'm not God.
 
 Better stop. I got to move on to the external disciplines, all right? There's five external disciplines.
+
+### The Discipline of Rest
+
 
 If you do the internal disciplines, and only if you do them, you'll be able to relax at the external disciplines. If you don't do the internal ones, you're just going to spend the whole day somehow still weary when it's over. But here's the external disciplines.
 

@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### The Word Made Flesh: A Revolution in Human Thought
+
 Welcome to Gospel in Life. Today, Tim Keller is looking at a passage from the opening chapter of the Gospel of John. John begins his account of Christ's birth not with shepherds or angels, but with the mystery of the Word becoming flesh, God Himself entering the world as a person in Jesus Christ. Join us as Tim Keller explores the meaning of Jesus' birth. Today's scripture is from the Gospel of John, chapter 1, verses 14 through 18. The Word became flesh and made His dwelling among us. We have seen His glory, the glory of the one and only Son, who came from the Father, full of grace and truth.
 
 John testified concerning Him. He cried out, saying, This is the one I spoke about when I said, He who comes after me has surpassed me, because He was before me. Out of His fullness we have all received grace, in place of grace already given. For the law was given through Moses. Grace and truth came through Jesus Christ. No one has ever seen God, but the one and only Son, who is Himself God and is in closest relationship with the Father, has made Him known. The Word of the Lord.
@@ -22,6 +24,8 @@ But the Greeks and Romans realized what he was saying was, if the way to connect
 
 It wasn't a hologram. It wasn't a humanoid. The word became flesh.
 
+### Infinite Comfort in Suffering
+
 But the Son of God, the Creator of the universe, the Son of God, the Creator of the universe, the Son of God, the transcendent God, the cosmic center of the universe became a flesh and blood human being who could be known, Jesus Christ. Now that's Christmas. But, and you know what, actually, that's the whole sermon.
 
 But at least to say that's what the doctrine is. That's what the teaching is. But what I like to do is think about the fact that Christmas doesn't change our lives like it ought to. This is a life transforming truth. In many ways, but what I like to do is draw out three ways in which this truth of its grasp should change our lives. Three extremely practical implications. If you really believe the doctrine of Christmas, then these three things are true.
@@ -41,6 +45,8 @@ So we can't completely blame him. And what Camus is saying is, I think it's just
 So we can't completely blame him. If God came to earth and involved himself in our life of pain, and suffered enormously, suffered infinitely, suffered horrendously, then if you ask, well, why is God allowing evil and suffering to continue?
 
 We still don't know what the reason he is doing that is. We still don't know what the reason is. But now we know what the reason isn't. It isn't that he doesn't care. It isn't that he's remote. It isn't that he doesn't love us. See?
+
+### A Suffering God Can Strengthen Suffering People
 
 And what Camus is saying is, we still don't know why. But the fact that he suffered. See, other religions have God up there, impervious to suffering. And if you say, why does that God allow evil and suffering?
 
@@ -71,6 +77,8 @@ So he was turned down too. Every place you could ever go, he's been there. Every
 That's what it says. He will strengthen you. Go to him.
 
 There's that great, you know, poem called Jesus of the Scars. And the last stanza goes like this. I think I can remember it. The poet is contrasting the different gods of the different religions. And he's looking at Jesus and he says, the other gods did ride. Thou did stumble to thy throne. To our wounds, only God's wounds can speak.
+
+### Imitating the Incarnation: Entering into Service
 
 And no God has wounds, but thou alone. To our wounds, only God's wounds can speak and no other God has wounds, but thou alone. So first of all, the Doctor of Christmas gives you infinite, comfort and suffering. Are you taking it?
 
@@ -121,6 +129,8 @@ That's a little bit Victorian, a little bit, a little florid, but it's, it's sti
 Wherever people suffer, there will we be to comfort. Wherever they strive, there will we be to help. Wherever they fall, there will we be to uplift. Self-sacrifice means not indifference to our times and our fellows. It means absorption in them. It means forgetfulness of self in others. It means entering into every person's hopes and fears, longings and despairs.
 
 It means many-sidedness of spirit, multi-form activity, multiplicity of sympathies. It means not that we should live one life, but a thousand lives, binding ourselves to a thousand souls by the filaments of so loving a sympathy that their lives become ours. So first, practical implication, infinite comfort in the face of suffering.
+
+### A Hope Both Realistic and Certain
 
 Second, powerful conviction to serve others to the point of vulnerability, to get involved, to come down. But lastly, Christmas gives us a hope that is both realistic, realistic, and at the same time, infallible. Look at this, the rest of the passage, I mean, I've just spent the whole time just on the word became flesh, but it says, and made his dwelling among us.
 
@@ -181,6 +191,8 @@ And that means that even though we're realistic, we know there's a lot that's wr
 And what realisticness — you see how realistic that is? Much more realistic than the person who's living in the ideal world but far more idealistic and hopeful than the person who's living in the real world.
 
 You know, in that play there's a woman named Aldonza who's a prostitute, and Don Quixote treats her as if she's a queen, royalty. And at first she's angry about it, but then in the end she's moved by it, and she embraces it, even though she's not — she's going to live as if she's royalty even though she's not.
+
+### Closing Prayer
 
 But look at — you might be literally an Aldonza. You might be here today, you know, and you might be a prostitute, and I want you to know, if you believe in Jesus Christ, he embraces you. You can be literal royalty. Real royalty. You know, when all the kings and queens of all the great royal lines in this — on the earth — are all forgotten, you will be ruling and reigning with him. Because, see, he's punched a hole between the real and the ideal. We have realistic and infallible royalty in the name of Jesus Christ. We have realistic and infallible royalty. Christ the Savior is born.
 

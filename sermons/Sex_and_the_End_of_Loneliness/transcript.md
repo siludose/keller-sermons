@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel in Life. During January, we're inviting our listeners to consider becoming a Gospel in Life monthly partner. Monthly partners are an important part in helping us to plan for how we can be the most effective in reaching people all over the world with the gospel.
 
 If you'd like to become a monthly partner, just visit gospelinlife.com slash partner. That's gospelinlife.com slash partner. What comes to mind when you hear about the Ten Commandments?
@@ -19,6 +21,8 @@ Do you not know that your body is a temple of the Holy Spirit who is in you, who
 Therefore honor God with your body. Now for the matters you wrote about, it's good for a man not to marry, but since there's much immorality, each man should have his own wife and each woman her own husband. The husband should fulfill his marital duty to his wife and likewise the wife to her husband, for the wife's body does not belong to her, but to her husband.
 
 And in the same way the husband's body does not belong to him, but to his wife. Do not deprive each other except by mutual consent and only for a time so that you may devote yourselves perhaps to prayer, but then come together again so that Satan will not tempt you because of your lack of self-control. Here ends the reading of God's word.
+
+### Christianity's Radical Sexual Ethic
 
 People have been waiting for this for weeks. They continually say, with that view of sex that you have, they say to me, with that view of sex that you have, I can't wait till you start preaching about it in New York. Listen, the early Romans, when Christianity was first bursting onto the scene, the early Romans were amazed and astounded about Christianity in two particulars.
 

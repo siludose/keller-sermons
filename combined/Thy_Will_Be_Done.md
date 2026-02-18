@@ -6,7 +6,7 @@
 
 ---
 
-## 祷告的真正目的不是向神索取
+## 祷告的真正目的不是向神索取 / The True Purpose of Prayer Is Not to Get Things from God
 
 Welcome to Gospel in Life. What is holding you back from truly trusting in God?
 
@@ -54,7 +54,7 @@ And therefore, if the heart leaves its true orbit of centering everything on God
 
 ---
 
-## 先接受再祈求的祷告次序
+## 先接受再祈求的祷告次序 / Accept First, Then Ask: The Order of Prayer
 
 That's the point of prayer. When we say the point of prayer is to return us to our true orbit, we do not mean that in prayer we simply affirm that God is central or we just say that God is central. But in prayer, you actually make him central.
 
@@ -80,7 +80,7 @@ And then secondly, we're able to say, give us this day our daily bread. Or put i
 
 ---
 
-## 保罗的祷告：为内在生命祈求
+## 保罗的祷告：为内在生命祈求 / Paul's Prayers: Praying for the Inner Life
 
 You may not start asking about your specific needs until you've brought all of climax and you're able to say to God, I submit right now to your lordship, and every disposal of your will. Then you may go and talk about the provision. So there's an order here. And the order must be obeyed. The order must be honored, or you rip up the fabric of prayer.
 
@@ -93,10 +93,6 @@ First accepting, then asking. Look, let's apply it. Number one, accepting.
 What does it mean to pray, thy will be done? You can't get to give us this day our daily bread. You can't get to deliver us from evil. You can't start praying for the things you want and for protection from the things that you fear until you first hit, thy will. thy will be done.
 
 What does it mean to pray that? Well, let me give you two case studies. First case study is Paul. And Paul is a terrific case study. If you look up every place that Paul prays for his friends, you will find something absolutely remarkable. In the book of Philippians, he prays in chapter one. In the book of Colossians, he prays in chapter one.
-
-In the book of Ephesians, he prays in chapter one and chapter three. So you have four prayers. Go look and see how he prays for his friends. And you will see a subliminal prayer. He prays in a surprising absence of any prayer for relief from troubles, for healing, for overcoming problems, for happiness. You don't see him praying for that.
-
-Instead, he prays in the greatest detail. He prays for spiritual insight and an overwhelming sense of the grandeur and glory of God and a transforming, vivid faith. That's what he wants more than anything else for his friends. And he leaves out all the other things that surely must have been there. Even plaguing them. He doesn't even mention them. Why?
 
 ---
 
@@ -114,21 +110,17 @@ Instead, he prays in the greatest detail. He prays for spiritual insight and an 
 
 ---
 
-## 认知疗法的属灵启示
+## 认知疗法的属灵启示 / The Spiritual Insight of Cognitive Therapy
+
+In the book of Ephesians, he prays in chapter one and chapter three. So you have four prayers. Go look and see how he prays for his friends. And you will see a subliminal prayer. He prays in a surprising absence of any prayer for relief from troubles, for healing, for overcoming problems, for happiness. You don't see him praying for that.
+
+Instead, he prays in the greatest detail. He prays for spiritual insight and an overwhelming sense of the grandeur and glory of God and a transforming, vivid faith. That's what he wants more than anything else for his friends. And he leaves out all the other things that surely must have been there. Even plaguing them. He doesn't even mention them. Why?
 
 Here's why. We're all obsessed with this idea that the main reason we're unhappy is because of things outside of us. That is a presupposition. That is a premise. That is an unconscious assumption.
 
 That the main reason we are unhappy is because of certain conditions on the outside of us that are making us unhappy. And therefore, we become obsessed with changing those conditions. and everything will be fine if that happens. That's not true, though, because Paul and Jesus, Jesus right here, and Paul in his prayers are constantly saying what you really need is for a change inside. You need above everything else. Your real problem is a lack of enjoying God, a lack of love for God, a lack of understanding God. Your real problems come from an internal condition, not an external condition.
 
 Now, you know, what's interesting to me is that there's a particular school of therapy, of counseling, and some of you, I'm sure, are aware of professionally. You might use it, and some of you may have been used on may have read about it. It's an area called cognitive therapy, and in cognitive therapy, this is a very helpful insight. Cognitive therapy will come to a person and say, the reason that you're unhappy is not because of things outside of you, but because of your response to those things.
-
-And so, for example, a cognitive therapist will talk to Mr. Jones, and Mr. Jones says, I have an ulcer, and the reason I have an ulcer is my wife. And you sit down, a good cognitive therapist will say, well, no wonder you feel so helpless and hopeless because you can't change your wife, and that's why you have an ulcer.
-
-But that's not true, Mr. Jones. Mr. Jones, I know another man named Mr. Smith. And he says, I have an ulcer. And Mr.
-
-Smith has a wife just like your wife and has a temperament just like your temperament, and therefore you kind of rub each other wrong all in the same way. But Mr. Smith forgives his wife, and he doesn't have an ulcer.
-
-And so, the cognitive therapist would say, don't you see that the cause of the ulcer is not your wife, but your response to your wife? The cause of the ulcer is not your external circumstance, but your internal response. Now, that's what a good cognitive therapist will do, and it's actually pretty effective. It's a bit of a mental trick in some ways, but it's helpful.
 
 ---
 
@@ -144,7 +136,15 @@ And so, the cognitive therapist would say, don't you see that the cause of the u
 
 ---
 
-## 六岁孩子与两千万遗产
+## 六岁孩子与两千万遗产 / A Six-Year-Old and a Twenty-Million-Dollar Inheritance
+
+And so, for example, a cognitive therapist will talk to Mr. Jones, and Mr. Jones says, I have an ulcer, and the reason I have an ulcer is my wife. And you sit down, a good cognitive therapist will say, well, no wonder you feel so helpless and hopeless because you can't change your wife, and that's why you have an ulcer.
+
+But that's not true, Mr. Jones. Mr. Jones, I know another man named Mr. Smith. And he says, I have an ulcer. And Mr.
+
+Smith has a wife just like your wife and has a temperament just like your temperament, and therefore you kind of rub each other wrong all in the same way. But Mr. Smith forgives his wife, and he doesn't have an ulcer.
+
+And so, the cognitive therapist would say, don't you see that the cause of the ulcer is not your wife, but your response to your wife? The cause of the ulcer is not your external circumstance, but your internal response. Now, that's what a good cognitive therapist will do, and it's actually pretty effective. It's a bit of a mental trick in some ways, but it's helpful.
 
 But there's a spiritual application of that. That's a mirror, I think, just a dim reflection of what Paul is saying, what Jesus Christ is saying right here. The reason that they're always praying in a certain way for the inside is because we also are obsessed with what we think is really making us unhappy on the outside.
 
@@ -161,18 +161,6 @@ Let me tell you. I just got this in the mail. Let me tell you, you have just inh
 And what does the six-year-old do? The six-year-old say, oh, $20 million. Who cares about the truck?
 
 No, that's not what a six-year-old does. He's a child. A six-year-old doesn't have the cognitive ability to understand that. And all the six-year-old does is say, who cares about $20 million?
-
-I don't have my truck. And I won't be happy until I get a new truck. And of course, when you look at the child, you know that the real problem with a child is not the truck or a lack of a truck. The real problem is this child does not realize his true condition. And if he had the mental apparatus, if he had the cognitive development, if he was capable of the formal logical operations or whatever it takes for that child to be able to grasp what $20 million will mean to him and how much more important it is to him, and how much more important it is to him, than that truck. If he had that, he'd be fine. If he realized his condition, if he had a perspective, a realistic perspective, if he was in touch with reality, but a child is not.
-
-And yet, my dear friends, are there any of you who have received Christ as Savior, and you know you've been adopted into the kingdom, and you know you're a partaker of the divine nature, and you know you're going to rule and reign with him forever, and yet your financial problem or relationship problem is going to be a problem. Is absolutely and utterly destroying your happiness. And you look and say, what good is it to be a Christian?
-
-Or you don't maybe admit that consciously, but unconsciously it's working down there. You are in the exact same condition as that six-year-old child. And we'll say this, Paul was right.
-
-Jesus was right. It's not having that financial thing work out or that relationship thing work out. It's that you don't realize your condition. You don't realize who you are and what you've got in him.
-
-And that's why Paul is constantly praying for your inner man to be strengthened so you may grasp the heights and the width and the breadth and the depth and be filled with all the fullness of God. Paul knows. Jesus knows. Even Shakespeare knew. Because he had Julius Caesar say, the fault, dear Brutus, is not in our stars. It's in ourselves. The fault, dear Brutus, is not in our external circumstances.
-
-Don't run off to give us this day our daily bread until you've dealt with the fact of who God is to you. Now, that's Paul's case study, but let me give you another case study. Paul's prayers are a perfect case of praying, thy will be done, praying, get into God, and then, then, and then only can you start talking about daily bread.
 
 ---
 
@@ -204,7 +192,19 @@ Don't run off to give us this day our daily bread until you've dealt with the fa
 
 ---
 
-## 客西马尼园：耶稣的顺服
+## 客西马尼园：耶稣的顺服 / Gethsemane: Jesus' Submission
+
+I don't have my truck. And I won't be happy until I get a new truck. And of course, when you look at the child, you know that the real problem with a child is not the truck or a lack of a truck. The real problem is this child does not realize his true condition. And if he had the mental apparatus, if he had the cognitive development, if he was capable of the formal logical operations or whatever it takes for that child to be able to grasp what $20 million will mean to him and how much more important it is to him, and how much more important it is to him, than that truck. If he had that, he'd be fine. If he realized his condition, if he had a perspective, a realistic perspective, if he was in touch with reality, but a child is not.
+
+And yet, my dear friends, are there any of you who have received Christ as Savior, and you know you've been adopted into the kingdom, and you know you're a partaker of the divine nature, and you know you're going to rule and reign with him forever, and yet your financial problem or relationship problem is going to be a problem. Is absolutely and utterly destroying your happiness. And you look and say, what good is it to be a Christian?
+
+Or you don't maybe admit that consciously, but unconsciously it's working down there. You are in the exact same condition as that six-year-old child. And we'll say this, Paul was right.
+
+Jesus was right. It's not having that financial thing work out or that relationship thing work out. It's that you don't realize your condition. You don't realize who you are and what you've got in him.
+
+And that's why Paul is constantly praying for your inner man to be strengthened so you may grasp the heights and the width and the breadth and the depth and be filled with all the fullness of God. Paul knows. Jesus knows. Even Shakespeare knew. Because he had Julius Caesar say, the fault, dear Brutus, is not in our stars. It's in ourselves. The fault, dear Brutus, is not in our external circumstances.
+
+Don't run off to give us this day our daily bread until you've dealt with the fact of who God is to you. Now, that's Paul's case study, but let me give you another case study. Paul's prayers are a perfect case of praying, thy will be done, praying, get into God, and then, then, and then only can you start talking about daily bread.
 
 Let me give you another case. The ultimate case study of someone who prayed, thy will be done, is who?
 
@@ -229,14 +229,6 @@ And he began to sweat blood out of his pores. And you know, when he began to swe
 We don't know. But in the face of that, Jesus Christ looks up to the Father and says, Father, I would like out of this. Father, I'm beginning to taste the cup. I'm in shock. I'm amazed at what this is going to be like. And if there's some way out of it, I want out of it.
 
 But then he immediately says, nevertheless, and it's very clear, that word nevertheless shows that there's a premise that Jesus Christ is operating on. It's something that was already a given. Nevertheless, as we've always had it, not my will, but thine be done. And you know what Jesus is saying?
-
-He's saying, Father, I would like you to get me out of this. But I also know that if it's not possible, I know that you will bring inestimable blessing and goodness out of this. Not my will, but thine be done.
-
-What did it cost Jesus to say, not my will, but thine be done? What did it cost him?
-
-I'll never know. But I do know this, and this is what's staggering. In Jesus' case, Jesus was facing mind-blowing horror. Nobody in this room will ever come anywhere close to that. No human being has ever been anywhere near that. Nobody else ever paid such an incredible dear price, nor ever will pay such an incredible price to say, thine will be done.
-
-And yet in Jesus' case, who paid the greatest price of all to say it, it was worth it. To believe. But it was worth it. Because those several hours of absolutely staggering and mind-blowing pain resulted in a glorious deliverance and a new redeemed world that will last forever.
 
 ---
 
@@ -279,7 +271,15 @@ And yet in Jesus' case, who paid the greatest price of all to say it, it was wor
 
 ---
 
-## 马思逊的诗歌：凡人的顺服
+## 马思逊的诗歌：凡人的顺服 / George Matheson's Hymn: A Mortal's Submission
+
+He's saying, Father, I would like you to get me out of this. But I also know that if it's not possible, I know that you will bring inestimable blessing and goodness out of this. Not my will, but thine be done.
+
+What did it cost Jesus to say, not my will, but thine be done? What did it cost him?
+
+I'll never know. But I do know this, and this is what's staggering. In Jesus' case, Jesus was facing mind-blowing horror. Nobody in this room will ever come anywhere close to that. No human being has ever been anywhere near that. Nobody else ever paid such an incredible dear price, nor ever will pay such an incredible price to say, thine will be done.
+
+And yet in Jesus' case, who paid the greatest price of all to say it, it was worth it. To believe. But it was worth it. Because those several hours of absolutely staggering and mind-blowing pain resulted in a glorious deliverance and a new redeemed world that will last forever.
 
 That's what it cost Jesus Christ to say, thy will be done. Now somebody says, so what?
 
@@ -308,22 +308,6 @@ I give you back the life I owe.
 Secondly, he says, all I have to do is find the second one. Then he starts talking about a love that will not let me go. That's amazing.
 
 The second thing he decides to do is after he says, I owe you my life, then the second thing he says is, I am not just knuckling under to your strength. There's a lot of people who think to pray thy will be done simply means, oh, I'm not going to do that. I'm not going to do that. Okay, what choice have I got?
-
-I knuckle under to your will. Because what else can I do?
-
-That's resignation. That is not acceptance. And what George Matheson does right here is he says, I see everything that you do in my life as part of your loving purposes. I see that you have, you are a loving God, and I see it's the only love that will not reject me, even if I'm blind, even if I go deaf. Even if no matter what happens to me, I will build my life on the only love that I know will last.
-
-And then thirdly, he says this, I lay in the dust life's glory dead, and from the ground there blossoms red life that shall endless be. And the third thing he realizes in praying thy will be done, third thing he does is he says, I'm taking life's glory and I lay it in the dust dead. Now, what does that mean?
-
-What he's talking about is the relationship, the fame, the money, the status, the popularity, the recognition, all the things that you desperately want, that I desperately want, and that he desperately wanted, and that God seemed to be just pulling away. And what he does is he says, no, instead of grabbing onto these things, I lay them in the dust. And he says, there blossoms red life that shall endless be. Like Jesus Christ, George Matheson decided not to scream, and yell, but to say, Lord, if I have to give these things up, if I have to lay these things down in the dust, all I know is that somehow you will work something out of them that would not have happened if I hadn't given them to you. Somehow, if I give these things to you, you'll bring a miracle out of it. You'll bring redemption out of it, like you did out of Jesus when he laid his life down. Somehow, I know that if I die, there'll be a resurrection.
-
-Somehow, I realize that if I lay life's glory down in the dust, it will blossom. And only then will it blossom. My desire for recognition, my desire for the money, my desire for the popularity, my desire for these things that you seem to be pulling out from under me, I say, thy will be done. I lay them down there. I give it to you.
-
-I don't scream anymore about my suffering. I give you my suffering, and I know you'll transform it. And in George Matheson's case, what happened was he became a heart much deeper, much more sensitive, much more loving, much more wise than it ever would have been, and it touched many people through ministry. That was his case. What's your case?
-
-You know, everybody, every one of us, has got these cups. Little cups. They're not like Jesus' cup. Nobody here will be asked to take Jesus' cup and pray thy will be done in front of that.
-
-But what I want to know is how you're handling your little cups. And some of you are right. My friends here, I mean, I got to move on to asking. I got to get done with accepting here. Friends, listen. Some of you are saying, if he just told me why, if I just knew why, it would be all right. If I just knew that.
 
 ---
 
@@ -367,25 +351,21 @@ But what I want to know is how you're handling your little cups. And some of you
 
 ---
 
-## 苦难会改变你，却不会让你原地不动
+## 苦难会改变你，却不会让你原地不动 / Suffering Will Change You, but It Won't Leave You Where You Are
 
-And don't you see that if you knew why, it wouldn't be submission anymore? It wouldn't be obedience anymore?
+I knuckle under to your will. Because what else can I do?
 
-Do you know if he told you why, then you'd say, oh, now I see why. And you would move on 'd stay in control of your life, and you'd stay your own little king. Suffering in your life will either make you, like George Matheson, you can either give it to God, submit to it, see his loving purposes in it, give it to him. Willingly, if you do that, suffering will make you into someone far greater than you are now, or else it will turn you into something far more shriveled and angry and bitter and sad than you are now, but it will not keep you the same. Any cup that comes into your life will either make you a far greater or far worse person. It will not keep you the same. Do you see where you are?
+That's resignation. That is not acceptance. And what George Matheson does right here is he says, I see everything that you do in my life as part of your loving purposes. I see that you have, you are a loving God, and I see it's the only love that will not reject me, even if I'm blind, even if I go deaf. Even if no matter what happens to me, I will build my life on the only love that I know will last.
 
-And the power of the cross in the life of the Christian is not exemption from suffering, but the ability to have the power of the cross in the life of the Christian. Have it transformed into something that will change you and change all the people around you if you give God the suffering. If you say, thy will be done, oh, love that will not let me go, I lay in the dust, life's glory dead, and there expect to see it blossom red with life that shall endless be.
+And then thirdly, he says this, I lay in the dust life's glory dead, and from the ground there blossoms red life that shall endless be. And the third thing he realizes in praying thy will be done, third thing he does is he says, I'm taking life's glory and I lay it in the dust dead. Now, what does that mean?
 
-How are you doing at praying thy will be done? You say, I can't do it. Well, look at Jesus.
+What he's talking about is the relationship, the fame, the money, the status, the popularity, the recognition, all the things that you desperately want, that I desperately want, and that he desperately wanted, and that God seemed to be just pulling away. And what he does is he says, no, instead of grabbing onto these things, I lay them in the dust. And he says, there blossoms red life that shall endless be. Like Jesus Christ, George Matheson decided not to scream, and yell, but to say, Lord, if I have to give these things up, if I have to lay these things down in the dust, all I know is that somehow you will work something out of them that would not have happened if I hadn't given them to you. Somehow, if I give these things to you, you'll bring a miracle out of it. You'll bring redemption out of it, like you did out of Jesus when he laid his life down. Somehow, I know that if I die, there'll be a resurrection.
 
-Look at him. He was down there, and you have to say, look, it's Jesus Christ who didn't deserve what he went through, and look, under those circumstances, he trusted his sovereign father to bring good out of it. If it happened to him, I can do it too. If he suffered like that for me, so much, I can suffer my little bit for him. Go to him. Say, thy will be done.
+Somehow, I realize that if I lay life's glory down in the dust, it will blossom. And only then will it blossom. My desire for recognition, my desire for the money, my desire for the popularity, my desire for these things that you seem to be pulling out from under me, I say, thy will be done. I lay them down there. I give it to you.
 
-Now, the second thing, as we said, is if you accept, you can go and ask. If you say, thy will be done, you can go and ask. And the Bible, listen, at this point, if you believe that the Lord's prayer is encouraging passivity, you're all wrong.
+I don't scream anymore about my suffering. I give you my suffering, and I know you'll transform it. And in George Matheson's case, what happened was he became a heart much deeper, much more sensitive, much more loving, much more wise than it ever would have been, and it touched many people through ministry. That was his case. What's your case?
 
-See, here's Jesus telling you, say, thy will be done. Submit to whatever I give you. And a lot of people would say, hey, that means be passive. Just sit back and say, okay, hit me again. I'm still breathing. You know, Lord, that's what prayer is. You just come and say, Lord, I don't care.
-
-Just do it. It doesn't matter to me. Everything will be fine with me. As soon as you think that Jesus is saying that prayer should be a passive thing, he turns right to you. And says, give us this day our daily bread. That means anything, no matter how basic, no matter how specific, no matter how detailed, be direct. Go after him constantly.
-
-Ask for everything. You see, the Bible teaches, the Bible teaches, God says, if you pray to me, I will give you astonishing things. I will give you mind-numbing things. I will do all kinds of things for you. You've got the place. You've got the promise in Luke where it says, ask and it will be given to you. Seek and you will find.
+You know, everybody, every one of us, has got these cups. Little cups. They're not like Jesus' cup. Nobody here will be asked to take Jesus' cup and pray thy will be done in front of that.
 
 ---
 
@@ -405,27 +385,33 @@ Ask for everything. You see, the Bible teaches, the Bible teaches, God says, if 
 
 ---
 
-## 祷告不是被动，而是主动祈求
+## 祷告不是被动，而是主动祈求 / Prayer Is Not Passive but Active Asking
+
+But what I want to know is how you're handling your little cups. And some of you are right. My friends here, I mean, I got to move on to asking. I got to get done with accepting here. Friends, listen. Some of you are saying, if he just told me why, if I just knew why, it would be all right. If I just knew that.
+
+And don't you see that if you knew why, it wouldn't be submission anymore? It wouldn't be obedience anymore?
+
+Do you know if he told you why, then you'd say, oh, now I see why. And you would move on 'd stay in control of your life, and you'd stay your own little king. Suffering in your life will either make you, like George Matheson, you can either give it to God, submit to it, see his loving purposes in it, give it to him. Willingly, if you do that, suffering will make you into someone far greater than you are now, or else it will turn you into something far more shriveled and angry and bitter and sad than you are now, but it will not keep you the same. Any cup that comes into your life will either make you a far greater or far worse person. It will not keep you the same. Do you see where you are?
+
+And the power of the cross in the life of the Christian is not exemption from suffering, but the ability to have the power of the cross in the life of the Christian. Have it transformed into something that will change you and change all the people around you if you give God the suffering. If you say, thy will be done, oh, love that will not let me go, I lay in the dust, life's glory dead, and there expect to see it blossom red with life that shall endless be.
+
+How are you doing at praying thy will be done? You say, I can't do it. Well, look at Jesus.
+
+Look at him. He was down there, and you have to say, look, it's Jesus Christ who didn't deserve what he went through, and look, under those circumstances, he trusted his sovereign father to bring good out of it. If it happened to him, I can do it too. If he suffered like that for me, so much, I can suffer my little bit for him. Go to him. Say, thy will be done.
+
+Now, the second thing, as we said, is if you accept, you can go and ask. If you say, thy will be done, you can go and ask. And the Bible, listen, at this point, if you believe that the Lord's prayer is encouraging passivity, you're all wrong.
+
+See, here's Jesus telling you, say, thy will be done. Submit to whatever I give you. And a lot of people would say, hey, that means be passive. Just sit back and say, okay, hit me again. I'm still breathing. You know, Lord, that's what prayer is. You just come and say, Lord, I don't care.
+
+Just do it. It doesn't matter to me. Everything will be fine with me. As soon as you think that Jesus is saying that prayer should be a passive thing, he turns right to you. And says, give us this day our daily bread. That means anything, no matter how basic, no matter how specific, no matter how detailed, be direct. Go after him constantly.
+
+Ask for everything. You see, the Bible teaches, the Bible teaches, God says, if you pray to me, I will give you astonishing things. I will give you mind-numbing things. I will do all kinds of things for you. You've got the place. You've got the promise in Luke where it says, ask and it will be given to you. Seek and you will find.
 
 Knock and it will be opened to you. You've got Isaiah 65. It says, before they ask, I will answer. Before they ask, I will answer.
 
 That's a picture of God like a father running up with a present already in his hand behind his back. Just can't wait for his kid to ask him for something. It's an amazing statement. And what God actually is doing, in the Bible, is he says, prayer is a way to rebel against the status quo.
 
 There's this fascinating place in John chapter 14 where Jesus says this, anyone who has faith in me will do what I am doing and he will do even greater things than these because I am going to the Father and I will do whatever you ask in my name so that the Son may bring glory to the Father. You know what kind of claim that is?
-
-He is saying, I'm going to the Father and I'm going to say, I'm going to the Father and I'm going to say, I'm going to the right hand and I'm going to begin to spread his kingdom. God hates oppression and poverty. God hates pain and suffering. God hates conflict and strife. And I'm going to spread the kingdom through my power and my word and my spirit. And I want to spread the kingdom.
-
-I want to release my kingdom power into the world through your prayers. You see things that you know God hates. You see things that are the consequence of evil and sin. God's, Jesus Christ's power is released through your prayers.
-
-That's the setup. However, having said that, you have to remember that this incredible powerful thing called prayer is being put into the hands of children. Our Father who art in heaven, Jesus is teaching us, reminding us that we are children. And whenever you put a weapon like that in the hands of children, any very, very wise father will put on it a safety catch. And you know what?
-
-It's a safety catch. Do you know what the safety catch is?
-
-The safety catch is God will never give you something you ask for that's bad for you. Let me give you an example, another children's example. Why?
-
-Because prayer is a family issue. God, Jesus Christ demands that when you pray, you go to him as father. Imagine that you see a child, you're a parent and you come to see a child and the child wants to start to light some firecrackers. And you say, hey, this is dangerous. I've seen children whose hands have been blown off with firecrackers. We're not going to do it.
-
-But I understand what your problem is. You're bored. And it's a, you know, you don't have anything else to do. And if you just forget the firecrackers, come with me and I can take you someplace that'll be so great.
 
 ---
 
@@ -460,7 +446,21 @@ But I understand what your problem is. You're bored. And it's a, you know, you d
 
 ---
 
-## 祷告的保险装置
+## 祷告的保险装置 / The Safety Mechanism of Prayer
+
+He is saying, I'm going to the Father and I'm going to say, I'm going to the Father and I'm going to say, I'm going to the right hand and I'm going to begin to spread his kingdom. God hates oppression and poverty. God hates pain and suffering. God hates conflict and strife. And I'm going to spread the kingdom through my power and my word and my spirit. And I want to spread the kingdom.
+
+I want to release my kingdom power into the world through your prayers. You see things that you know God hates. You see things that are the consequence of evil and sin. God's, Jesus Christ's power is released through your prayers.
+
+That's the setup. However, having said that, you have to remember that this incredible powerful thing called prayer is being put into the hands of children. Our Father who art in heaven, Jesus is teaching us, reminding us that we are children. And whenever you put a weapon like that in the hands of children, any very, very wise father will put on it a safety catch. And you know what?
+
+It's a safety catch. Do you know what the safety catch is?
+
+The safety catch is God will never give you something you ask for that's bad for you. Let me give you an example, another children's example. Why?
+
+Because prayer is a family issue. God, Jesus Christ demands that when you pray, you go to him as father. Imagine that you see a child, you're a parent and you come to see a child and the child wants to start to light some firecrackers. And you say, hey, this is dangerous. I've seen children whose hands have been blown off with firecrackers. We're not going to do it.
+
+But I understand what your problem is. You're bored. And it's a, you know, you don't have anything else to do. And if you just forget the firecrackers, come with me and I can take you someplace that'll be so great.
 
 So much more fun than the firecrackers and safe too. And what does the child say?
 
@@ -483,12 +483,6 @@ And so in that sense, he'll, he'll answer it. And that is very important to see,
 That's a simple one. You say, ah, it's so easy to see how the safety catch worked there. It's so easy to see that he was responding to my need, but not giving me the item.
 
 Well, it's not nearly as easy to see in other situations. But that's the point. And that's what the safety catch is. Do you believe that?
-
-I don't know where you, I don't know where you're coming from, but it may be right now. There's things going on in your life like that. Why doesn't God answer your heartfelt prayer?
-
-This isn't the right time. And it may never be the right time, but I'll tell you this much. You're a child. He's a father.
-
-That's the whole issue of prayer. And I know this, and you know, this, if you've ever been around children, children almost every day ask for things. Almost every hour ask for things that are wrong for them. Almost every hour. It's the nature of being children. And when you say no, they've got two possible things they can do. They're not going to understand.
 
 ---
 
@@ -533,7 +527,13 @@ That's the whole issue of prayer. And I know this, and you know, this, if you've
 
 ---
 
-## 做最亲近父心的孩子
+## 做最亲近父心的孩子 / Being the Child Closest to the Father's Heart
+
+I don't know where you, I don't know where you're coming from, but it may be right now. There's things going on in your life like that. Why doesn't God answer your heartfelt prayer?
+
+This isn't the right time. And it may never be the right time, but I'll tell you this much. You're a child. He's a father.
+
+That's the whole issue of prayer. And I know this, and you know, this, if you've ever been around children, children almost every day ask for things. Almost every hour ask for things that are wrong for them. Almost every hour. It's the nature of being children. And when you say no, they've got two possible things they can do. They're not going to understand.
 
 They don't have the wisdom. They don't have the ability to understand why not. They can either say, all right, all I know is that my dad loves me and that when I obey him, generally it works out.
 
@@ -581,7 +581,7 @@ So I'll trust you because they're not kids anymore. They're on their way to adul
 
 ---
 
-## 雅各的摔跤：唯有降服方能得胜
+## 雅各的摔跤：唯有降服方能得胜 / Jacob's Wrestling: Only in Surrender Can You Prevail
 
 But I know that if I don't get the item I asked for, I don't expect an explanation because I know how crazy it is to try to give a lecture on electricity. You do a two-year-old is who I'm trying to pull away from the outlet. He can't understand.
 
@@ -672,7 +672,7 @@ What Jesus Christ is saying is, I love you. Surrender to me. Lay down your arms.
 
 ---
 
-## 结束祷告
+## 结束祷告 / Closing Prayer
 
 The way to lose your life is to find it. The way to find your life is to lose it. And the way to the crown is by the cross.
 

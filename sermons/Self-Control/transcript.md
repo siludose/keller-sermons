@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel in Life. The Bible says there's a world of difference between a will-power-driven heart and a supernaturally-changed one. Today, Tim Keller is unpacking one of the fruit of the Spirit, helping us see what it means to move from trying to be good to truly changing from the inside out.
 
 Tonight's Scripture reading is found on page 8 in your bulletin, and it comes from 1st Corinthians 9 and 10. I do all this for the sake of the Gospel that I may share in its blessings. Do you not know that in a race all the runners run, but only one gets the prize.
@@ -23,6 +25,8 @@ And literally, that's just a way the translators paraphrased or rendered a phras
 It's the word ego crottia, which means ego, ego, self-crottia, command. Self-control is self-command. And actually it's a synonym for being free because if you're not self-controlled, then you're out of control.
 
 If you're out of control, then you're a slave to some other forces. And so to be free and to be self-controlled is the same thing. And Paul is using this illustration of the athlete preparing for a game to compete in the game to get across the biblical understanding of self-control.
+
+### Our Universal Problem with Self-Control
 
 Now we need this because we are not in control. We have trouble controlling our tongues. We have trouble controlling our thoughts.
 
@@ -48,6 +52,8 @@ You might want to sleep in, but you have to get up to exercise. You might want t
 
 So you get the prize. Now, that's the illustration he uses to talk about spiritual self-control and it's telling. Because let me give you two alternate approaches to virtue.
 
+### Two Flawed Approaches to Virtue
+
 There's an ancient approach. It was the Greek idea, but it's still with us, that the body is bad and the spirit is good. And because the body, the Greeks thought, was the source of emotions.
 
 And the mind was the source of your logic and your rationality. Therefore, virtue was considered, self-control was considered, the mind over the emotions. Do the logical thing, do the rational thing, and control and suppress your emotions because your emotions are your lower nature.
@@ -59,6 +65,8 @@ See, the modern idea says, don't do self-control, do self-discovery. Get in touc
 You find what you feel is right and wrong, what you feel you want to do, and you do it. So, get in touch with your feelings, express your feelings. That's the virtuous ideal.
 
 And by the way, if you want an example of these two alternate competing approaches, just go watch Star Trek on TV because if you take the older Star Trek with Spock, you have the traditional approach because he was always trying to suppress his emotions. But if you go into the next TV series with data, he was always trying to express his emotions because there you have the older and the ancient traditional and the modern post-modern approach to emotions and what you're supposed to do with them. But the Bible says neither.
+
+### One Passion Ordering All Others
 
 And here's the reason why. First of all, think of the athlete. Where is the self-control coming from?
 
@@ -96,7 +104,11 @@ You want a career? You want a family? So you want success, but you also want rel
 
 And the fact is, if you want to totally be committed to your career and totally be committed to success and glory, that actually gets in the way of even nurturing a prospective marriage partner in a relationship. Certainly gets in the way of nurturing an actual marriage and nurturing your family. And the fact is, you can never be as successful as you would be if you just forgot about relationships and you can never be as strong in your relationships.
 
-If you just go whole hog on your career, these things are at locker heads and you're going to have to choose. Often, you're going to have to choose. Now, San Augustan years ago, obviously since he's been dead a long time, San Augustan once said that sin is disordered love.
+If you just go whole hog on your career, these things are at locker heads and you're going to have to choose. Often, you're going to have to choose.
+
+### Disordered Love and Rightly Ordering Desires
+
+Now, San Augustan years ago, obviously since he's been dead a long time, San Augustan once said that sin is disordered love.
 
 That's a brilliant understanding of what the Bible teaches. Sin is disordered love. It's loving things out of order.
 
@@ -124,6 +136,8 @@ And yet, of course, because they have this, as Paul says, their goal is a crown 
 
 You know, destructive perfectionism, fears, anger, everything. Paul saying, if you love the supreme thing supremely, if you seek the crown that will last forever, then everything in your life, if you're able to get your heart fully and supremely rested in that, everything else in your life will start to come together. Well, so that leads us to this question.
 
+### The Crown That Lasts Forever
+
 What is that crown that will last forever? What is it? So in other words, how does this self-control really happen in our lives?
 
 And the answer is, it's not as simple as you think, because when you read that and you say, ah, you know, they run for a crown that will not last, but we run for a crown that will last forever, we say, oh, I know what that means. It's a heavenly crown. Paul's talking about his salvation that someday he's going to stand before God and God's going to say, well done, good and faithful that's what I'm carrying.
@@ -141,6 +155,8 @@ Each day of Advent, you'll receive a devotional with a meditation on a Bible pas
 Again, to sign up, go to gospelonlife.com slash Advent. In addition to the daily emails, you'll also receive a video message each Sunday. The weekly video message starts each week of Advent with a meditation from Tim Keller, followed by a brief discussion with Tim and Kathy talking about something they noticed in the meditation.
 
 It's our prayer that through this Advent series, you experience the hope and joy that comes from Christ's birth and that it is a source of encouragement to you this Advent season. Now here's Dr. Keller with the rest of today's teaching.
+
+### Embodying the Gospel as Life's Supreme Goal
 
 See, the goal that will give you self-control, by the way, I've been very convicted by this over the years. This is not what you might think. The goal that brings self-control, the Paul's talking about, this crown, is not just pleasing God, of course you're going to please God.
 
@@ -180,6 +196,8 @@ That's another good thing, but I can tell you, the only time I've ever really ru
 
 It's hard, so life is like a race. Paul says, and I'm in the race, but I'm trying to race in such a way that I get my crown. Well, you know what?
 
+### Jesus Ran the Race for Us
+
 Paul's not the only person that talks about life for us being a race. In the book of Hebrews, it also says life is like a race, but the book of Hebrews gives us the secret for how you can run in such a way that you're not disqualified. Because in Hebrews chapter 12, we read this, let us throw off everything that hinders and the sin that so easily entangles and let us run with endurance, the race that is marked out for us.
 
 How? Let us fix our eyes on Jesus, the author and finisher of our faith, who for the joy set before him endured the cross, scored its shame and sat down at the right hand of the throne of God. See what the book of Hebrews is saying?
@@ -217,6 +235,8 @@ That's beautiful. And that captures my imagination and that captures my heart. T
 See, our hearts are divided. That's how we don't have self-control. You knight my heart.
 
 And this will do it. Looking at the gospel, looking into the beauty and the love of the gospel and the grace of the gospel until it just becomes the over mastering passion of your life, that unites your life, unites your heart. And then you've got something that will bring every part of your life into control.
+
+### Three Practical Means of Growth
 
 I think I need to, you know, I know that if you stop here without any kind of practical guidelines, some people say, this is inspiring, but I'm not sure how to get my hands on it around it. At the very, the last three verses there, which I actually called out of chapter 10, which is a little further down in the text, there's actually three very practical things there that will help you, I think, see this kind of self-control grow. And here's what those three things are, the Bible, community, and trouble.
 

@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### The Turn to Pleasure
+
 Welcome to Gospel In Life. Have you ever found yourself asking, what if nothing I do really last? Is this all there is?
 
 In today's podcast, Tim Keller looks at how Ecclesiastes helps us face our doubts, fears, and uncertainties, and points us to the lasting hope and significance we have in Christ. The book of Ecclesiastes is very, very difficult, and I'm actually teaching it to try to give you overviews. I think if anybody says, oh, this is great, and it's just down to just read it through one time, you're just going to say, what in the world is this doing in the Bible?
@@ -162,6 +164,8 @@ Is it good feeling? Is it sensory pleasure? If you do that, you're not doing it 
 
 You're looking to get a life. You're looking to get a sense of worth wellness and it's going to fail. That's the second point.
 
+### Why Pleasure Fails
+
 The first point is what it promises, the second point he gives us and shows us is it fails and it explains why. Now, one of the things it's important to understand and boy, this is very powerful. This is not a regular guy.
 
 No, it isn't. First 10, I denied myself nothing, my eyes desired. Now what's that?
@@ -230,7 +234,11 @@ It gets a music we are born remembering. There's a music we're born remembering,
 
 Now, what is that? I believe that even though how do you prove it, I can prove it just by saying it. We know that this is true, that that sense of transcendence does not come through.
 
-As he said, the best marriage is the best career is the best houses, in fact, people who get to the very end of the road find it hasn't got their other ones that know the best. Those of us who don't have these wonderful pleasures, we're still in the avail of illusion we think, if only, no. Well, why would this be?
+As he said, the best marriage is the best career is the best houses, in fact, people who get to the very end of the road find it hasn't got their other ones that know the best. Those of us who don't have these wonderful pleasures, we're still in the avail of illusion we think, if only, no.
+
+### Eternity in Our Hearts
+
+Well, why would this be?
 
 Why isn't pleasure enough? Why do we want to go beyond? Well, here's the pointer in chapter three.
 
@@ -271,6 +279,8 @@ Let me keep pushing you. In the end, there's only two, see Christians, real Chri
 The difference between a Christian whose life has really been changed, and a religious person is this, religious people find God useful, instrumental, and Christians are people who have finally found them beautiful, who obey Him just because of who He is. Wouldn't care what else it brought them, just for the delight. You see, religious people and Christians, they share obedience, religious people and Christians may be desperate for God.
 
 They might be obedient to God, so they may have all sorts of awe and reverence to God, but the difference between a Christian and just a religious person and a nice person is that they find them useful, but Christians find them beautiful, that you come after Him and you seek Him and you obey Him because of the beauty of who He is. Has that been true of you? Have you experienced that?
+
+### The Beauty of the Gospel
 
 That's what real Christianity is. Well, somebody says, wow, how, how could that happen? Here's the answer.
 

@@ -72,6 +72,9 @@ And the dream, in the dream, he saw a tree that reached to the heavens, and it w
 
 And what's the purpose of all this? The voice says, and I quote, that the living may know that the most high is sovereign over kingdoms of the earth, and gives them to anyone he wishes and sets over them the loliest of men. Well, he's very upset, of course, so Nebuchadnezzar calls Daniel a man of God and says, Daniel, let me tell you the dream, tell me what it means.
 
+### The Dream and Its Warning
+
+
 And Daniel, the man of God, when he heard the dream, were told he went white, he blanched, he was terrified, and he says, and these are his words in verse 22, you, O King, are that tree? And God is coming to humble you, God is coming to cut you down, God is coming to show you that you are not a master of the universe, but that you are weak and you are loley and you live only by his will. So look it, and you see Daniel speaking at the top of this text that we read, he says, God is coming, he's coming to humble you, and he's concerning, he says, therefore, be pleased to listen to me.
 
 Change, turn, repent, humble yourself, and maybe this won't happen to you. But we're told that 12 months later, something did happen. But what do we learn here?
@@ -148,6 +151,9 @@ I don't deserve this, so I don't want it. I'm too awful. I'm a failure.
 
 I'm a bad person, so I don't want this and this and I don't want friends. I don't want joy. I don't want these things.
 
+### Hidden Forms of Pride
+
+
 That's just a reverse kind of pride, you see. What that is saying is I should earn it. I want to earn it and I won't take it if I haven't earned it and of course you're miserable and of course you're saying I don't deserve it but deep underneath it is still that sense of odeness.
 
 Real humility says, I don't deserve the good things in my life because if God gave me what I deserved, I'd be lost but look here they come. See humility has completely gotten rid of the whole concept of pride, the whole system of pride. Humility says, I couldn't possibly even begin to merit the good things that God's giving me my health, my mind, my friends.
@@ -221,6 +227,9 @@ Cats, animals have no imagination, and because they have no imagination, there's
 Animals cannot, as the Bible says, weak with those who weep and rejoice with those who rejoice. Can't do it. And pride is a cancer that eats that up in you too.
 
 You see, there's nothing, you're never more human than when you're compassionate. You're never more human than when you're able to sense what somebody else feels. But what is pride?
+
+### Pride as Self-Justification
+
 
 Pride is a way of justifying to yourself the control you have over your life. The only way to justify that is to be constantly saying, I deserve this, I'm owed this. And it's pride that makes you walk into a room, and I see this happen all the time.
 
@@ -297,6 +306,9 @@ He's talking about himself. He gets up and he says, I've learned when bad things
 And that is, Nebuchadnezzar realized, I deserve this. This shows me my fragility. This shows me who I am.
 
 And he lets the stroke humble him instead of harden him. That's the first thing. Then the second thing, he recognizes that all the things that before he thought were his by right, they've come back to him and he sees them all as a gift.
+
+### Restoration Through Humility
+
 
 You see his attitude, they were restored. My counselor still wanted to speak to me after all of that. See, now he sees everything as a gift because God only cut down the tree to the stump.
 

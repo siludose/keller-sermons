@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Scripture Reading and Introduction
+
 Welcome to Gospel and Life. How do we share what it means to truly know Jesus? Not just as a historical figure or moral teacher, but as Savior and King.
 
 This month, Tim Keller explores what the Bible shows us about being public with our faith and sharing the hope we have in Christ. Tonight's Scripture comes from a book of John. Chapter 4, verses 27 through 42.
@@ -33,6 +35,8 @@ Now what is that? What is he trying to get across in that metaphor? I want to de
 What is he talking about there? And I like to look at that under three headings. Jesus here actually gives us a call to spiritual sewing of seed and then he shows us in this passage the method of doing it, how to do it, and then thirdly the power or the inner motivation for doing it.
 
 So the call to it, the method of it, the power for it. Okay? Now let s first of all, let s look at the call to spiritual sewing of seed.
+
+### The Call to Spiritual Sowing
 
 What is this? Let me give you the context. What s happened right before this part?
 
@@ -85,6 +89,8 @@ This does not mean, by the way, that everybody who hears the gospel believes imm
 But what he's saying is in the past, John the Baptist, the prophets, they spoke enigmatically, vaguely about it, but now I'm here. It's clear the gospel message is here, and now it's got power. So today is the day of salvation.
 
 So that's the first thing we learn here. He's calling us the spiritual sowing in very powerful terms. If you're his disciple, if you follow him.
+
+### The Method: Transparency and Pointing to Jesus
 
 Well, that makes us a little bit nervous. What exactly is it that he's calling us to? What does this mean?
 
@@ -143,6 +149,8 @@ If you get to the level where you can be disclosing that, but you don't share th
 But the point is that it's unnatural, it's wrong. It's a lack of transparency. So, you don't have to learn a bunch of bullet points or get up on a box, you just have to stop being dishonest about how you make your decisions and how you deal with your issues.
 
 Just don't hide. Just don't hide. That's the first thing, personal transparency.
+
+### Christianity's Genius: Jesus Is the Way
 
 But the second thing, notice is this. She doesn't say, come to a seminar, come read a book, she says, come see a man. Now, I already said this.
 
@@ -204,7 +212,11 @@ But Christians don't believe that goodness gets them to heaven. In fact, the gen
 
 You can't avoid it. You have to be pointing to his beauty. You have to be pointing to him, and she understood that.
 
-And so there's the essence of what it means to be public with your faith. Just be transparent about what's going on in your heart, but you must talk about, you must refer to, you must point to Jesus. Now, this is New York City, and many of you who live here know that the 18 minutes that I've just spent are completely offensive to most New Yorkers.
+And so there's the essence of what it means to be public with your faith. Just be transparent about what's going on in your heart, but you must talk about, you must refer to, you must point to Jesus.
+
+### Why Public Faith Is Not Narrow
+
+Now, this is New York City, and many of you who live here know that the 18 minutes that I've just spent are completely offensive to most New Yorkers.
 
 Because most New Yorkers say this, it's all right for you as Christians to believe what you believe, but you should not convert people. You should not tell people that Christianity is better or truer than their beliefs and that they should change. You should not try to convert people.
 
@@ -292,6 +304,8 @@ Telling people don't make any truth claims when you actually are. That's just ir
 
 Nobody say that anybody is claiming to have the truth, which of course is the truth claim, which doesn't work at all. It just frustrates everybody, furiates a lot of people. Well, then what are we going to do about human nature?
 
+### Whose Truth Claims Lead to Peace
+
 Ah. Point three. Look at Jesus.
 
 Look at His motivation. Jesus, of course, is pointing this woman away from her natural beliefs to new beliefs. But look how He's doing it.
@@ -331,6 +345,8 @@ But so obviously out of love, how do we get that? If you could be open with who 
 That's what we need. Not people that hide who they are. Not people that speak out in a way that's belligerent and that aggravates people.
 
 But a way that's true to who you are, but at the same time respectful and gentle. How do we get that? Here's how we get it, the way she got it.
+
+### Grace Changes Your Identity and Motivation
 
 Look at verse 29. Then leaving her jar, water jar, the woman went back to the town and said to the people, come see a man who told me everything I ever did. Now look carefully.
 

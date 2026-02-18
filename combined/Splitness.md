@@ -4,6 +4,8 @@
 
 ---
 
+## 引言与经文诵读 / Introduction and Scripture Reading
+
 Welcome to Gospel in Life. Are you longing to see real change in your life, in your habits, your relationships, your heart? Today, Tim Keller explores how lasting change actually happens in the life of a Christian and why the Gospel offers a radically different process of transformation than anything else.
 
 Today, Scripture reading is on page 9 in your bulletin and it comes from Romans 7 verses 1 through 9 and then 18 through 25. Or do you not know, brothers, for I am speaking to those who know the law, that the law is binding on a person only as long as he lives? Thus a married woman is bound by law to her husband while he lives, but if her husband dies, she is released from the law of marriage.
@@ -27,6 +29,30 @@ And when I began to grasp what was taught there, that's when change, real change
 Last week we looked at Romans 6 as a whole, and we saw some principles. This we look at Romans 7 as a whole, in which we have in very starkly, shockingly realistic terms, a depiction of the human heart, what we really have here. And then when we get to Romans 8, Romans 6 as the principles, Romans 7 as the heart that the principles have to be applied to, and Romans 8 will take two or three weeks looking at the more practical aspects of how do you apply the principles to the heart so as to bring about change.
 
 Now tonight I'm going to move from the beginning, the end of the beginning, we're going to look at the last part of the passage, the middle part of the passage, and then the first part of the passage. And when we look at Romans 7 like that, I think we'll learn three things. What our biggest problem is, what won't work against it, and what will.
+
+---
+
+欢迎来到《生命中的福音》。你是否渴望在自己的生活、习惯、关系和心灵中看到**真正的改变？今天，提姆·基勒将探讨基督徒生活中持久改变是**如何发生的，以及为什么福音提供了与任何其他方式截然不同的转化过程。今天的圣经阅读内容在传单的第9页，来自罗马书7章1至9节及18至25节。
+
+或者你不知道吗，弟兄们？我是在对那些熟悉律法的人说——律法只对活着的人有效。因此，在丈夫活着的时候，已婚妇女受婚姻法律约束；但若丈夫去世，她就不再受婚姻法律的约束。如果在丈夫还活着的情况下与他人同居，她会被视为通奸。
+
+但如果丈夫去世了，她就摆脱了婚姻法律的束缚，并且如果她再嫁给另一人，则不算是通奸。同样地，我的弟兄们，你们也因基督的身体而死于律法之下，好叫你们归属于另一个人——已经从死里复活的基督，为的是要结出果子给神。因为在我们还活着的时候，罪在律法的刺激下，在我们的肉体中活动，产生死亡的结果。但如今，我们在基督里已得释放，不再受那约束我们的律法辖制；而是服事新的生命——圣灵的生命。
+
+然而，那时我们会说：律法并没有使人犯罪，然而若没有律法，我就不会知道罪是什么。如果没有律法，我不至于想要贪恋什么。但律法既然吩咐不可贪恋，罪就趁着机会，在我里面发动，并且因着律法而生出各种贪欲来。若没有律法，罪就是死的。
+
+我在律法以外是活的；但是律法一来到，罪就在我的肉体中活跃起来，使我死了。因为我深知在肉身里没有良善——因为我想行善的事，便不作；我所不愿做的，那倒作了。我没有能力做到我想要做的事，反而做了我不愿意做的事。因为我所做的不是我所想要的，而是我不愿意做的恶却一直在做。
+
+现在，如果我做了我不愿意做的事，那并不是我自己在做，而是罪在我里面住着。所以我发现一条定律：当我想要行善时，邪恶就近在眼前。我在内心深处喜爱神的律法。但我也看到，在我的肢体中另有一条律法与我的心意相争，并使我成为罪的奴仆，真是苦啊！
+
+感谢神，藉着耶稣基督我们的主，使我们得释放。这是神的话语。上周他说，当我第一次成为基督徒时，生活中有一些事情需要彻底改变，但它们并没有改变。然后我读了约翰·欧文和约翰·斯托特两位作者的作品，在他们的书中，他们引导我阅读罗马书6、7和8章。
+
+当开始理解这些教导时，**真正的改变就在我的生命中开始了。因此，我想带你们进入这三章经文，提出一个问题：真正的生活改变是**如何发生的？基督的信仰如何具体而实际地带来这种改变？上周我们整体研读了罗马书6，从中看到了一些原则。
+
+今天我们将整体研读罗马书7，在这里我们以非常直接、令人震惊的方式，看到人类内心的真实描绘——这就是我们所拥有的真实状况。然后当我们进入罗马书8时，罗马书6是这些原则，罗马书7是需要应用这些原则的心灵，而罗马书8将用两到三周的时间探讨如何具体应用这些原则来改变心灵。今晚我们将从经文的开头开始，看中间部分，再回到结尾。当这样研读罗马书7时，我认为我们可以学到三点：我们最大的问题是什么，什么不能解决问题，以及什么可以解决。
+
+---
+
+## 人心深处的分裂 / The Deep Splitness of the Human Heart
 
 What our biggest problem is, what will not address or solve that problem, and what will. Number one, what's our biggest problem? And Paul very classically puts it in verse 18 and 19, when he says, I have the desire to do what is right, but not the ability to carry it out.
 
@@ -78,7 +104,47 @@ In fact, even the village voice was blown away by the music critic there because
 
 He says, look beneath the floorboards of my life and you will see the capacity to do terrible things. Do you believe that? Do you really, do you believe what Stevenson's saying, Sufjan Stevens is saying, Robert Louis Stevenson, what Paul is saying, that in you you've got a capacity for hideousness and selfishness and evil way beyond what you really think you're capable of.
 
-But at some point you might find some situation, bring it out and then you're dead. So if that's the case and it's important to understand and that is the case, what do we do about it? Point two, the main solution that most people try to bring to bear on it, Paul says doesn't work.
+But at some point you might find some situation, bring it out and then you're dead.
+
+---
+
+我们最大的问题是什么，什么不能解决这个问题，又有什么可以解决。首先，我们的最大问题是啥？保罗在第18和19节中非常经典地描述了这一点：“我愿意行善，却不能。”这里就是答案：我能憧憬正确的事，但找不到内在的力量去执行它。
+
+为什么呢？答案是人内心深处的分裂，这种分裂源于第20节所说的：“我现在所愿意的善，我反不实行；我所不愿意的恶，我倒去作。”他说，在我里面有一个“我”，还有一个“罪”。他明确指出：在19节中提到邪恶。
+
+在他的身体里有邪恶和罪。注意这个词“居住”非常重要。邪恶和罪不是从外部作用于我们，也不是临时进入我们体内停留片刻就可轻易摆脱的东西。它们就在我们体内安家了。
+
+它们住在我们体内，扎根在我们心中。因此，人内心深处存在着善与恶的深刻分裂。文学上对这种现象的经典描绘是罗伯特·路易斯·史蒂文森的小说《杰基尔博士与海德先生》。你真的读过这本书吗？
+
+我敢打赌你没有，因为我们通常只是看电影或戏剧。我喜欢根据原著来解释。这本书其实不长，只有大约80页，非常短小精悍，但内容十分引人入胜。基本情节是：杰基尔博士意识到自己是个矛盾体，他既拥有善的一面也拥有恶的一面，既有良知也有贪婪之心。
+
+他认为由于这种矛盾性，他的坏的本性抑制了他的好的本性，所以他能憧憬做正确的事，却无法付诸实践，就像《罗马书》第7章描述的一样。但杰基尔博士想出了一个办法：他要配制一种药剂来将这两种本性分开。他打算在晚上喝这种药剂，释放出他的坏的一面。但是在他白天工作的时候，他会是那个最好的自己，并且这个最好的自己将不再受到邪恶的影响，能够实现所有的目标。
+
+真是个好理论。但当他喝了药剂之后，他的坏的一面突然显现出来，让他大吃一惊，他发现自己比想象中还要邪恶得多。这就是问题所在。他在书中叙述道：“我在这新生命的第一个呼吸中便知道自己更加邪恶了，十倍于我所想的那样邪恶。
+
+”这个想法令他振奋和满足，就像喝了一杯美酒。爱德华·海德本性就是丑陋的。他的每一行为和每一个思想都围绕着自我展开。他的每一行为和每一个思想都围绕着自我。
+
+你知道为什么他的坏的一面叫爱德华·海德吗？因为他是如此丑陋。是丑陋，但也是因为他被隐藏起来。甚至对杰克尔博士来说，他也完全不知道自己有多邪恶。
+
+因此当爱德华·海德听到这个叙述时，他变得更加邪恶，比杰克尔博士想象中的还要多，并开始做一些可怕的事情，包括谋杀。最后，我们稍后再回到这一点。杰克尔博士说：“我要设法阻止它，我要压抑这邪恶的一面。”但爱德华·海德越来越占据上风，控制力也越来越强。
+
+当杰克尔博士意识到自己即将失去完全的控制，不仅无法再成为杰克尔博士，甚至会永远变成爱德华·海德时，他选择了自杀。这是一个非常令人不安的故事。但是从罗马书第七章中也可以看出这一点，因为罗马书第七章和罗伯特·路易斯·史蒂文森所说的是一样的。第一点是，即使是最好的人，即使是最聪明、最正直的杰克尔博士或使徒保罗，他们内心深处也有一种丑陋、邪恶，以及极强的自我中心性。
+
+请注意，罗伯特·路易斯·史蒂文森实际上以一种非常圣经的方式定义了爱德华·海德的丑陋之处——他的每一个思想都完全围绕着自我。而且正是这种自我中心和以自我为中心的心态，是“我”、“我”以及我的需求、兴趣和欲望。这种不可思议地专注于自我的能力导致了邪恶的发生。即使在最好的人身上，也存在着一种邪恶的核心，有着做可怕事情的能力远远超出你所能想象的范围。
+
+这种邪恶远比你想象中的要大得多，糟糕得多。这被隐藏着。但有时某些特定的情况会像魔药一样激发出来，比如压力、诱惑，或者是与一个难相处的人结婚。真正的邪恶，真正做坏事的能力，那种惊人的丑陋，那几乎无穷无尽的自我中心、自我沉迷、自我的意志和放纵就会显现出来，然后你就完了。
+
+你相信这一点吗？最好的人也有可能做出如此可怕的行径，并且无论我们在这里学到什么，你对自己邪恶和罪孽能力的评估肯定太小了。太小了。苏菲安·史蒂文斯是一位独立摇滚艺术家，有些人知道他有一首歌叫《约翰·韦恩·盖西》。
+
+这首歌是关于一个连环杀手——约翰·韦恩·盖西，他杀害了30人并将尸体藏在房子的地板下。苏菲安在这首歌中唱到了这个连环杀手，而且最后两行歌词真是令人震惊。事实上，甚至《村声》杂志的音乐评论家都被震撼了。在他最终的歌声里，他在谈论这个连环杀手是多么可怕、多么糟糕的人，而最后一句歌词是这样的： 但在我的最好行为中，我其实真的和他一样。
+
+看看我生活下的地板，你会发现隐藏的秘密。他说，在你生活的地板下，你会看到做可怕事情的能力。你相信这一点吗？你真的相信苏菲安·史蒂文斯所说的、罗伯特·路易斯·史蒂文森所说的以及保罗所说的——在你内心深处有着超出你想象的丑陋、自私和邪恶的能力吗？
+
+---
+
+## 道德律法为何无法拯救我们 / Why the Moral Law Cannot Fix Us
+
+So if that's the case and it's important to understand and that is the case, what do we do about it? Point two, the main solution that most people try to bring to bear on it, Paul says doesn't work.
 
 What is that? It has to do with the moral law. Now when we see in here Paul talking about turning to the law and turning to the moral law, he's thinking of the mosaic law, he's a Jew, he's thinking about the ten commandments in the mosaic law.
 
@@ -99,6 +165,26 @@ Now how could that be? He's saying that applying the law of God through willpowe
 This is what you have to do. It doesn't make you a better person. It makes you worse.
 
 It brings out. It aggravates what's wrong with you. How could that be?
+
+---
+
+但是你可能会遇到某种情况，一旦说出来你就完了。所以如果真是这样，而且我们必须理解这一点，那么我们应该怎么办？第二点，大多数人试图用来解决这个问题的主要方法，保罗说这并不奏效。那是什么方法呢？
+
+它与道德律法有关。现在当我们看到保罗在这里谈论转向律法和道德律法时，他指的是摩西律法，因为他是犹太人，他在想十诫。但他说的话确实适用于所有文化。在C.S.刘易斯的《通往毁灭之路》一书的最后一部分，有一个非常有价值的附录，在那里他比较了儒家、印度教、佛教、伊斯兰教和基督教以及犹太教的道德律法。
+
+他展示了令人惊讶的一致性，即上帝对我们最基本的要求，道德生活的基本要求在所有这些文化中都惊人地一致。因此我们知道，道德律法是什么。无论是在哪种文化中，无论在哪种宗教里，当人们意识到自己有不良本性时，他们通常会采取的方法是运用道德律法，并通过巨大的意志力将其应用于自己的不良本性。换句话说，我们试图用我们的“杰克”来消除我们的“海德”，用我们的极其善良和顺从来处理我们的自私、骄傲和自我中心。
+
+我们在道德社区中每周阅读道德律法，在那里我们赞扬它并遵守它，教导孩子学习它，并声称通过将上帝的道德律应用于人们的生活，这就是我们要克服这种丑陋、自私、骄傲和自我中心的方法。但保罗说这不会奏效。事实上，他在第5节中说了令人惊讶的话。请看第5节。
+
+他说：“我们在肉身之中时，凭着律法激起我们有罪的欲望，在我们的肢体中运作，结出死亡的果子。”“凭着律法激起”，“凭着律法激起我们有罪的欲望”。保罗说，律法对我们的罪有一个温室效应。它不是让它们萎缩，而是加剧、助长和增长这些罪。
+
+你说这是怎么回事？那怎么可能呢？他说的是，通过意志力应用上帝的律法，只是坚持要求某人按照律法生活，并说：“你必须这样做。”“你必须那样做。
+
+”这并不能让你成为更好的人，反而会让你变得更糟。它会暴露并加剧你的罪恶。怎么会这样呢？
+
+---
+
+## 奥古斯丁的梨与叛逆之心 / Augustine's Pears and the Rebel Heart
 
 Well at one level, nobody talks about this better than St. Augustin, by the way, St. Augustin in his famous book The Confessions reflects on an incident in his youth.
 
@@ -125,6 +211,30 @@ The Psalms can profoundly shape the way you approach God, even Jesus relied on t
 And if you already spend time and study and prayer, then reading and praying through the Psalms can help you bring your deepest emotions and questions before God and discover a new level of intimacy with him. We'll send you Tim and Kathy Keller's devotional as our thanks for your gift to help Gospel and Life share the love of Jesus with more people. That's your copy today at gospelandlife.com slash give.
 
 That's gospelandlife.com slash give. Now here's Dr. Keller with the rest of today's teaching.
+
+---
+
+实际上，在这方面圣奥古斯丁说得最好。
+
+圣奥古斯丁在他的著名著作《忏悔录》中反思了他年轻时的一个事件。在他年轻的时候，有一次，他闯入一个私人果园，偷了一些不属于他的梨子。后来，他深刻地思考了这件事，并回忆说：“我为什么要偷这些梨呢？” A、我不饿。
+
+B、如果我饿了，我也不会喜欢梨。但他在偷了梨之后，把它们扔给了猪。他甚至不喜欢梨，却还是去偷了梨。他说：“我为什么要偷这些梨呢？
+
+我自己都不喜欢吃。” 答案是：我偷这些梨是因为有人告诉我那是禁止的。换句话说，当有人说“你不能拿那些梨”的时候，我才对它们感兴趣。内心深处有一种东西——我们的丑陋、自私和自我中心，说没有人告诉我要怎么生活。
+
+在你的生活中有很多人表面上就是这样的人，因为他们总是自认为不需要别人告诉他们如何生活。但对我们大多数人来说，虽然我们不说出来，但在你内心深处，无论是先生还是女士，都有一部分心绝对讨厌被告诉要怎样生活。这就是我们内心的错误之一。并且当你用道德律法来对待孩子，或者用道德律法来对待人们时，不要让那方面的本质萎缩，而是让它变得更加突出。
+
+人们之所以去做某些事情，是因为它们被禁止了。但这不仅仅是这样。道德律法是如何在我们身上的错误上发挥作用的？保罗实际上在第8节和第9节中告诉我们，他从一个法律主义的法利赛人转变为基督徒的过程。
+
+这个过程并不是很容易理解，非常简略。他说：“我在律法以外是活着的。”然后有一条十诫中的命令——不可贪恋——突然间击垮了他。诗篇可以深刻地塑造你对神的态度，甚至耶稣也依赖诗篇来面对每一个情况，包括死亡。
+
+在提摩太和凯瑟琳·基勒的《365天灵修读经》中，《耶稣的诗歌》，你会发现每天通过诗篇的阅读，获得新的圣经见解。如果你没有定期灵修的习惯，这本书是一个很好的开始。而且，如果你已经花时间研读、祷告，那么阅读并祷告诗篇可以帮助你将最深的情感和问题带到神面前，并发现与祂更深层次的亲密关系。我们将为您寄送提摩太和凯瑟琳·基勒的灵修读经作为感谢您的礼物，帮助“福音与生命”向更多人传递耶稣的爱。
+
+这是您今天的礼物，请访问gospelandlife.com/slash-give。那是 gospelandlife.com/slash-give。现在是凯勒博士继续今天的教导。
+
+---
+
+## 第十诫揭露了保罗 / The Tenth Commandment Exposed Paul
 
 What's that mean? Now, here's what I think it means. Paul was saying, I was alive.
 
@@ -160,7 +270,37 @@ He was a mess. And he says, it slum me. And you know what that means?
 
 I realized I was spiritually dead as the lawless people that underneath all my morality and underneath all my goodness. I realized that the law was actually creating something inside. It was creating all of this insecurity, creating all of this problem, creating all this anger, creating all this envy.
 
-What is he talking about? Why would he say, I'm just as lost, I'm just as dead spiritually as the immoral people out there. Robert Lewis Stevenson in Jekyll Hyde has a fascinating passage.
+What is he talking about? Why would he say, I'm just as lost, I'm just as dead spiritually as the immoral people out there.
+
+---
+
+那是什么意思？
+
+我认为这意思是保罗说："我在律法以外是活着的。" 那又意味着什么呢？精神上活着。这意味着什么？
+
+你知道，我们常说一个球队仍然活着如果它还在争取冠军。而保罗的意思是，当他审视自己的生活时，他是一名法利赛人，是一个不错的人，并且他认为自己在争取机会。我是在灵性上活着的，我是一个不错的人。我有机会得救，有机会进入天堂，有机会获得神的祝福。
+
+我真的很好。他之所以感到活着并且是个好人，是因为他看待上帝的律法的方式和我们大多数人一样——只从外部行为的角度来看待。所以他列出了清单，然后可以一一打勾。他说：“好的，我没有拜任何塑像。
+
+”“嗯，不错。” 我每周都会给在纽约市的母亲打电话。所以我尊敬我的父母，对吧？我没有通奸、没有偷窃，也没有杀人。
+
+至少我没杀过重要的人。我是保罗。我杀了几个基督徒，但他们罪有应得。所以他列了一番单子，觉得自己活着。
+
+他说：“嘿，只要他从外部行为的角度来看待十诫，他就说：‘嘿，我很不错。’但到了第十条诫命，问题就来了——你无法仅从行为的角度来解读它。” 这是关于动机的，是关于你的心和你的意图。“不可贪心。
+
+”你知道贪心的反义词是什么吗？是满足。他意识到这条诫命的意思是：如果你真的爱上帝、真正依靠上帝、真正拥有上帝，那么这条诫命就是说你要爱你的上帝到足以感到满足的程度。但当他审视自己的内心时，发现了很多贪婪。
+
+他看到了愤怒，因为他杀死了不同意他的人。你知道，他在迫害教会。他看到了愤怒、自义和嫉妒，还拿自己和其他人比较。他看到了内心的真相。
+
+他是个一塌糊涂的人。他说：“这让我惊恐。”你知道**这意味着什么吗？我意识到我的灵性就像那些没有道德标准的人一样死气沉沉。**
+
+我意识到律法实际上在内心深处制造了所有这些不安全感、问题和愤怒，以及嫉妒。
+
+---
+
+## 善行本身也能成为邪恶 / Goodness That Becomes Its Own Evil
+
+Robert Lewis Stevenson in Jekyll Hyde has a fascinating passage.
 
 When I read it, I was blown away by it. And I realized it never comes out in any of the kind of horror, you know, films and plays and things based on the story. When Dr.
 
@@ -193,6 +333,32 @@ One is by saying, I'm going to live my own life, nobody tells me how to live my 
 You're not letting God be your Savior. And even though there's all kinds of moral behavior in your life, inside you are filled with self-righteousness and cruelty and bigotry and you're miserable because you're always comparing yourself to other people and you never are sure you're good enough. See?
 
 And what does that mean? It means that you can't deal with your hideousness, you can't deal with that self-centeredness, you can't deal with that self-absorption by trying to be a good person and by just bringing the moral law to bear so that you can say, now I'm going to be a really, really good person that can just make you worse. You don't deal with your hideousness with an act of the will, you need a complete transformation of the very motives of your heart or you're dead.
+
+---
+
+他在说些什么？为什么他会说他和那些在外表上看起来道德败坏的人一样迷失、一样灵性死亡呢？罗伯特·路易斯·史蒂文森在他的《杰基尔与海德》中有一段非常有趣的论述。
+
+当我读到这段时，我被深深震撼了。我发现，在所有的恐怖电影、戏剧和基于这个故事改编的作品中，这种情节从未出现过。当德·基灵意识到爱德华·海德在杀人时，他做出了一个决定。首先，他说：“我不再喝药水了。
+
+” 我再也不喝那种药水了，因为正是因为它才变成了爱德华·海德。所以我不再喝药水。其次，我要过一种更好的生活。我要变得更好、更道德、更有爱心、更善良、更正直，比以往任何时候都要好。
+
+我要通过意志的力量遵守道德律法，并真正地抑制住爱德华·海德，让他再也不出现。他做得很好，但圣经中告诉我们： “我决心在今后的行为中赎回过去。” 他的决心是有效的。你知道，在过去的几个月里，尤其是在去年的最后几个月，我努力减轻人们的痛苦。
+
+你知道我是如何生活的，知道有多少人因我的帮助而受益。但在一个晴朗的一月日子里，我在摄政公园晒太阳时，我反思并微笑，将自己与他人进行比较，将我的善意行为与他们对同胞冷漠懒惰的行为进行对比。就在那个虚荣的想法出现的瞬间，一种不安和恐惧袭来。我低头一看，发现没有喝药水的情况下我又变成了爱德华·海德。
+
+你看，这就是转折点，这是事情开始走向终结的时刻，因为他没有喝药水就变成了爱德华·海德，他知道自己已经完了。但他为什么会没有喝药水就变成爱德华·海德呢？答案并不是因为他的善行，而是因为他的善行。你听到他说了什么吗？
+
+你看圣经中说了什么？当他正在想着自己比别人好得多的时候，当他正在想着其他人冷漠自私时，他意识到自己正在过着很好的生活，关心着每一个人。就在那一刻，他变成了没有喝药水的爱德华·海德。为什么？
+
+他通过自己的善良成为埃德蒙·海德，而不是因为他的善良而没有成为。为什么？你知道，自私有两种方式。一种是变得非常坏，破坏所有规则；另一种则是变得非常好，成为一个自以为义的法利赛人。
+
+有两条路可以让你自己成为救主和主人，而不是上帝，并践踏他人。一条是说：“我要过自己的生活，没有人能告诉我怎么活。”我会违背所有的道德律令，所以这就是你自己当上帝了吧？但你看，如果你说“我要变得如此好，上帝会祝福我并把我带到天堂”，那你就是自己救赎了，对吧？
+
+你没有让上帝成为你的救主。即使你在生活中表现出各种道德行为，内心却充满了自以为义、残忍和偏见，因此总是感到痛苦，因为你总是在与他人比较，永远不确定自己是否足够好。你看出来了吗？这意味着什么？
+
+---
+
+## 向律法死、与基督联合 / Dying to the Law, Married to Christ
 
 So that's our problem and that's what will not solve our problem, but what will? Not just application of the will to the moral law, not just application of the moral law to your heart through an act of the will, what will, what will really solve it. And the answer is up in verses 1 to 7.
 
@@ -282,168 +448,7 @@ There will be a judgment day. Your hideousness will be revealed. And there's not
 
 Judgment day will come. Well, wait a minute. There is something.
 
-Isaiah 52 and 53 talk about Jesus Christ, the suffering servant who comes to save us and this is what it says about him. They were appalled at him. His appearance was disfigured beyond that of a man and his form marred beyond human likeness.
-
-He had no beauty or majesty to attract us to him. Nothing in his appearance that we should desire him. He was despised and rejected by men, like one from whom men hide their faces.
-
-He was despised and we esteemed him not. But he was pierced for our transgressions. He was crushed for our iniquities.
-
-The punishment that brought us peace was upon him and by his wounds we are healed. Did you hear this? We were appalled at him.
-
-He was so hideous, we couldn't look upon him. We turned our faces from him. What does it mean when 2 Corinthians 5.21 said, God made him sin, who knew no sin that we might become the righteousness of God and him?
-
-God made him sin, treated him as pure evil. Jesus Christ became the hideous one. And he took our judgment day.
-
-And he died for us while we were hideous. Ephesians 5. Husbands love your wives as Christ loved us and gave himself for us, that he could present us to himself pure, beautiful, without spot or blemish.
-
-The only thing that is going to silence that self-centeredness, that fear at the center of your life, that black hole that's making your life miserable and everybody else's, that says, oh my gosh, oh my gosh, oh my gosh, me, me, me, me. I've got to have this, I've got to do that. You know, there's a moral version of that.
-
-I'm afraid that God's going to get me, so I better be good. And there's an immoral version of that. I'm afraid that God's going to oppress me, so I got to live the way I want to live.
-
-But only Jesus Christ, as your new heavenly spouse, who has given himself for you unconditionally, when you were hideous to make you beautiful, only Jesus Christ looking at you in the face and saying, I love you, I love you unconditionally. I love you, only that. If you look into his face and see that, only that will destroy, eventually, the fear in the heart of your being that is just driving you into the ground.
-
-That fear, I've got to do this, I've got to do that. Jesus Christ says, I've got a new motive for you. Gratitude, security, and love.
-
-Tell the truth to resemble me and to please me and to delight me and to become like me. Out of gratitude, not because it could be condemned, because now there is no condemnation for those who enjoy Christ Jesus because of what he did. Tell the truth, give your money to the poor, out of love, out of joy, out of gratitude.
-
-That's the only motivation that won't drive you into the ground. Let the spousal love of Jesus Christ completely reconfigure the motivational structures of your heart. Lay your deadly doing down at Jesus' feet, stand in Him and Him alone.
-
-Gloriously complete. Let us pray. Thank you, Father, for giving us this very dark message.
-
-It's a dark chapter, but it ends on a note of joy. Oh, wretched man that I am, who shall deliver me from this body of death? Thanks be to Jesus Christ through Him.
-
-We die to our old spouse, the law, and die to the fear because of your reassurance. And we look into the face of our new heavenly spouse, and we hear Him say, I love you. And I died for you.
-
-And now there's no condemnation for those who are in Christ Jesus. And we ask that you would help us apply this to our own lives through your Holy Spirit. We ask it in Jesus' name, amen.
-
-Thanks for listening to today's teaching. It's our prayer that you were encouraged by it and that it helps you apply the gospel to your life and to share it with others. For more biblical resources from Tim Keller, visit gospelonlife.com.
-
-There, you can subscribe to the Life in the Gospel Quarterly Journal. When you do, you will also receive free articles, sermons, devotionals, and other great gospel-centered resources. Again, it's all at gospelonlife.com.
-
-You can also stay connected with us on Facebook, Instagram, YouTube, and X. Today's sermon was recorded in 2006. The sermons and talks you hear on the Gospelon Life Podcast were recorded between 1989 and 2017, while Dr.
-
 ---
-
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《生命中的福音》。你是否渴望在自己的生活、习惯、关系和心灵中看到**真正的改变？今天，提姆·基勒将探讨基督徒生活中持久改变是**如何发生的，以及为什么福音提供了与任何其他方式截然不同的转化过程。今天的圣经阅读内容在传单的第9页，来自罗马书7章1至9节及18至25节。
-
-或者你不知道吗，弟兄们？我是在对那些熟悉律法的人说——律法只对活着的人有效。因此，在丈夫活着的时候，已婚妇女受婚姻法律约束；但若丈夫去世，她就不再受婚姻法律的约束。如果在丈夫还活着的情况下与他人同居，她会被视为通奸。
-
-但如果丈夫去世了，她就摆脱了婚姻法律的束缚，并且如果她再嫁给另一人，则不算是通奸。同样地，我的弟兄们，你们也因基督的身体而死于律法之下，好叫你们归属于另一个人——已经从死里复活的基督，为的是要结出果子给神。因为在我们还活着的时候，罪在律法的刺激下，在我们的肉体中活动，产生死亡的结果。但如今，我们在基督里已得释放，不再受那约束我们的律法辖制；而是服事新的生命——圣灵的生命。
-
-然而，那时我们会说：律法并没有使人犯罪，然而若没有律法，我就不会知道罪是什么。如果没有律法，我不至于想要贪恋什么。但律法既然吩咐不可贪恋，罪就趁着机会，在我里面发动，并且因着律法而生出各种贪欲来。若没有律法，罪就是死的。
-
-我在律法以外是活的；但是律法一来到，罪就在我的肉体中活跃起来，使我死了。因为我深知在肉身里没有良善——因为我想行善的事，便不作；我所不愿做的，那倒作了。我没有能力做到我想要做的事，反而做了我不愿意做的事。因为我所做的不是我所想要的，而是我不愿意做的恶却一直在做。
-
-现在，如果我做了我不愿意做的事，那并不是我自己在做，而是罪在我里面住着。所以我发现一条定律：当我想要行善时，邪恶就近在眼前。我在内心深处喜爱神的律法。但我也看到，在我的肢体中另有一条律法与我的心意相争，并使我成为罪的奴仆，真是苦啊！
-
-感谢神，藉着耶稣基督我们的主，使我们得释放。这是神的话语。上周他说，当我第一次成为基督徒时，生活中有一些事情需要彻底改变，但它们并没有改变。然后我读了约翰·欧文和约翰·斯托特两位作者的作品，在他们的书中，他们引导我阅读罗马书6、7和8章。
-
-当开始理解这些教导时，**真正的改变就在我的生命中开始了。因此，我想带你们进入这三章经文，提出一个问题：真正的生活改变是**如何发生的？基督的信仰如何具体而实际地带来这种改变？上周我们整体研读了罗马书6，从中看到了一些原则。
-
-今天我们将整体研读罗马书7，在这里我们以非常直接、令人震惊的方式，看到人类内心的真实描绘——这就是我们所拥有的真实状况。然后当我们进入罗马书8时，罗马书6是这些原则，罗马书7是需要应用这些原则的心灵，而罗马书8将用两到三周的时间探讨如何具体应用这些原则来改变心灵。今晚我们将从经文的开头开始，看中间部分，再回到结尾。当这样研读罗马书7时，我认为我们可以学到三点：我们最大的问题是什么，什么不能解决问题，以及什么可以解决。
-
-我们最大的问题是什么，什么不能解决这个问题，又有什么可以解决。首先，我们的最大问题是啥？保罗在第18和19节中非常经典地描述了这一点：“我愿意行善，却不能。”这里就是答案：我能憧憬正确的事，但找不到内在的力量去执行它。
-
-为什么呢？答案是人内心深处的分裂，这种分裂源于第20节所说的：“我现在所愿意的善，我反不实行；我所不愿意的恶，我倒去作。”他说，在我里面有一个“我”，还有一个“罪”。他明确指出：在19节中提到邪恶。
-
-在他的身体里有邪恶和罪。注意这个词“居住”非常重要。邪恶和罪不是从外部作用于我们，也不是临时进入我们体内停留片刻就可轻易摆脱的东西。它们就在我们体内安家了。
-
-它们住在我们体内，扎根在我们心中。因此，人内心深处存在着善与恶的深刻分裂。文学上对这种现象的经典描绘是罗伯特·路易斯·史蒂文森的小说《杰基尔博士与海德先生》。你真的读过这本书吗？
-
-我敢打赌你没有，因为我们通常只是看电影或戏剧。我喜欢根据原著来解释。这本书其实不长，只有大约80页，非常短小精悍，但内容十分引人入胜。基本情节是：杰基尔博士意识到自己是个矛盾体，他既拥有善的一面也拥有恶的一面，既有良知也有贪婪之心。
-
-他认为由于这种矛盾性，他的坏的本性抑制了他的好的本性，所以他能憧憬做正确的事，却无法付诸实践，就像《罗马书》第7章描述的一样。但杰基尔博士想出了一个办法：他要配制一种药剂来将这两种本性分开。他打算在晚上喝这种药剂，释放出他的坏的一面。但是在他白天工作的时候，他会是那个最好的自己，并且这个最好的自己将不再受到邪恶的影响，能够实现所有的目标。
-
-真是个好理论。但当他喝了药剂之后，他的坏的一面突然显现出来，让他大吃一惊，他发现自己比想象中还要邪恶得多。这就是问题所在。他在书中叙述道：“我在这新生命的第一个呼吸中便知道自己更加邪恶了，十倍于我所想的那样邪恶。
-
-”这个想法令他振奋和满足，就像喝了一杯美酒。爱德华·海德本性就是丑陋的。他的每一行为和每一个思想都围绕着自我展开。他的每一行为和每一个思想都围绕着自我。
-
-你知道为什么他的坏的一面叫爱德华·海德吗？因为他是如此丑陋。是丑陋，但也是因为他被隐藏起来。甚至对杰克尔博士来说，他也完全不知道自己有多邪恶。
-
-因此当爱德华·海德听到这个叙述时，他变得更加邪恶，比杰克尔博士想象中的还要多，并开始做一些可怕的事情，包括谋杀。最后，我们稍后再回到这一点。杰克尔博士说：“我要设法阻止它，我要压抑这邪恶的一面。”但爱德华·海德越来越占据上风，控制力也越来越强。
-
-当杰克尔博士意识到自己即将失去完全的控制，不仅无法再成为杰克尔博士，甚至会永远变成爱德华·海德时，他选择了自杀。这是一个非常令人不安的故事。但是从罗马书第七章中也可以看出这一点，因为罗马书第七章和罗伯特·路易斯·史蒂文森所说的是一样的。第一点是，即使是最好的人，即使是最聪明、最正直的杰克尔博士或使徒保罗，他们内心深处也有一种丑陋、邪恶，以及极强的自我中心性。
-
-请注意，罗伯特·路易斯·史蒂文森实际上以一种非常圣经的方式定义了爱德华·海德的丑陋之处——他的每一个思想都完全围绕着自我。而且正是这种自我中心和以自我为中心的心态，是“我”、“我”以及我的需求、兴趣和欲望。这种不可思议地专注于自我的能力导致了邪恶的发生。即使在最好的人身上，也存在着一种邪恶的核心，有着做可怕事情的能力远远超出你所能想象的范围。
-
-这种邪恶远比你想象中的要大得多，糟糕得多。这被隐藏着。但有时某些特定的情况会像魔药一样激发出来，比如压力、诱惑，或者是与一个难相处的人结婚。真正的邪恶，真正做坏事的能力，那种惊人的丑陋，那几乎无穷无尽的自我中心、自我沉迷、自我的意志和放纵就会显现出来，然后你就完了。
-
-你相信这一点吗？最好的人也有可能做出如此可怕的行径，并且无论我们在这里学到什么，你对自己邪恶和罪孽能力的评估肯定太小了。太小了。苏菲安·史蒂文斯是一位独立摇滚艺术家，有些人知道他有一首歌叫《约翰·韦恩·盖西》。
-
-这首歌是关于一个连环杀手——约翰·韦恩·盖西，他杀害了30人并将尸体藏在房子的地板下。苏菲安在这首歌中唱到了这个连环杀手，而且最后两行歌词真是令人震惊。事实上，甚至《村声》杂志的音乐评论家都被震撼了。在他最终的歌声里，他在谈论这个连环杀手是多么可怕、多么糟糕的人，而最后一句歌词是这样的： 但在我的最好行为中，我其实真的和他一样。
-
-看看我生活下的地板，你会发现隐藏的秘密。他说，在你生活的地板下，你会看到做可怕事情的能力。你相信这一点吗？你真的相信苏菲安·史蒂文斯所说的、罗伯特·路易斯·史蒂文森所说的以及保罗所说的——在你内心深处有着超出你想象的丑陋、自私和邪恶的能力吗？
-
-但是你可能会遇到某种情况，一旦说出来你就完了。所以如果真是这样，而且我们必须理解这一点，那么我们应该怎么办？第二点，大多数人试图用来解决这个问题的主要方法，保罗说这并不奏效。那是什么方法呢？
-
-它与道德律法有关。现在当我们看到保罗在这里谈论转向律法和道德律法时，他指的是摩西律法，因为他是犹太人，他在想十诫。但他说的话确实适用于所有文化。在C.S.刘易斯的《通往毁灭之路》一书的最后一部分，有一个非常有价值的附录，在那里他比较了儒家、印度教、佛教、伊斯兰教和基督教以及犹太教的道德律法。
-
-他展示了令人惊讶的一致性，即上帝对我们最基本的要求，道德生活的基本要求在所有这些文化中都惊人地一致。因此我们知道，道德律法是什么。无论是在哪种文化中，无论在哪种宗教里，当人们意识到自己有不良本性时，他们通常会采取的方法是运用道德律法，并通过巨大的意志力将其应用于自己的不良本性。换句话说，我们试图用我们的“杰克”来消除我们的“海德”，用我们的极其善良和顺从来处理我们的自私、骄傲和自我中心。
-
-我们在道德社区中每周阅读道德律法，在那里我们赞扬它并遵守它，教导孩子学习它，并声称通过将上帝的道德律应用于人们的生活，这就是我们要克服这种丑陋、自私、骄傲和自我中心的方法。但保罗说这不会奏效。事实上，他在第5节中说了令人惊讶的话。请看第5节。
-
-他说：“我们在肉身之中时，凭着律法激起我们有罪的欲望，在我们的肢体中运作，结出死亡的果子。”“凭着律法激起”，“凭着律法激起我们有罪的欲望”。保罗说，律法对我们的罪有一个温室效应。它不是让它们萎缩，而是加剧、助长和增长这些罪。
-
-你说这是怎么回事？那怎么可能呢？他说的是，通过意志力应用上帝的律法，只是坚持要求某人按照律法生活，并说：“你必须这样做。”“你必须那样做。
-
-”这并不能让你成为更好的人，反而会让你变得更糟。它会暴露并加剧你的罪恶。怎么会这样呢？实际上，在这方面圣奥古斯丁说得最好。
-
-圣奥古斯丁在他的著名著作《忏悔录》中反思了他年轻时的一个事件。在他年轻的时候，有一次，他闯入一个私人果园，偷了一些不属于他的梨子。后来，他深刻地思考了这件事，并回忆说：“我为什么要偷这些梨呢？” A、我不饿。
-
-B、如果我饿了，我也不会喜欢梨。但他在偷了梨之后，把它们扔给了猪。他甚至不喜欢梨，却还是去偷了梨。他说：“我为什么要偷这些梨呢？
-
-我自己都不喜欢吃。” 答案是：我偷这些梨是因为有人告诉我那是禁止的。换句话说，当有人说“你不能拿那些梨”的时候，我才对它们感兴趣。内心深处有一种东西——我们的丑陋、自私和自我中心，说没有人告诉我要怎么生活。
-
-在你的生活中有很多人表面上就是这样的人，因为他们总是自认为不需要别人告诉他们如何生活。但对我们大多数人来说，虽然我们不说出来，但在你内心深处，无论是先生还是女士，都有一部分心绝对讨厌被告诉要怎样生活。这就是我们内心的错误之一。并且当你用道德律法来对待孩子，或者用道德律法来对待人们时，不要让那方面的本质萎缩，而是让它变得更加突出。
-
-人们之所以去做某些事情，是因为它们被禁止了。但这不仅仅是这样。道德律法是如何在我们身上的错误上发挥作用的？保罗实际上在第8节和第9节中告诉我们，他从一个法律主义的法利赛人转变为基督徒的过程。
-
-这个过程并不是很容易理解，非常简略。他说：“我在律法以外是活着的。”然后有一条十诫中的命令——不可贪恋——突然间击垮了他。诗篇可以深刻地塑造你对神的态度，甚至耶稣也依赖诗篇来面对每一个情况，包括死亡。
-
-在提摩太和凯瑟琳·基勒的《365天灵修读经》中，《耶稣的诗歌》，你会发现每天通过诗篇的阅读，获得新的圣经见解。如果你没有定期灵修的习惯，这本书是一个很好的开始。而且，如果你已经花时间研读、祷告，那么阅读并祷告诗篇可以帮助你将最深的情感和问题带到神面前，并发现与祂更深层次的亲密关系。我们将为您寄送提摩太和凯瑟琳·基勒的灵修读经作为感谢您的礼物，帮助“福音与生命”向更多人传递耶稣的爱。
-
-这是您今天的礼物，请访问gospelandlife.com/slash-give。那是 gospelandlife.com/slash-give。现在是凯勒博士继续今天的教导。那是什么意思？
-
-我认为这意思是保罗说：“我在律法以外是活着的。” 那又意味着什么呢？精神上活着。这意味着什么？
-
-你知道，我们常说一个球队仍然活着如果它还在争取冠军。而保罗的意思是，当他审视自己的生活时，他是一名法利赛人，是一个不错的人，并且他认为自己在争取机会。我是在灵性上活着的，我是一个不错的人。我有机会得救，有机会进入天堂，有机会获得神的祝福。
-
-我真的很好。他之所以感到活着并且是个好人，是因为他看待上帝的律法的方式和我们大多数人一样——只从外部行为的角度来看待。所以他列出了清单，然后可以一一打勾。他说：“好的，我没有拜任何塑像。
-
-”“嗯，不错。” 我每周都会给在纽约市的母亲打电话。所以我尊敬我的父母，对吧？我没有通奸、没有偷窃，也没有杀人。
-
-至少我没杀过重要的人。我是保罗。我杀了几个基督徒，但他们罪有应得。所以他列了一番单子，觉得自己活着。
-
-他说：“嘿，只要他从外部行为的角度来看待十诫，他就说：‘嘿，我很不错。’但到了第十条诫命，问题就来了——你无法仅从行为的角度来解读它。” 这是关于动机的，是关于你的心和你的意图。“不可贪心。
-
-”你知道贪心的反义词是什么吗？是满足。他意识到这条诫命的意思是：如果你真的爱上帝、真正依靠上帝、真正拥有上帝，那么这条诫命就是说你要爱你的上帝到足以感到满足的程度。但当他审视自己的内心时，发现了很多贪婪。
-
-他看到了愤怒，因为他杀死了不同意他的人。你知道，他在迫害教会。他看到了愤怒、自义和嫉妒，还拿自己和其他人比较。他看到了内心的真相。
-
-他是个一塌糊涂的人。他说：“这让我惊恐。”你知道**这意味着什么吗？我意识到我的灵性就像那些没有道德标准的人一样死气沉沉。**
-
-我意识到律法实际上在内心深处制造了所有这些不安全感、问题和愤怒，以及嫉妒。他在说些什么？为什么他会说他和那些在外表上看起来道德败坏的人一样迷失、一样灵性死亡呢？罗伯特·路易斯·史蒂文森在他的《杰基尔与海德》中有一段非常有趣的论述。
-
-当我读到这段时，我被深深震撼了。我发现，在所有的恐怖电影、戏剧和基于这个故事改编的作品中，这种情节从未出现过。当德·基灵意识到爱德华·海德在杀人时，他做出了一个决定。首先，他说：“我不再喝药水了。
-
-” 我再也不喝那种药水了，因为正是因为它才变成了爱德华·海德。所以我不再喝药水。其次，我要过一种更好的生活。我要变得更好、更道德、更有爱心、更善良、更正直，比以往任何时候都要好。
-
-我要通过意志的力量遵守道德律法，并真正地抑制住爱德华·海德，让他再也不出现。他做得很好，但圣经中告诉我们： “我决心在今后的行为中赎回过去。” 他的决心是有效的。你知道，在过去的几个月里，尤其是在去年的最后几个月，我努力减轻人们的痛苦。
-
-你知道我是如何生活的，知道有多少人因我的帮助而受益。但在一个晴朗的一月日子里，我在摄政公园晒太阳时，我反思并微笑，将自己与他人进行比较，将我的善意行为与他们对同胞冷漠懒惰的行为进行对比。就在那个虚荣的想法出现的瞬间，一种不安和恐惧袭来。我低头一看，发现没有喝药水的情况下我又变成了爱德华·海德。
-
-你看，这就是转折点，这是事情开始走向终结的时刻，因为他没有喝药水就变成了爱德华·海德，他知道自己已经完了。但他为什么会没有喝药水就变成爱德华·海德呢？答案并不是因为他的善行，而是因为他的善行。你听到他说了什么吗？
-
-你看圣经中说了什么？当他正在想着自己比别人好得多的时候，当他正在想着其他人冷漠自私时，他意识到自己正在过着很好的生活，关心着每一个人。就在那一刻，他变成了没有喝药水的爱德华·海德。为什么？
-
-他通过自己的善良成为埃德蒙·海德，而不是因为他的善良而没有成为。为什么？你知道，自私有两种方式。一种是变得非常坏，破坏所有规则；另一种则是变得非常好，成为一个自以为义的法利赛人。
-
-有两条路可以让你自己成为救主和主人，而不是上帝，并践踏他人。一条是说：“我要过自己的生活，没有人能告诉我怎么活。”我会违背所有的道德律令，所以这就是你自己当上帝了吧？但你看，如果你说“我要变得如此好，上帝会祝福我并把我带到天堂”，那你就是自己救赎了，对吧？
-
-你没有让上帝成为你的救主。即使你在生活中表现出各种道德行为，内心却充满了自以为义、残忍和偏见，因此总是感到痛苦，因为你总是在与他人比较，永远不确定自己是否足够好。你看出来了吗？这意味着什么？
 
 意味着你无法通过试图做好人或仅仅运用意志力来道德律令来处理你的丑陋、自私和自我中心。你不能通过意志的力量来解决这些问题，你需要彻底改变内心动机的根源，否则就完了。这就是我们的问题，而这个问题不会得到解决。那么，什么会呢？
 
@@ -502,6 +507,52 @@ B、如果我饿了，我也不会喜欢梨。但他在偷了梨之后，把它�
 审判的日子即将到来，所以他还是选择了自杀。这确实是一个很好的隐喻，不是吗？关于审判的隐喻。无论你如何隐藏，无论你拖延多久，你的罪行最终都会暴露出来。
 
 总有一天会有审判日。你的丑陋终将被揭露。而你什么都做不了来阻止它。审判的日子终究会到来。
+
+---
+
+## 那位丑陋者使我们美丽 / The Hideous One Who Makes Us Beautiful
+
+Isaiah 52 and 53 talk about Jesus Christ, the suffering servant who comes to save us and this is what it says about him. They were appalled at him. His appearance was disfigured beyond that of a man and his form marred beyond human likeness.
+
+He had no beauty or majesty to attract us to him. Nothing in his appearance that we should desire him. He was despised and rejected by men, like one from whom men hide their faces.
+
+He was despised and we esteemed him not. But he was pierced for our transgressions. He was crushed for our iniquities.
+
+The punishment that brought us peace was upon him and by his wounds we are healed. Did you hear this? We were appalled at him.
+
+He was so hideous, we couldn't look upon him. We turned our faces from him. What does it mean when 2 Corinthians 5.21 said, God made him sin, who knew no sin that we might become the righteousness of God and him?
+
+God made him sin, treated him as pure evil. Jesus Christ became the hideous one. And he took our judgment day.
+
+And he died for us while we were hideous. Ephesians 5. Husbands love your wives as Christ loved us and gave himself for us, that he could present us to himself pure, beautiful, without spot or blemish.
+
+The only thing that is going to silence that self-centeredness, that fear at the center of your life, that black hole that's making your life miserable and everybody else's, that says, oh my gosh, oh my gosh, oh my gosh, me, me, me, me. I've got to have this, I've got to do that. You know, there's a moral version of that.
+
+I'm afraid that God's going to get me, so I better be good. And there's an immoral version of that. I'm afraid that God's going to oppress me, so I got to live the way I want to live.
+
+But only Jesus Christ, as your new heavenly spouse, who has given himself for you unconditionally, when you were hideous to make you beautiful, only Jesus Christ looking at you in the face and saying, I love you, I love you unconditionally. I love you, only that. If you look into his face and see that, only that will destroy, eventually, the fear in the heart of your being that is just driving you into the ground.
+
+That fear, I've got to do this, I've got to do that. Jesus Christ says, I've got a new motive for you. Gratitude, security, and love.
+
+Tell the truth to resemble me and to please me and to delight me and to become like me. Out of gratitude, not because it could be condemned, because now there is no condemnation for those who enjoy Christ Jesus because of what he did. Tell the truth, give your money to the poor, out of love, out of joy, out of gratitude.
+
+That's the only motivation that won't drive you into the ground. Let the spousal love of Jesus Christ completely reconfigure the motivational structures of your heart. Lay your deadly doing down at Jesus' feet, stand in Him and Him alone.
+
+Gloriously complete. Let us pray. Thank you, Father, for giving us this very dark message.
+
+It's a dark chapter, but it ends on a note of joy. Oh, wretched man that I am, who shall deliver me from this body of death? Thanks be to Jesus Christ through Him.
+
+We die to our old spouse, the law, and die to the fear because of your reassurance. And we look into the face of our new heavenly spouse, and we hear Him say, I love you. And I died for you.
+
+And now there's no condemnation for those who are in Christ Jesus. And we ask that you would help us apply this to our own lives through your Holy Spirit. We ask it in Jesus' name, amen.
+
+Thanks for listening to today's teaching. It's our prayer that you were encouraged by it and that it helps you apply the gospel to your life and to share it with others. For more biblical resources from Tim Keller, visit gospelonlife.com.
+
+There, you can subscribe to the Life in the Gospel Quarterly Journal. When you do, you will also receive free articles, sermons, devotionals, and other great gospel-centered resources. Again, it's all at gospelonlife.com.
+
+You can also stay connected with us on Facebook, Instagram, YouTube, and X. Today's sermon was recorded in 2006. The sermons and talks you hear on the Gospelon Life Podcast were recorded between 1989 and 2017, while Dr.
+
+---
 
 等等，等等一下。还有一件事。以赛亚书52章和53章提到了耶稣基督，那位受苦的仆人，他来拯救我们。书中是这样描述他的：“世人见他，就弃绝了；他相貌卑微，不引人注目，外貌俊美，为人们所藐视。
 

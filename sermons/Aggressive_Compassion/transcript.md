@@ -2,7 +2,7 @@
 
 ## English Transcript
 
-**Introduction:**
+### Introduction and Scripture Reading
 
 Welcome to Gospel in Life. During January, we're inviting our listeners to consider becoming a Gospel in Life monthly partner. If you'd like to learn more, keep listening at the end of today's podcast for details.
 
@@ -16,7 +16,9 @@ And for your lifeblood, I will surely demand an accounting. I will demand an acc
 
 Whoever sheds the blood of man, by man shall his blood be shed. For in the image of God has God made man. As for you, be fruitful and increase in number.
 
-Fly on the earth and increase upon it. This is the word of the Lord. **The Sixth Commandment and Its Foundation:**
+Fly on the earth and increase upon it. This is the word of the Lord.
+
+### The Sixth Commandment and Its Foundation
 
 We are doing a series on the Ten Commandments.
 
@@ -32,7 +34,9 @@ Now there's an awful lot of interesting things that he says here that I am going
 
 As long as the earth endures, seed time and harvest, cold and winter, summer and winter, day and night will never cease. So first he says, I'll protect your life against nature. Then he goes in verses 5, 1 to 4, and he says, I'll protect your life against the animals.
 
-I will hold any animal accountable for your blood. And then finally he says, and if any human being takes the life of any human being, I will hold that person accountable too. **Every Human Life is Sacred:**
+I will hold any animal accountable for your blood. And then finally he says, and if any human being takes the life of any human being, I will hold that person accountable too.
+
+### Every Human Life Is Sacred
 
 Now don't ask me how the heck he holds animals accountable for our blood.
 
@@ -46,7 +50,9 @@ And there's absolutely no way that you can miss that. And so God is saying that 
 
 I have got to treat people seriously. I've got to honor them. I've got to be aggressively compassionate.
 
-This passage, if you let it do a work on us, can make us into a people, a compassionate people that the world would marvel at. **The Case for Aggressive Compassion:**
+This passage, if you let it do a work on us, can make us into a people, a compassionate people that the world would marvel at.
+
+### The Case for Aggressive Compassion
 
 Now, let's look at it. And the way to look at it is, first of all, let's see how this passage makes a case for aggressive compassion.
 
@@ -74,7 +80,7 @@ Because in other societies, people who were not considered as important, you see
 
 Every one. Why? For, look at the last half of the verse, for in the image of God has God made man.
 
-**The Image of God - We Are Like Mirrors:**
+### The Image of God: We Are Like Mirrors
 
 What does that mean? Well, the image of God is that which makes us different than the plants and the animals. The image of God is that which makes us rational, that which makes us personal, that which makes us capable of love and communication, and of creativity, the ability to envision that which is not.
 
@@ -98,7 +104,9 @@ It was built a thousand years ago. And even though it's a ruin, even though it c
 
 Usually it is treated sacredly, it's landmarked usually, you see. And that's how God looks at us and that's how we look at one another. If you're a Christian, you realize even when you see a wicked person, even when you see a messed up person, it's like the ruin of a castle and you say, oh, how I would love to see this thing restored.
 
-Imagine what it could be like. **The Weight of Your Neighbor's Glory:**
+Imagine what it could be like.
+
+### The Weight of Your Neighbor's Glory
 
 Now, are you beginning to feel the weight of your neighbor's glory? The Bible says that every human being is that, in the image of God, an immortal being.
 
@@ -118,7 +126,9 @@ It's a serious thing to live in a society of immortals, to remember that million
 
 There are no ordinary people. You have never talked to a mere mortal. Nations, cultures, arts, civilization, these are mortal and their life is to our life as the life of a gnat.
 
-But it is immortals with whom we joke, work, marry, snub, and exploit. Immortal horrors or everlasting splendors, your neighbor is the holiest object presented to your senses. **Practical Implications:**
+But it is immortals with whom we joke, work, marry, snub, and exploit. Immortal horrors or everlasting splendors, your neighbor is the holiest object presented to your senses.
+
+### Practical Implications
 
 Now maybe that's mind-numbing and a little bit hard to take in, but it has the most absolutely practical ramifications, both in terms of politics and lofty international policy down to the way in which you treat the people you meet today.
 
@@ -144,7 +154,9 @@ The truth is that we've made lesser gods of good things, things that can't give 
 
 You can request your copy at gospelandlife.com slash give. That's gospelandlife.com slash give. Now here's Dr.
 
-Keller with the rest of today's teaching. **Do You Honor People?**
+Keller with the rest of today's teaching.
+
+### Do You Honor People?
 
 Now let's be practical. Do people feel valued by you?
 
@@ -174,7 +186,9 @@ Every human being is in the image of God. And that leads to this remarkable stat
 
 The Bible tells us that God lays that weight on us very specifically and holds us accountable for the life of other people. You know the old, it's not in the Bible and I don't know where it originally came from, no man is an island, that's the fact. That's true.
 
-That's a biblical truth, even though it's not a biblical quote. You are connected, you are accountable, and you can't avoid it. **Five Ways to Break the Sixth Commandment:**
+That's a biblical truth, even though it's not a biblical quote. You are connected, you are accountable, and you can't avoid it.
+
+### Five Ways to Break the Sixth Commandment
 
 Back in the 1600s, when the Protestant church was trying to get its bearings in England and was seeking to understand what the Bible taught was the duty of human beings to one another.
 
@@ -202,7 +216,9 @@ To say that you're accountable for the life of your fellow men means look around
 
 Could I find that there was one home like that that I would be able to make a contribution to, to at least keep the heat on? Have I even made the efforts to do that? I will hold you accountable for the life of your fellow man.
 
-Think about it. **A Lifestyle of Aggressive Compassion:**
+Think about it.
+
+### A Lifestyle of Aggressive Compassion
 
 Now, don't you see, we come to this point, aggressive compassion, the Bible says. Oh, every human being is in the image of God.
 
@@ -214,7 +230,9 @@ And in New York, you're always in lines. How do you treat the people around you?
 
 And sometimes it's worse than that. How do you treat people? It affects everything.
 
-A lifestyle of aggressive compassion. **The Source of Strength:**
+A lifestyle of aggressive compassion.
+
+### The Source of Strength
 
 Now, my question to you is, if you're thinking, why aren't you depressed yet? Listen, you should feel terrible by now.
 
@@ -228,13 +246,15 @@ In the New Testament, we're also told this. We are supposed to go into the world
 
 I believe when when God says be fruitful and multiply, he's talking about the image of God. He is saying, I don't want you just to protect the image of God. I want you to restore and propagate the image and spread it everywhere.
 
-**Jesus - The Image of God Restored:**
+### Jesus Restores the Image of God
 
 Well, somebody says, how do you do that? And the answer is you have to go to Jesus, who is the image of God, meet him and have the image of God restored in you before you can restore and protect it in other people. Did you hear that?
 
 Listen, it says in Colossians 115, he is the image of the invisible God. And in Ephesians 424, it tells us that when we come to him, he is the image of God. We become like him and our image is renewed.
 
-It's like our mirror turns back to him and the reflection begins to happen. The most important thing is when you look at Jesus Christ and you come to know him personally, the image of God in you begins to get restored and it makes you capable of a lifestyle of aggressive compassion. **The Gospel Creates Knights:**
+It's like our mirror turns back to him and the reflection begins to happen. The most important thing is when you look at Jesus Christ and you come to know him personally, the image of God in you begins to get restored and it makes you capable of a lifestyle of aggressive compassion.
+
+### The Gospel Creates Knights
 
 When you look, when you take a look at what a human being ought to be, you see something pretty interesting.
 
@@ -268,7 +288,7 @@ And you'll begin to treat people as valuable. It'll it'll affect you personally.
 
 It'll affect your politics. It'll affect everything. The Lord, the Lord's law is exceedingly broad, and yet it's sweeter than honey to our mouth.
 
-**Conclusion:**
+### Conclusion: Come to the King
 
 Listen, friends, where are you this morning? Hopefully, I hope that many of you are people who have received Christ as Savior and you and you're having the image of God renewed in you. And yet you're not very compassionate people.
 

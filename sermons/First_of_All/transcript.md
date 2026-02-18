@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 **Introduction:**
 
 Welcome to Gospel in Life. During January, we're inviting our listeners to consider becoming a Gospel in Life monthly partner. Monthly partners are an important part in helping us to plan for how we can be the most effective in reaching people all over the world with the gospel.
@@ -24,13 +26,19 @@ I am angry enough to die. But the Lord said, you have been concerned about this 
 
 But Nineveh has more than 120,000 people who cannot tell their right hand from their left and many cattle as well. Should I not be concerned about that great city? This is the word of the Lord.
 
+### Co-Conspirators in Our Own Kidnapping
+
 **The Co-Conspirator in Her Own Kidnapping:**
 
 1974, Patty Hearst, remember? Nineteen years old, millionaire heiress or heiress of a fortune, the Hearst newspaper fortune, was kidnapped by the Symbionese Liberation Army, I remembered. And within just a few weeks, her life was so empty that within a few weeks they were able to take the cuffs off of her and they were able to take off the ropes and to take off the guards and she joined them and she took the name Tonya and she was involved in a bank robbery in which a woman was killed.
 
 By the way, it was a woman, a Seventh-day Adventist woman, who was just depositing the weekly offerings at the bank and that group blew her away. And what was so intriguing about this is that Patty Hearst became a co-conspirator in her own kidnapping. She became enamored with her jailers and after a while they could take the cuffs off because her idolization of her jailers was her chain.
 
-And whenever anybody tried to free her or liberate her, she sneered and snarled at them. She was a co-conspirator in her own kidnapping. **Jonah's Story - A Case Study:**
+And whenever anybody tried to free her or liberate her, she sneered and snarled at them. She was a co-conspirator in her own kidnapping.
+
+### Jonah's Case Study: When Good Love Becomes an Idol
+
+**Jonah's Story - A Case Study:**
 
 Jonah was an extremely prominent religious figure in his day.
 
@@ -110,7 +118,11 @@ We have to have those things. And if those things are not there or if those thin
 
 We start to say, what am I really living for? We experience that emptiness, that loss of meaning in life, which shows that those are really our gods, not him. We say, I am angry.
 
-Yes, I'm angry. Enough to die. **The Variety of Idols:**
+Yes, I'm angry. Enough to die.
+
+### The Infinite Variety of Idols
+
+**The Variety of Idols:**
 
 Now, my friends, everybody's idols are different.
 
@@ -152,7 +164,11 @@ We do not control ourselves. We are controlled by the Lord of our life. If Jesus
 
 He has the ultimate power. There are no bargains. Can you detect the things in your life that are controlling you?
 
-The things that you must have? The things that are probably before the Lord and that have to be removed if you're ever going to experience freedom? **God Reveals Our Idols:**
+The things that you must have? The things that are probably before the Lord and that have to be removed if you're ever going to experience freedom?
+
+### How God Exposes and Removes Our Idols
+
+**God Reveals Our Idols:**
 
 Now, Jonah doesn't see his, but God turns around and begins to help him see it.
 
@@ -192,6 +208,8 @@ And they continually rattled the birds in the next tree and rattled the birds in
 
 This thing that you build your life on, this thing that you say you must have to be happy, don't you realize you will never be free? You will never be free from ups and downs. You'll never have lasting, infallible, unassailable certainty and joy until you build your nest in some tree that's not coming down, that's me.
 
+### Abraham and Isaac: Walking Up the Mountain
+
 **Abraham and Isaac - Walking Up the Mountain:**
 
 Abraham and Isaac. Abraham had become the love slave of his son. He loved his son.
@@ -218,7 +236,11 @@ You're going to become pregnant out of wedlock. You're going to have into your l
 
 All Mary wanted was a decent reputation. And when God came and called her away from those things, did she say, I'm angry enough to die? She said, let it be unto me according to thy will.
 
-And was she the worst for that? **Abandoning the False Gods:**
+And was she the worst for that?
+
+### Abandoning the False Gods
+
+**Abandoning the False Gods:**
 
 Now the last thing, how do you actually abandon those gods? How did Jonah do it?
 
@@ -247,6 +269,8 @@ Then you dig up the stump. It's gone and next thing you know, there's roots out 
 And it will continually come back, but every time you'll deal with another blow and another blow and another blow. Those of you who make an idol of approval and love, you thought you dealt with it a year ago, but now you're going to have to come back and you're going to have to take the gospel, the gospel of grace, and you're going to have to say, the only love I really need is the one love that I cannot lose. Those of you who need certainty, you've got to screw the gospel down in your heart and say the only certainty I really need is the one certainty I cannot lose.
 
 And that is that I'm accepted by the free grace of Jesus Christ. That's what you've got to do. That's what you've got to continually do.
+
+### The Only Way to the Heights
 
 **The Path to the Heights:**
 

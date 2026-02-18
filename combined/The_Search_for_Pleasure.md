@@ -4,7 +4,7 @@
 
 ---
 
-## 对快乐的追寻
+## 转向享乐 / The Turn to Pleasure
 
 Welcome to Gospel In Life. Have you ever found yourself asking, what if nothing I do really last? Is this all there is?
 
@@ -166,183 +166,7 @@ Is it good feeling? Is it sensory pleasure? If you do that, you're not doing it 
 
 You're looking to get a life. You're looking to get a sense of worth wellness and it's going to fail. That's the second point.
 
-The first point is what it promises, the second point he gives us and shows us is it fails and it explains why. Now, one of the things it's important to understand and boy, this is very powerful. This is not a regular guy.
-
-No, it isn't. First 10, I denied myself nothing, my eyes desired. Now what's that?
-
-I denied myself nothing, my eyes desired. Now there's only 99.99% of people cannot say that. All of us deny ourselves all sorts of things our eyes desire, mainly because we don't have the money or the power to take them.
-
-And because of that, most of us are going down this path and pleasure is our bottom line and it is the main thing we're living for, even though by and large, unless we're party hearty types, we kind of really, really hide that from ourselves. I'm trying to reveal this to some of you here tonight. But he said, if you're going down that path and you're empty, instead of saying there's something wrong with the path, we have a tendency to say it's because I haven't gone far enough.
-
-If I could build that house in the lake, if I could have a better love life, if I could just lose weight, in other words, because you haven't gone far enough down, that's the reason why you feel like you're empty. You're blaming yourself when it's the path. And what's so very powerful about this, when he is depicting himself as the greatest, the greatest, one of the 0.001% who actually was able to do anything he wanted to satisfy any sensory pleasure.
-
-Now somebody says, well, how do I know that really happened? You kind of made me wonder, is this person really a king or was he taken the role of a king? It doesn't matter.
-
-Here's what he's trying to say. I challenge you. Look at the lives of the people who are in that 0.001%.
-
-Read their biographies, read their interviews. They found exactly what he has. They're just not, the reason they're so unhappy and the reason they're so jevastated is they're not living in the avail of illusion that we are, because they got to the end of the road and there was a dead end.
-
-And we're empty, but we say, well, if I only got further down, well, they got down there. That's the reason why they're so unhappy. They're not happy because they're rich.
-
-They're unhappy because they got to the end of the road. And they saw, they were still just them. It's a powerful argument for the fact that pleasure ultimately fails us.
-
-Not that it fails to deliver the orgasm. Not that it fails to deliver the neurological rhythm. Not that it fails to deliver the comfort of the nice sweater, but it fails to deliver worth-wildness.
-
-It fails to give you what you're really looking for in that is transcendence. We are looking for a way to do an in-run around the fact we have nothing to live for. We have nothing solid.
-
-We have nothing we're sure of. We have nothing that's going to take us to the stars. We have nothing that we think will last past us, to see.
-
-We're looking for transcendence, and it will fail at that. Utterly fail. In two ways, number one, pleasure will fail to distract you.
-
-In verse three, he says, my mind was still guided you with wisdom. He said, I tried cheering myself with wine and bracing folly, but my mind was still guiding me. Down in verse nine, he says, I became greater by far than anyone in Jerusalem.
-
-In all this, my wisdom stayed with me. What is that? What's he talking about?
-
-I'll tell you what he's talking about. This is one of my, as some of you know, one of my favorite quotes from C. S.
-
-Lewis. What he's trying to say is, no matter how hard I tried, through pleasure to forget the fact that I had nothing to live for and nothing means anything, I tried and it broke through. Pleasure.
-
-See, subjective pleasure, trying to talk to wipe out the lack of objective pleasure is like trying to butter too much bread with too little butter. You know, you spread it and by the time the knife gets to the end, there's no butter there. I mean, it wasn't enough butter, it just sunk in.
-
-And in the same way, subjective pleasure fails because no matter how hard he tried to stop thinking, his wisdom stayed with and the truth kept coming through, you know. If your life, if your origin is an accident and your destiny is just rot, if your life, if your origin is insignificant and your destiny is insignificant, have the guts to admit your life is insignificant. Well, now that thought, we try to keep away, but is what Lewis says.
-
-He says, let us suppose that nature is all that exists. This meaningless play of atoms and space in time by a series of a hundred chances has regrettably produced things like ourselves, conscious beings who now know that their own consciousness is an accidental result of the whole meaningless process and is therefore self-meaningless, though to us, alas, we feel significant. In this situation, you might decide to simply have as good time as possible, right?
-
-Say, hey, life is meaningless. Let's have a great time. Why not?
-
-What difference does it make? I might as well have these great feelings. You might decide to have as good a time as possible, but you can't accept it now, listen.
-
-You can't accept in the lowest animal sense. Maybe in love with a girl if you know and you remember that your view of the world means that all the beauties of her person and her character are a momentary and accidental pattern produced by the collision of atoms and your own response to them is only a sort of psychic chemical phosphorescence, arising from the behavior of your genetic material, and you can't go on getting very serious pleasure for music if you know and remember that its air significance is a pure illusion that you like it only because your nervous system is irrationally conditioned to like it. Yes, you may still in the lowest sense of a good time, but just in so far as it becomes very good, just in so far as it ever threatens to push you from cold sensuality on into real warmth and real enthusiasm and real joy, so far will you be forced to feel the hopeless disharmony between your own emotions and the universe in which you think you really live.
-
-It will break through. As time goes on, even if it's unconscious or semi-conscious, the fact that you've got nothing to live for, the wisdom breaks through. It creates a grimness, it creates a joylessness no matter how much pleasure you try to take, but not only does pleasure fail to distract us from the lack of objective reality, but secondly, it fails to satisfy.
-
-Because down in verse 11, at the climax, he says, I looked at it all and everything was meaningless, a chasing after the wind, that was chasing after the wind. Wind is something you can't keep. Wind can be a wonderful experience, but you can't keep it, you can't say, ah, let me grab that thing so I can have that wind tomorrow, it can't be done.
-
-Now on the physical and spiritual level, see, here's what's frightening, I said, that especially in our society, what's really going on when we seek pleasure is we're not after just the physical sensory pleasure, we're after transcendence, we're after worth wildness. Well, first of all, one of the most awful things to know, and addiction counselors will tell you this, is that pleasurable agents, at first give you a rush, but then there's a tolerance factor, pleasurable agents at, you know, A amount, you know, five liters of such a pleasurable agent will give you a great, great experience the first time, but the next time it'll take a little more to get the same amount of experience, the same amount of pleasure. And next time a little bit more, next time a little bit more because we adapt and pleasurable agents wear off in their ability to create pleasure.
-
-And that's how addictions happen. You need more and you need more and you need more and if you're lucky, you can break it off before it completely destroys you and then you just be empty. And that's physical pleasure, physical pleasure is like the wind, it just doesn't stay.
-
-If you give it, if you really rely on it, not if you enjoy it, but if you just rely on it, if you go to it for transcendence, especially it cannot deliver. And Lewis, of course, has some classic stuff about the fact that it's not just physically the pleasure we can't hold on to, but spiritually it disappoints us in this way. He says in one of his more famous quotes, he says, all of your life, there's been an unattainable ecstasy that's hovered just beyond the grasp of your consciousness.
-
-The loft on the verge of breaking through, you know, when you're in a boat or when you're falling in love, you know, when he says, he says, when you're starting into a pleasurable experience, you think, ah, finally, I'll be worth this is it, somehow this is it. He says off on the verge of breaking through and yet you've never had it. All the things that have ever deeply possessed you, your soul, have been but hints of it, tantalizing glimpses, promises never quite fulfilled, echoes that died away just as they were caught year-year.
-
-It's the secret signature of each soul. With the incomunicable and unappeasable want, the thing we desire before we met our wives or made our friends or chose our work and which we shall still desire on our deathbeds when the mind is no longer knowing wife or friend or work. The books of the music in which we thought the beauty was located will betray us if we trust in them.
-
-It was not in them, it only comes through them. If they are mistaken for the thing itself, they turn into dumb idols, breaking the hearts of their worshipers. For they are not the thing itself, they are only the scent of the flower we have not found, the echo of a tune we have not heard, news from a country we have never yet visited.
-
-It gets a music we are born remembering. There's a music we're born remembering, we're trying to hear in music. There's a scent we're born remembering, we're trying to smell in the flower.
-
-Now, what is that? I believe that even though how do you prove it, I can prove it just by saying it. We know that this is true, that that sense of transcendence does not come through.
-
-As he said, the best marriage is the best career is the best houses, in fact, people who get to the very end of the road find it hasn't got their other ones that know the best. Those of us who don't have these wonderful pleasures, we're still in the avail of illusion we think, if only, no. Well, why would this be?
-
-Why isn't pleasure enough? Why do we want to go beyond? Well, here's the pointer in chapter three.
-
-It says, and there's a lot more in chapter three, but we just can't go into it all tonight. He says, he has made everything beautiful in his time. He has also said eternity in the hearts of men yet they cannot fathom what God has done from beginning to end.
-
-Now that's something pretty interesting. Take a look at this. First of all, he says there's all sorts of beautiful things out there.
-
-In fact, if you want to know the definition of a pleasure, it's beauty. Do you want to know the definition of beauty? A beauty is something.
-
-Something is beautiful rather than instrumental. Something is beautiful if it's pleasurable in itself, just for itself. You see, if you studied art because you had to get an A in a class, and then as soon as the class was over, you never went to see art.
-
-Art is fine. Okay. It's just instrumental.
-
-It's not beautiful. But if afterwards you would go when you didn't have to, when it doesn't get you anywhere as a matter of fact, it costs you money. You see, something is beautiful rather than instrumental.
-
-Something is beautiful when it gives you pleasure just because of your delight in it, just to see it, just to let it be there, just to put it on your eyes, on your tongue, on your ear, on your heart. That's what something is. It's beautiful.
-
-But we have seen that there's something wrong because the beautiful things that we set our hearts on, addict us, and yet at the same time, they don't satisfy us. Why? Well, it's the second clause.
-
-He has put eternity in the hearts of men. That's almost a unique verse in the Bible. He has put endlessness in our hearts.
-
-What that means is that there is a desire for an eternal beauty, and that all the beauties that are here, if we set our hearts on them, as Lewis said, they disappoint us because they are only the scent of the flower we haven't smelled. They're only the hint, the echo of a tune we haven't really heard. You know, if there's a music we're born remembering, well, what is it?
-
-Well, in general, it's the face of God. Psalm 16, verse 11, in thy face is fullness of joy in thy right hand, their pleasures for evermore. Psalm 27, verse 4.
-
-One thing, that's an addict. One thing do I seek after. One thing do I ask for to gaze on the beauty of the Lord, and to inquire in his temple.
-
-Now, in general, this is a challenge to everybody. If this is true, a lot of people are in trouble. A lot of you have said, I believe in God, fine, why?
-
-Can I ask you why? I believe in God. Why?
-
-Okay. Well, what do you do about it? Well, I go to church, or I obey to think commandments.
-
-Why? Because I ought to. Why?
-
-Let me keep pushing you. In the end, there's only two, see Christians, real Christians whose lives have been changed, and whose attitude toward pleasures is so different because we can enjoy them. We're not afraid of them now, but on the other hand, they are not the main thing, so they don't addict us either.
-
-The difference between a Christian whose life has really been changed, and a religious person is this, religious people find God useful, instrumental, and Christians are people who have finally found them beautiful, who obey Him just because of who He is. Wouldn't care what else it brought them, just for the delight. You see, religious people and Christians, they share obedience, religious people and Christians may be desperate for God.
-
-They might be obedient to God, so they may have all sorts of awe and reverence to God, but the difference between a Christian and just a religious person and a nice person is that they find them useful, but Christians find them beautiful, that you come after Him and you seek Him and you obey Him because of the beauty of who He is. Has that been true of you? Have you experienced that?
-
-That's what real Christianity is. Well, somebody says, wow, how, how could that happen? Here's the answer.
-
-Jesus Christ, can I tell you what the gospel is? The Bible actually gives you the gospel in terms of beauty. We, because of our sin, have made the world ugly.
-
-We've made our souls ugly. We've made the world ugly. How are we going to be saved from our sin?
-
-We're told in Isaiah chapter 53, the servant came from heaven and he came to earth and we're told this about him. He had, this is, this is Isaiah 53, he had no beauty that we should desire him. Jesus Christ lost his beauty.
-
-Jesus Christ became ugly. Jesus Christ became shriveled. Jesus Christ lost his glory and he lost his beauty.
-
-Why? That's the first half. Because of our sin and what did he do when he died on the cross?
-
-He died on the cross in our place so that when we believe in him, what are we told? In Colossians chapter 1, verse 22, there it tells us so that now when we believe in God, with Jesus, God looks at us and he sees us wholly and spotless without blemish. Listen, religion says, obey God or he'll get you.
-
-The gospel said you've made the world ugly and yourself ugly. Jesus Christ came and lost his beauty so that now when you believe in him, you don't just now, you know, you know, that doesn't just make you a better person in some way. You're beautiful in God's sight.
-
-You are in a sheer beauty to him because he lost his beauty so you could get it. Now, if I tell you obey God or he'll get you, you'll have to treat him as instrumental and frankly, every religion essentially tells you that. But the gospel says, no, look at what he's done for you.
-
-That's beautiful. Do you believe you're a sinner? Do you believe you're lost?
-
-Now a lot of you wouldn't. I mean, you live in New York. A lot of you wouldn't.
-
-Do you know what that means? Until you see that, you'll never find them beautiful. You'll only find them instrumental and you'll never have the things in your heart that are addicting you thrown out for a greater beauty.
-
-Your heart needs an object of beauty. You can't get rid of the ones that are holding on to you just by trying to throw them out. They have to be displaced by a higher beauty, a greater beauty, and this is it.
-
-You'll never find him beautiful. If you just say he's very big and he's very big and I better obey him because he'll crush me. Now, why don't we get beauty that way?
-
-But only if you see that you're a sinner and you see what he's done. That's how you become a Christian, seeing the beauty of the Lord. But now, some of you are Christians and you know what you're saying?
-
-You're saying, I am a Christian, but I'm addicted to something. All right? That's because you're not gazing on his beauty.
-
-You're not gazing. Well, you say, how do I gaze on this beauty? Well, it'd really be another sermon, however.
-
-Just let me just tell you three things. First of all, you have to get to know Jesus, not God in general, Jesus. Jesus became a human being.
-
-He became a sensory person, a human being. He entered into our sensory environment because we can have this kind of intimacy with him so he can really be a beauty to us. I have to read about him.
-
-You have to get to know everything you can about him, everything. That's first. Then secondly, prayer is very deep.
-
-First thing is, get to know Jesus. Secondly, don't think prayer is easy or simple. If you want to make him a professional baseball player, it's going to take a long time.
-
-You can't just get out there. Here's a bat. Here's a ball.
-
-I throw up in the air. I hit the ball. I'm going to go show up.
-
-It's Shay Stadium. Hey, I understand you're in a wild car race. Do you need somebody?
-
-It takes years and years and years. And prayer is a lot harder than that. You haven't even begun to figure out the depths of prayer.
-
-You haven't begun to look at praise. You haven't begun to see what happens through repentance. Beauty happens.
-
-You see the beauty of his majesty. You see the beauty of his symmetry. You see the beauty of his fragility, of his weakness.
-
-You just see it. It comes in prayer. But thirdly, you need the Holy Spirit because you know an artwork needs a light.
-
-Every art gallery has lights. And Jesus Christ is nothing without Holy Spirit. But Jesus says, when the Spirit comes, he will glorify me.
-
-He will take of mine and he will glorify me. Ask the Spirit, learn to pray, look at Jesus, and know that real thing that your heart needs to overcome your addictions is not just a general knowledge of who he is in trying harder, but an experience of his beauty. Thanks for joining us here on the Gospel and Life Podcast.
-
-We hope that today's teaching encouraged you to go deeper into God's Word. You can help others discover this podcast by rating and reviewing it and to find more great Gospel-centered content by Tim Keller, visit GospelUnlife.com. Today's sermon was recorded in 1998.
-
-The sermons and talks you hear on the Gospel and Life Podcast were recorded between 1989 and 2017, while Dr. Keller was senior pastor at Redeemer Presbyterian Church.
-
 ---
-
-注意：这里的“《纽约时报》”保持英文名称，因为这是国际媒体的通用做法。其他部分根据上下文进行了适当的翻译调整，以确保自然流畅和保留原文的意思。
 
 这段是唯一一本从寻找者的视角撰写的书。当你进行灵性探索时，总会遇到一些事情。上一周，我们探讨了《传道书》作者提到的一个问题，那就是痛苦。面对痛苦怎么办？
 
@@ -452,7 +276,85 @@ GK切斯特顿说过，在我们的社会里，疯子不是不讲逻辑的人。
 
 你有没有为了它而拼尽全力的信念？**真正的问题是**：舒适、富裕、感觉良好还是感官上的愉悦吗？如果你这样做，那不是单纯为了享受。你是在寻求一种生活，一种价值感和健康感，而这注定会失败。
 
-这是第二个要点。第一个要点是它所承诺的内容，第二个要点则是它如何展示这一切并解释其原因。现在有一件事非常重要且非常有力需要理解——这可不是一个普通人能做到的。首先，我什么都没拒绝过，我的眼睛也没有错过任何东西。
+这是第二个要点。
+
+---
+
+## 享乐为何失败 / Why Pleasure Fails
+
+The first point is what it promises, the second point he gives us and shows us is it fails and it explains why. Now, one of the things it's important to understand and boy, this is very powerful. This is not a regular guy.
+
+No, it isn't. First 10, I denied myself nothing, my eyes desired. Now what's that?
+
+I denied myself nothing, my eyes desired. Now there's only 99.99% of people cannot say that. All of us deny ourselves all sorts of things our eyes desire, mainly because we don't have the money or the power to take them.
+
+And because of that, most of us are going down this path and pleasure is our bottom line and it is the main thing we're living for, even though by and large, unless we're party hearty types, we kind of really, really hide that from ourselves. I'm trying to reveal this to some of you here tonight. But he said, if you're going down that path and you're empty, instead of saying there's something wrong with the path, we have a tendency to say it's because I haven't gone far enough.
+
+If I could build that house in the lake, if I could have a better love life, if I could just lose weight, in other words, because you haven't gone far enough down, that's the reason why you feel like you're empty. You're blaming yourself when it's the path. And what's so very powerful about this, when he is depicting himself as the greatest, the greatest, one of the 0.001% who actually was able to do anything he wanted to satisfy any sensory pleasure.
+
+Now somebody says, well, how do I know that really happened? You kind of made me wonder, is this person really a king or was he taken the role of a king? It doesn't matter.
+
+Here's what he's trying to say. I challenge you. Look at the lives of the people who are in that 0.001%.
+
+Read their biographies, read their interviews. They found exactly what he has. They're just not, the reason they're so unhappy and the reason they're so jevastated is they're not living in the avail of illusion that we are, because they got to the end of the road and there was a dead end.
+
+And we're empty, but we say, well, if I only got further down, well, they got down there. That's the reason why they're so unhappy. They're not happy because they're rich.
+
+They're unhappy because they got to the end of the road. And they saw, they were still just them. It's a powerful argument for the fact that pleasure ultimately fails us.
+
+Not that it fails to deliver the orgasm. Not that it fails to deliver the neurological rhythm. Not that it fails to deliver the comfort of the nice sweater, but it fails to deliver worth-wildness.
+
+It fails to give you what you're really looking for in that is transcendence. We are looking for a way to do an in-run around the fact we have nothing to live for. We have nothing solid.
+
+We have nothing we're sure of. We have nothing that's going to take us to the stars. We have nothing that we think will last past us, to see.
+
+We're looking for transcendence, and it will fail at that. Utterly fail. In two ways, number one, pleasure will fail to distract you.
+
+In verse three, he says, my mind was still guided you with wisdom. He said, I tried cheering myself with wine and bracing folly, but my mind was still guiding me. Down in verse nine, he says, I became greater by far than anyone in Jerusalem.
+
+In all this, my wisdom stayed with me. What is that? What's he talking about?
+
+I'll tell you what he's talking about. This is one of my, as some of you know, one of my favorite quotes from C. S.
+
+Lewis. What he's trying to say is, no matter how hard I tried, through pleasure to forget the fact that I had nothing to live for and nothing means anything, I tried and it broke through. Pleasure.
+
+See, subjective pleasure, trying to talk to wipe out the lack of objective pleasure is like trying to butter too much bread with too little butter. You know, you spread it and by the time the knife gets to the end, there's no butter there. I mean, it wasn't enough butter, it just sunk in.
+
+And in the same way, subjective pleasure fails because no matter how hard he tried to stop thinking, his wisdom stayed with and the truth kept coming through, you know. If your life, if your origin is an accident and your destiny is just rot, if your life, if your origin is insignificant and your destiny is insignificant, have the guts to admit your life is insignificant. Well, now that thought, we try to keep away, but is what Lewis says.
+
+He says, let us suppose that nature is all that exists. This meaningless play of atoms and space in time by a series of a hundred chances has regrettably produced things like ourselves, conscious beings who now know that their own consciousness is an accidental result of the whole meaningless process and is therefore self-meaningless, though to us, alas, we feel significant. In this situation, you might decide to simply have as good time as possible, right?
+
+Say, hey, life is meaningless. Let's have a great time. Why not?
+
+What difference does it make? I might as well have these great feelings. You might decide to have as good a time as possible, but you can't accept it now, listen.
+
+You can't accept in the lowest animal sense. Maybe in love with a girl if you know and you remember that your view of the world means that all the beauties of her person and her character are a momentary and accidental pattern produced by the collision of atoms and your own response to them is only a sort of psychic chemical phosphorescence, arising from the behavior of your genetic material, and you can't go on getting very serious pleasure for music if you know and remember that its air significance is a pure illusion that you like it only because your nervous system is irrationally conditioned to like it. Yes, you may still in the lowest sense of a good time, but just in so far as it becomes very good, just in so far as it ever threatens to push you from cold sensuality on into real warmth and real enthusiasm and real joy, so far will you be forced to feel the hopeless disharmony between your own emotions and the universe in which you think you really live.
+
+It will break through. As time goes on, even if it's unconscious or semi-conscious, the fact that you've got nothing to live for, the wisdom breaks through. It creates a grimness, it creates a joylessness no matter how much pleasure you try to take, but not only does pleasure fail to distract us from the lack of objective reality, but secondly, it fails to satisfy.
+
+Because down in verse 11, at the climax, he says, I looked at it all and everything was meaningless, a chasing after the wind, that was chasing after the wind. Wind is something you can't keep. Wind can be a wonderful experience, but you can't keep it, you can't say, ah, let me grab that thing so I can have that wind tomorrow, it can't be done.
+
+Now on the physical and spiritual level, see, here's what's frightening, I said, that especially in our society, what's really going on when we seek pleasure is we're not after just the physical sensory pleasure, we're after transcendence, we're after worth wildness. Well, first of all, one of the most awful things to know, and addiction counselors will tell you this, is that pleasurable agents, at first give you a rush, but then there's a tolerance factor, pleasurable agents at, you know, A amount, you know, five liters of such a pleasurable agent will give you a great, great experience the first time, but the next time it'll take a little more to get the same amount of experience, the same amount of pleasure. And next time a little bit more, next time a little bit more because we adapt and pleasurable agents wear off in their ability to create pleasure.
+
+And that's how addictions happen. You need more and you need more and you need more and if you're lucky, you can break it off before it completely destroys you and then you just be empty. And that's physical pleasure, physical pleasure is like the wind, it just doesn't stay.
+
+If you give it, if you really rely on it, not if you enjoy it, but if you just rely on it, if you go to it for transcendence, especially it cannot deliver. And Lewis, of course, has some classic stuff about the fact that it's not just physically the pleasure we can't hold on to, but spiritually it disappoints us in this way. He says in one of his more famous quotes, he says, all of your life, there's been an unattainable ecstasy that's hovered just beyond the grasp of your consciousness.
+
+The loft on the verge of breaking through, you know, when you're in a boat or when you're falling in love, you know, when he says, he says, when you're starting into a pleasurable experience, you think, ah, finally, I'll be worth this is it, somehow this is it. He says off on the verge of breaking through and yet you've never had it. All the things that have ever deeply possessed you, your soul, have been but hints of it, tantalizing glimpses, promises never quite fulfilled, echoes that died away just as they were caught year-year.
+
+It's the secret signature of each soul. With the incomunicable and unappeasable want, the thing we desire before we met our wives or made our friends or chose our work and which we shall still desire on our deathbeds when the mind is no longer knowing wife or friend or work. The books of the music in which we thought the beauty was located will betray us if we trust in them.
+
+It was not in them, it only comes through them. If they are mistaken for the thing itself, they turn into dumb idols, breaking the hearts of their worshipers. For they are not the thing itself, they are only the scent of the flower we have not found, the echo of a tune we have not heard, news from a country we have never yet visited.
+
+It gets a music we are born remembering. There's a music we're born remembering, we're trying to hear in music. There's a scent we're born remembering, we're trying to smell in the flower.
+
+Now, what is that? I believe that even though how do you prove it, I can prove it just by saying it. We know that this is true, that that sense of transcendence does not come through.
+
+As he said, the best marriage is the best career is the best houses, in fact, people who get to the very end of the road find it hasn't got their other ones that know the best. Those of us who don't have these wonderful pleasures, we're still in the avail of illusion we think, if only, no.
+
+---
+
+第一个要点是它所承诺的内容，第二个要点则是它如何展示这一切并解释其原因。现在有一件事非常重要且非常有力需要理解——这可不是一个普通人能做到的。首先，我什么都没拒绝过，我的眼睛也没有错过任何东西。
 
 那是什么意思？（原文中的比喻和对话保持不变） 我什么都没有拒绝，我的眼睛所渴望的也没有得到。现在只有99.99%的人能做到这一点。我们所有人都在拒绝自己眼睛所渴望的一切，主要是因为我们没有足够的钱或权力去拥有它们。
 
@@ -498,6 +400,54 @@ GK切斯特顿说过，在我们的社会里，疯子不是不讲逻辑的人。
 
 那些真正走到终点的人会发现，它们并没有他们所期待的答案。我们中的许多人虽然没有享受到这些美妙的快乐，但我们仍然在幻觉中挣扎，以为如果只有……不，为什么呢？为什么快乐不够？为什么我们要追求更多？
 
+---
+
+## 永恒在人心中 / Eternity in Our Hearts
+
+Well, why would this be?
+
+Why isn't pleasure enough? Why do we want to go beyond? Well, here's the pointer in chapter three.
+
+It says, and there's a lot more in chapter three, but we just can't go into it all tonight. He says, he has made everything beautiful in his time. He has also said eternity in the hearts of men yet they cannot fathom what God has done from beginning to end.
+
+Now that's something pretty interesting. Take a look at this. First of all, he says there's all sorts of beautiful things out there.
+
+In fact, if you want to know the definition of a pleasure, it's beauty. Do you want to know the definition of beauty? A beauty is something.
+
+Something is beautiful rather than instrumental. Something is beautiful if it's pleasurable in itself, just for itself. You see, if you studied art because you had to get an A in a class, and then as soon as the class was over, you never went to see art.
+
+Art is fine. Okay. It's just instrumental.
+
+It's not beautiful. But if afterwards you would go when you didn't have to, when it doesn't get you anywhere as a matter of fact, it costs you money. You see, something is beautiful rather than instrumental.
+
+Something is beautiful when it gives you pleasure just because of your delight in it, just to see it, just to let it be there, just to put it on your eyes, on your tongue, on your ear, on your heart. That's what something is. It's beautiful.
+
+But we have seen that there's something wrong because the beautiful things that we set our hearts on, addict us, and yet at the same time, they don't satisfy us. Why? Well, it's the second clause.
+
+He has put eternity in the hearts of men. That's almost a unique verse in the Bible. He has put endlessness in our hearts.
+
+What that means is that there is a desire for an eternal beauty, and that all the beauties that are here, if we set our hearts on them, as Lewis said, they disappoint us because they are only the scent of the flower we haven't smelled. They're only the hint, the echo of a tune we haven't really heard. You know, if there's a music we're born remembering, well, what is it?
+
+Well, in general, it's the face of God. Psalm 16, verse 11, in thy face is fullness of joy in thy right hand, their pleasures for evermore. Psalm 27, verse 4.
+
+One thing, that's an addict. One thing do I seek after. One thing do I ask for to gaze on the beauty of the Lord, and to inquire in his temple.
+
+Now, in general, this is a challenge to everybody. If this is true, a lot of people are in trouble. A lot of you have said, I believe in God, fine, why?
+
+Can I ask you why? I believe in God. Why?
+
+Okay. Well, what do you do about it? Well, I go to church, or I obey to think commandments.
+
+Why? Because I ought to. Why?
+
+Let me keep pushing you. In the end, there's only two, see Christians, real Christians whose lives have been changed, and whose attitude toward pleasures is so different because we can enjoy them. We're not afraid of them now, but on the other hand, they are not the main thing, so they don't addict us either.
+
+The difference between a Christian whose life has really been changed, and a religious person is this, religious people find God useful, instrumental, and Christians are people who have finally found them beautiful, who obey Him just because of who He is. Wouldn't care what else it brought them, just for the delight. You see, religious people and Christians, they share obedience, religious people and Christians may be desperate for God.
+
+They might be obedient to God, so they may have all sorts of awe and reverence to God, but the difference between a Christian and just a religious person and a nice person is that they find them useful, but Christians find them beautiful, that you come after Him and you seek Him and you obey Him because of the beauty of who He is. Has that been true of you? Have you experienced that?
+
+---
+
 这里有一个线索，在第三章里。它说，整章还有很多内容，但今晚我们无法一一细讲。他说，在他所管理的时期，一切都很美好。他也说过，人心中存着永恒，然而人却不能完全领悟神从头到尾所做的事。
 
 这确实很有趣。让我们来看看。首先，他说世界上有很多美好的事物。事实上，如果你想知道什么是快乐，那就是美。
@@ -542,7 +492,77 @@ GK切斯特顿说过，在我们的社会里，疯子不是不讲逻辑的人。
 
 但现在，你们当中有些人是基督徒，你们在说什么呢？你们在说：“我是基督徒，但我被某种东西所吸引。”好吧？这是因为你没有注视他的美。
 
---- This translation preserves the original markdown formatting, keeps Bible book names in English, and maintains a natural flow while conveying the rhetorical power of the sermon. 你没有在看。你说，我怎么才能看到这种美呢？这又会是另一篇讲道了。让我告诉你三点。
+---
+
+## 福音之美 / The Beauty of the Gospel
+
+That's what real Christianity is. Well, somebody says, wow, how, how could that happen? Here's the answer.
+
+Jesus Christ, can I tell you what the gospel is? The Bible actually gives you the gospel in terms of beauty. We, because of our sin, have made the world ugly.
+
+We've made our souls ugly. We've made the world ugly. How are we going to be saved from our sin?
+
+We're told in Isaiah chapter 53, the servant came from heaven and he came to earth and we're told this about him. He had, this is, this is Isaiah 53, he had no beauty that we should desire him. Jesus Christ lost his beauty.
+
+Jesus Christ became ugly. Jesus Christ became shriveled. Jesus Christ lost his glory and he lost his beauty.
+
+Why? That's the first half. Because of our sin and what did he do when he died on the cross?
+
+He died on the cross in our place so that when we believe in him, what are we told? In Colossians chapter 1, verse 22, there it tells us so that now when we believe in God, with Jesus, God looks at us and he sees us wholly and spotless without blemish. Listen, religion says, obey God or he'll get you.
+
+The gospel said you've made the world ugly and yourself ugly. Jesus Christ came and lost his beauty so that now when you believe in him, you don't just now, you know, you know, that doesn't just make you a better person in some way. You're beautiful in God's sight.
+
+You are in a sheer beauty to him because he lost his beauty so you could get it. Now, if I tell you obey God or he'll get you, you'll have to treat him as instrumental and frankly, every religion essentially tells you that. But the gospel says, no, look at what he's done for you.
+
+That's beautiful. Do you believe you're a sinner? Do you believe you're lost?
+
+Now a lot of you wouldn't. I mean, you live in New York. A lot of you wouldn't.
+
+Do you know what that means? Until you see that, you'll never find them beautiful. You'll only find them instrumental and you'll never have the things in your heart that are addicting you thrown out for a greater beauty.
+
+Your heart needs an object of beauty. You can't get rid of the ones that are holding on to you just by trying to throw them out. They have to be displaced by a higher beauty, a greater beauty, and this is it.
+
+You'll never find him beautiful. If you just say he's very big and he's very big and I better obey him because he'll crush me. Now, why don't we get beauty that way?
+
+But only if you see that you're a sinner and you see what he's done. That's how you become a Christian, seeing the beauty of the Lord. But now, some of you are Christians and you know what you're saying?
+
+You're saying, I am a Christian, but I'm addicted to something. All right? That's because you're not gazing on his beauty.
+
+You're not gazing. Well, you say, how do I gaze on this beauty? Well, it'd really be another sermon, however.
+
+Just let me just tell you three things. First of all, you have to get to know Jesus, not God in general, Jesus. Jesus became a human being.
+
+He became a sensory person, a human being. He entered into our sensory environment because we can have this kind of intimacy with him so he can really be a beauty to us. I have to read about him.
+
+You have to get to know everything you can about him, everything. That's first. Then secondly, prayer is very deep.
+
+First thing is, get to know Jesus. Secondly, don't think prayer is easy or simple. If you want to make him a professional baseball player, it's going to take a long time.
+
+You can't just get out there. Here's a bat. Here's a ball.
+
+I throw up in the air. I hit the ball. I'm going to go show up.
+
+It's Shay Stadium. Hey, I understand you're in a wild car race. Do you need somebody?
+
+It takes years and years and years. And prayer is a lot harder than that. You haven't even begun to figure out the depths of prayer.
+
+You haven't begun to look at praise. You haven't begun to see what happens through repentance. Beauty happens.
+
+You see the beauty of his majesty. You see the beauty of his symmetry. You see the beauty of his fragility, of his weakness.
+
+You just see it. It comes in prayer. But thirdly, you need the Holy Spirit because you know an artwork needs a light.
+
+Every art gallery has lights. And Jesus Christ is nothing without Holy Spirit. But Jesus says, when the Spirit comes, he will glorify me.
+
+He will take of mine and he will glorify me. Ask the Spirit, learn to pray, look at Jesus, and know that real thing that your heart needs to overcome your addictions is not just a general knowledge of who he is in trying harder, but an experience of his beauty. Thanks for joining us here on the Gospel and Life Podcast.
+
+We hope that today's teaching encouraged you to go deeper into God's Word. You can help others discover this podcast by rating and reviewing it and to find more great Gospel-centered content by Tim Keller, visit GospelUnlife.com. Today's sermon was recorded in 1998.
+
+The sermons and talks you hear on the Gospel and Life Podcast were recorded between 1989 and 2017, while Dr. Keller was senior pastor at Redeemer Presbyterian Church.
+
+---
+
+你没有在看。你说，我怎么才能看到这种美呢？这又会是另一篇讲道了。让我告诉你三点。
 
 首先，你要认识耶稣，不是一般的神，而是耶稣。耶稣成为了一位真人。他进入我们的感官世界中，因为我们能与他有这种亲密的关系，所以他可以真正地成为一种美。我必须去了解他。
 

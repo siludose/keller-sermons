@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel in Life. Are you longing to see real change in your life, in your habits, your relationships, your heart? Today, Tim Keller explores how lasting change actually happens in the life of a Christian and why the Gospel offers a radically different process of transformation than anything else.
 
 The scripture is found in Romans 8 verses 13 through 27. For if you live according to the sinful nature, you will die. But if by the Spirit you put to death the misdeeds of the body, you will live.
@@ -25,6 +27,8 @@ I'll tell you why, because if you have a burden, if you're struggling with somet
 And it tells us three things. This text tells us, first of all, it gives us three things. One, it gives us a warning about suffering.
 
 Secondly, it gives us three resources for suffering. And finally, it tells us how you can be sure that those resources will work. A warning about suffering, three resources for dealing with suffering, and how you can be sure that they'll work.
+
+### A Warning: Suffering Is Unavoidable
 
 Okay? First, a warning. Now, this is an amazing passage very long, and I certainly can't take a look at every single thought unit, but in the middle, it talks about groaning.
 
@@ -61,6 +65,8 @@ Don't think, well, not if I'm smart, not if I'm savvy, not if I'm nimble. You ne
 The three resources that Paul tells come with Jesus. You bring Jesus into your life. You get these three resources.
 
 We can name them under the headings, prayer, pattern, perspective. Prayer, pattern, perspective. Okay, let's go through them.
+
+### Resource One: Processing Suffering Through Prayer
 
 First of all, prayer. When you suffer, you can process the suffering through prayer. Well, of course you say, everybody prays.
 
@@ -114,6 +120,8 @@ When you suffer, can you come before God with that kind of confidence to know th
 
 If you are able to process your suffering before God like that, there will be a calm, there will be a groundedness. Okay, that's your first resource, but that's not the only one. There's another one.
 
+### Resource Two: The Death-Resurrection Pattern
+
 The second resource is a pattern. Now what do we mean by a pattern? Well, Paul was a pastor and therefore I do understand this part because I'm a pastor too.
 
 Constantly, there are people who come to pastors and say, if God really loves me, why are all these problems happening to me? If God really loves me, why the tragedy, why the suffering? If he loves me in Jesus like you say, why all this?
@@ -162,7 +170,11 @@ You are the image of God, and you have potential for understanding and wisdom an
 
 Without death, there will never be a resurrection, but it's possible if you share in His suffering, if you follow His pattern, if you do it looking to Him, remembering Him, seeing what He did, following Him, believing in Him, trusting Him, then what happens? What actually happens is you become a diamond under that pressure. That's what it's saying.
 
-So first of all, you've got the processing through prayer. And if you process it through prayer, then you have the hope of this pattern actually being reproduced in your life, but that's not all. The third resource is prayer, pattern, perspective.
+So first of all, you've got the processing through prayer. And if you process it through prayer, then you have the hope of this pattern actually being reproduced in your life, but that's not all.
+
+### Resource Three: The Perspective of Future Glory
+
+The third resource is prayer, pattern, perspective.
 
 And this is the most powerful. Paul's constantly saying what you need in order to handle your suffering is hope. You need patience.
 
@@ -225,6 +237,8 @@ Do you believe that? I don't believe it anything like I ought to, but I'll tell 
 Perspective, grasp it, prayer, process it, and then you will find that suffering only reproduces the pattern of weakness into strength and mediocrity into greatness of character in your life that you see in Jesus Christ, death, into life. Now, finally, you say, well, wow, okay, but how do I know? I mean, you know, here you are a preacher and you're telling me that God sees me in Christ as a child.
 
 But listen, when I suffer, I don't feel that God loves me, or you say in the future, there's going to be this great glory, well, when I suffer, I don't feel it at all. It's unreal to me. I feel maybe even unworthy of it.
+
+### The Spirit Groans: Christmas and the Cross
 
 How can I be sure these resources will work? Here's all I can tell you from this text. Notice it says that the Spirit of God groans.
 

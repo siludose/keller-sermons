@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel in Life. You don't have to look far to see that something's deeply wrong with our world and with us. But is there an answer that gets to the root of why?
 
 In today's message, Tim Keller explores the human condition through stories in the Bible, uncovering what Scripture says about sin and why it's the only explanation deep enough to face the truth about ourselves. Recently, there was an inner church meeting of Christian men in the city called Promise Keepers. I got a chance to speak at it.
@@ -50,6 +52,8 @@ Because promises make identity and they make community. Did you hear that? They 
 
 That's a commitment. That's a promise. Without promises, there's no identity and there's no community and Peter lost both of them at the moment.
 
+### Promises Make Identity
+
 This is what promises make us. First of all promises make identity. Why was Peter wept so bitterly?
 
 I'll tell you why he didn't know who he was. You know why he didn't know who he was? Am I the Peter?
@@ -88,6 +92,8 @@ No, his deepest desire at the moment was to be a coward. Is that all he is? What
 
 That's always the same. By definition, an identity has to be something which a core of sameness about you that is always the same no matter what the circumstances and no matter what the feelings and no matter what the year. That's what an identity is.
 
+### Your Feelings Cannot Be Your Identity
+
 Therefore, you are not your feelings because your feelings are always changed. It means whatever you're committed to, you are your commitments, you are your promises. If you aren't, if instead in every situation, in every, you following your six circumstances and you're following the impulses, you'll never know who you are and nobody else will either because there's nothing that you always are.
 
 Your identity is what you always are. If there's nothing that you that you can say, I always am that because I'm committed to that and no matter how I feel, no matter what the situation is, no matter what the circumstances are, no matter what people say, I'm committed to that. Unless you've got something like that, you don't know who you are.
@@ -125,6 +131,8 @@ You open your hand and there's nothing left. How does Peter know who he is? He h
 He doesn't have a promise that binds together every part of his life. Is he a Christian or isn't he? Is he for Christ or isn't he?
 
 He doesn't know nobody knows. He can't even trust himself now. He's got no identity.
+
+### Promises Make Community
 
 Promises make identity, but also one other thing we have to be brief, but important promises make community. You notice where he goes to weep out. You see that?
 
@@ -192,7 +200,11 @@ If you don't dare to make that promise, you don't have a family. And you only ha
 
 There's no family. There's no marriage. There's no community.
 
-There's no friendship without being willing to rein your own heart in and say, I'm making a point with myself and appointment with myself five years from now, I'm still going to be there for you. Now question, how can we make promises then? If promises make us, how can we make promises?
+There's no friendship without being willing to rein your own heart in and say, I'm making a point with myself and appointment with myself five years from now, I'm still going to be there for you.
+
+### How Can We Make Promises?
+
+Now question, how can we make promises then? If promises make us, how can we make promises?
 
 And here's why a lot of you are asking this question. I know you're saying, I got problems here. I've got real problems with what you're saying.
 
@@ -229,6 +241,8 @@ From then on, Peter became a tremendous leader. He became a man of identity and 
 It's a scary thing to start a church, but the people who got together and said, we're going to start this church even though it's going to cost us an awful lot. There's a community there. See, the more the promise, the greater the promise, and Peter went on and he experienced the identity in the community.
 
 Well, why? How could that possibly be? And here's the answer.
+
+### Jesus the Promise Keeper
 
 He saw Jesus as a promise keeper. Instead of looking at himself, instead of saying, I can do it. You know, will power.
 

@@ -4,17 +4,19 @@
 
 ---
 
-Welcome to Gospel in Life. Christianity isn't just a spiritual practice or set of moral teachings. At its heart, it's the person of Jesus actively pursuing us.
-
-In today's teaching, Tim Keller impacts how Jesus actively seeks us, reveals truth to us, and calls us to Himself. Gospel of Matthew, chapter 1, verses 20 to 23. But after Joseph had considered this, the people of the Lord appeared to him in a dream and said, Joseph, son of David, do not be afraid to take Mary home as your wife, because what is conceived in her is from the Holy Spirit.
-
-She will give birth to a son and you are to give him the name Jesus, because He will save his people from their sins. All this took place to fulfill what the Lord had said through the prophet. The Virgin will be with child and will give birth to a son and they will call him Emanuel, which means God with us.
-
-This is God's Word. If there's one word that sums up Christmas, it comes up all the time in Scripture readings and in the carols at all the services, it's the word Emanuel, Emanuel. It means God with us.
+## 以马内利：最令人反感又最吸引人 / Emmanuel: Most Repulsive and Most Attractive
 
 And it's only got in English eight letters. And yet I tell you it is heavier than the heavens and the earth. I would like to open it up for a moment this morning and I would propose to you that in that one word, Emanuel, you have the most offensive and the most comforting, the most repulsive and the most attractive message that the world has ever heard.
 
 It's the most repulsive and the most attractive. It's the most repulsive because it says Jesus Christ is God and it's the most attractive because it says Jesus Christ is God with us. Look.
+
+---
+
+然而我要告诉你，它比天还重，比地还重。今天早上我想稍微展开一下这个词语，并且向你们提出一个观点：在这个词“以马内利”里，你找到了世界上最令人反感和最令人安慰、最让人排斥和最吸引人的信息。它是最令人反感的，因为它说耶稣基督是神；它又是最吸引人的，因为它说耶稣基督与我们同在。让我们来看一下： 首先，它告诉我们耶稣基督是神。
+
+---
+
+## 圣诞庆祝最令人反感的教义 / Christmas Celebrates the Most Offensive Doctrine
 
 First of all, it tells us that Jesus Christ is God. It's ironic that of all the Christian holidays, this is the one that's most broadly accepted and so popular. It's ironic because of all the Christian holidays, this particular holiday celebrates the one Christian doctrine which is the most offensive, the most in your face.
 
@@ -36,7 +38,29 @@ You know, Jesus says, I am the way of the truth in the life. No one comes to the
 
 And they say, I could accept classic Christianity. I love everything about classic Christianity except for that only wayness. But I can't stand.
 
-It's too exclusive, they say. Now let's say a couple things about that quickly. First of all, the only wayness of Jesus Christ, the only wayness of Christianity is not an intolerant attitude.
+It's too exclusive, they say.
+
+---
+
+有趣的是，在所有基督教节日中，这个节日是最广泛接受和最受欢迎的一个。这很讽刺，因为在这所有的基督教节日中，这个特别的节日庆祝的是最令人反感、最直接的基督教教义。你看，复活节说我们的创始者耶稣基督从死里复活了。有什么能比这更令人反感吗？
+
+恰恰相反，这是伟大的。祂战胜了死亡，取得了胜利。即使在复活节的 Lent 期间，耶稣基督为我们死在十字架上赎罪的说法也依然存在。这有什么可冒犯的呢？
+
+牺牲是为朋友而死的伟大行为，是高尚的行为。但是圣诞节的时候，我们说我们的创始人耶稣基督不仅仅是一个人类教师，就像西方的科学怀疑论者所说的那样；也不仅仅是一种神圣原则或神圣意识的表现，就像东方的哲学家和神秘主义者所说的那样。圣诞节告诉我们的是，耶稣基督是创造宇宙的神本身，超越一切的神本身，祂唯一且永远地成为了一位人类。这使基督教与所有其他哲学或宗教关于神的本质的说法截然不同。
+
+这也让基督教与所有其他哲学或宗教处于对立之中。因为在西方，犹太教和伊斯兰教都说神不可能成为人；而在东方，印度教和佛教则认为神不断成为人。但基督教对此一概不认同。因为基督教说，在圣诞节的时候发生的是，超越一切的创造宇宙之神一次性且永远地取了人性。
+
+东方宗教相信神不断地显现为人，不断地重生。但是，转世的说法与圣诞节所强调的道成肉身完全不同，这就是基督徒所信仰并由圣经宣告的内容：耶稣基督成为了一位人类，祂是超越一切的创造宇宙之神。这非常冒犯人。这也让基督教被称为“唯一之道”。
+
+你知道，耶稣说：“我是道路、真理和生命；没有人能到父那里去，除非是经过我。”这就是所谓的“唯一之道”。许多人对此感到如此愤怒和不满。他们说：我可以接受传统基督教的一切，除了这个“唯一之道”。
+
+但我也无法忍受。它太排外了，他们说。
+
+---
+
+## 唯一之道不是不包容 / The Only Wayness Is Not Intolerance
+
+Now let's say a couple things about that quickly. First of all, the only wayness of Jesus Christ, the only wayness of Christianity is not an intolerant attitude.
 
 Ah, people say that's the problem. If it was only, if only Christians could get rid of that intolerance, if they could only get rid of that exclusive attitude, then I could handle it a lot better. But don't you see?
 
@@ -68,90 +92,9 @@ Whether you're a Christian or you're still exploring faith, The prodigal God wil
 
 Now, here's Dr. Keller with the rest of today's teaching. But before you try to destroy Christmas, that is, and get all the retailers on Fifth Avenue very mad at you whether or not they believe.
 
-I would suggest to you for a moment that you are wrong if you think the Christianity is an exclusive religion and that Christmas makes it an exclusive religion. All my friends, Christmas is telling us that Christianity is a radically inclusive religion and here's what I mean. When you hear someone say, ah yes, Christians believe they have to believe in Jesus to get to God.
-
-Well, I believe that all good people, all worthy people, all decent and moral and loving people, no matter what they believe, can find God. Does that sound more inclusive to you? I tell you that is actually a form of very, very narrow exclusivity.
-
-And here's why a person who says that may look more inclusive than a Christian, but actually their premise is that morality and goodness is enough to find God. That's their premise. Their premise is that that's enough to be loving, to be compassionate.
-
-That's enough to find the divine, that's enough to find the good. Anyone they say who is really wonderful and loving and disciplined and diligent and able can find God, what about the rest of us? You exclusive types who say anybody, no matter what they believe, any good person can find God.
-
-What about those of us who are not disciplined? What about those of us who are not unselfish? What about those of us who have lived lives in our record when we look at it, we're not proud of it at all?
-
-What about those of us who are nervous wrecks? Don't you see, you're so called exclusivity and basically all religions and all philosophies outside of Christianity say the same thing. They say here's how you should live a good and decent and moral life and anyone who lives a good and decent moral life can find the divine.
-
-That's radically exclusive because that means that your religion is only for the able, only for the discipline, only for the good. What about us failures? See Christianity is radically inclusive.
-
-It's the one religion that says no matter who you are, no matter what you've done, no matter what your record is. You can unite with God. You can be welcomed into his family because all other religions say we've got, here's what to do.
-
-Let's go to God. Christianity says God's come to us and he's come in the form of a person and all you have to do is believe in him, grab hold of him. When John the Baptist says to Jesus, how do we know you're the one to come?
-
-And Jesus says, Matthew 11, he says this, he says look it, the blind see, the lame walk, the lepers are cleansed, the poor have good news for each of them, the lepers, the poor, the outcast, the failures, the marginal people, the people that every other religion so-called inclusive religions to say all good and able when cultured people are able to find God. I have a religion says Jesus that's radically inclusive, that brings them all in because I'm not a prophet telling you how to get to God, I'm God who's come to you, I'm in man you well, I am God with you. It says in 1 Corinthians 1, the same kind of thing.
-
-Paul says consider your calling my friends, he says to the Christian church there. Not many of you were wise, not many of you were influential, not many of you were of noble birth, but God chose the foolish things to shame the wise, God chose the weak things to shame the strong, God chose the despised things and even the things that are not to bring to nothing, the things that are that no one will boast in its presence. Don't you see Christianity is radically inclusive, it doesn't just include the strong, but the weak, not just the wise, but the foolish.
-
-Everything else about Christianity makes no sense without Christmas. Jesus is God and that's why his death is so valuable, otherwise his death is of limited significance. Jesus says God and that's why his claims make sense.
-
-Jesus says God and that's why it does make all other religions obsolete. Oh, you hate to hear that because it's so much more radically inclusive than they are. Jesus says no matter who you are, no matter what you've done, take hold of me, rest of me, all you need is need, all you need is nothing.
-
-See, repulsive and attractive at once, he is not only God but God with us. Listen friends, as I conclude, let me just point this out to you. This is a medicine chest, Christmas is a medicine chest in which you've got the medicine to heal whatever ails you.
-
-And I wish you saw that and I every year I try to break through the sentimental feelings and the nostalgic feelings that you get whenever you come to a Christmas service. I want you to see what's really there. Let me give you just a couple real quick examples.
-
-Some of you have guilty consciences today. Like Lady Macbeth, you're walking around and you can't get out that damn spot. And somebody's told you, well, this is low self esteem, but if you're more candid, it's guilt.
-
-You failed, you've come up short and you are trying to pay for it and you'll never understand your life until you begin to understand it in terms of moral economics. You're trying to pay for your failures with your tears or you're trying to pay with your good deeds or you're trying to pay with your accomplishments or with your achievements or you're trying to pay through self destructive behavior or you're trying to pay through rescuing people with them, you're trying to pay. Look at Jesus through Emmanuel.
-
-Who was it that died on the cross for you? God. Not just anybody, not just a nice guy, God.
-
-It says in Acts 20 verse 28, God redeemed us with his own blood, the blood of God. What is that worth? Anything.
-
-So stop trying to pay. Stop trying to get that damn spot out, as the lady Macbeth would say, with your tears and with your efforts, come to him, he's a man you will. He died for you.
-
-God died for you. One drop of his blood will pay for anything. You can put it behind you.
-
-You've got to stop there. Don't you see, Emmanuel is a medicine that will handle anything. But most of all, let me say now what I said at the beginning of the service, Emmanuel is all about God coming to be with us.
-
-And if God, the great God of the universe, would become a wriggling little baby for us, what should you be willing to do to get near him? It cost him tremendously to get near us. It's going to cost you something to get near him, but nothing like what it cost him.
-
-You're going to have to give up your sins. You're going to have to give up your life. You may have to give up a lot more of your time.
-
-But if you have a God who's willing to come this far to get near you, don't you think that when you make the effort to get near him, he'll respond, claw, clutch, crawl, do anything to get near this God. Or there's anything in your life keeping you away from him now, get rid of it. He's God with us, Emmanuel.
-
-Come to him, let's pray. Father, we ask now that you would grant to us to see the repulsive attractiveness of this great truth. We pray that you would help us to use it on our lives and use it on our hearts so that we would see the radical grace that's therein.
-
-And we would also see that this is something that will cure us of anything, no matter what we've done, no matter where we are, no matter how far away we are, we can come near because your son came to us. We pray that you'd help us by your Holy Spirit to apply these great truths to our hearts and our lives now. We ask it in Jesus' name, amen.
-
-Thanks for joining us here on the Gospel and Life podcast. We hope that today's teaching encouraged you to go deeper into God's word. You can help others discover this podcast by rating and reviewing it and to find more great Gospel-centered content by Tim Keller, visit GospelUnlife.com.
-
-Today's sermon was recorded in 1993. The sermons and talks you hear on the Gospel and Life podcast were recorded between 1989 and 2017, while Dr. Keller was senior pastor at Redeemer Presbyterian Church.
-
 ---
 
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎收听《生命中的福音》。基督教不仅仅是灵性修炼或道德教诲。在它的核心，它是耶稣基督积极地追求我们。今天我们要学习的是提摩太·基勒如何阐述耶稣积极地寻求我们、向我们揭示真理并呼召我们归向祂的内容。
-
-马太福音第一章20至23节。但约瑟心里正想这事的时候，有主的使者在梦中向他显现，说：“约瑟，大卫的儿子，不要惧怕，只管娶过你的妻子马利亚来；因她所怀的孕是从圣灵来的。她将要生一个儿子，你要给他起名叫耶稣，因为祂要将自己的百姓从罪恶里救出来。”这一切的事都是主借着先知所说的话要应验的：“必有童女怀孕生子，人要称祂的名字为以马内利。
-
-”（意即：神与我们同在。） 这是上帝的话语。如果有一个词能概括圣诞节，它在圣经读经和所有礼拜的圣诞颂歌中经常出现，这个词就是“以马内利”，以马内利。这个词只有八个字母。
-
-然而我要告诉你，它比天还重，比地还重。今天早上我想稍微展开一下这个词语，并且向你们提出一个观点：在这个词“以马内利”里，你找到了世界上最令人反感和最令人安慰、最让人排斥和最吸引人的信息。它是最令人反感的，因为它说耶稣基督是神；它又是最吸引人的，因为它说耶稣基督与我们同在。让我们来看一下： 首先，它告诉我们耶稣基督是神。
-
-有趣的是，在所有基督教节日中，这个节日是最广泛接受和最受欢迎的一个。这很讽刺，因为在这所有的基督教节日中，这个特别的节日庆祝的是最令人反感、最直接的基督教教义。你看，复活节说我们的创始者耶稣基督从死里复活了。有什么能比这更令人反感吗？
-
-恰恰相反，这是伟大的。祂战胜了死亡，取得了胜利。即使在复活节的 Lent 期间，耶稣基督为我们死在十字架上赎罪的说法也依然存在。这有什么可冒犯的呢？
-
-牺牲是为朋友而死的伟大行为，是高尚的行为。但是圣诞节的时候，我们说我们的创始人耶稣基督不仅仅是一个人类教师，就像西方的科学怀疑论者所说的那样；也不仅仅是一种神圣原则或神圣意识的表现，就像东方的哲学家和神秘主义者所说的那样。圣诞节告诉我们的是，耶稣基督是创造宇宙的神本身，超越一切的神本身，祂唯一且永远地成为了一位人类。这使基督教与所有其他哲学或宗教关于神的本质的说法截然不同。
-
-这也让基督教与所有其他哲学或宗教处于对立之中。因为在西方，犹太教和伊斯兰教都说神不可能成为人；而在东方，印度教和佛教则认为神不断成为人。但基督教对此一概不认同。因为基督教说，在圣诞节的时候发生的是，超越一切的创造宇宙之神一次性且永远地取了人性。
-
-东方宗教相信神不断地显现为人，不断地重生。但是，转世的说法与圣诞节所强调的道成肉身完全不同，这就是基督徒所信仰并由圣经宣告的内容：耶稣基督成为了一位人类，祂是超越一切的创造宇宙之神。这非常冒犯人。这也让基督教被称为“唯一之道”。
-
-你知道，耶稣说：“我是道路、真理和生命；没有人能到父那里去，除非是经过我。”这就是所谓的“唯一之道”。许多人对此感到如此愤怒和不满。他们说：我可以接受传统基督教的一切，除了这个“唯一之道”。
-
-但我也无法忍受。它太排外了，他们说。现在让我们快速地说一下这个观点。首先，耶稣基督的唯一性，基督教的唯一性，并不是一种不容忍的态度。
+现在让我们快速地说一下这个观点。首先，耶稣基督的唯一性，基督教的唯一性，并不是一种不容忍的态度。
 
 人们常说这就是问题所在。如果只有基督徒能去除这种不容忍的态度，如果他们能摆脱那种排外的心态，那我就能更好地接受它。但你有没有发现？基督教的唯一性并不是态度的问题，也不是心理上的事情。
 
@@ -173,11 +116,53 @@ Today's sermon was recorded in 1993. The sermons and talks you hear on the Gospe
 
 《浪子的神》是本月我们感谢您的礼物，旨在通过福音和生命向全世界的人们分享基督宽厚而不懈之爱的希望与喜悦。请访问 gospelandlife.com/give 获取您的副本。现在，请听提摩西·凯勒博士继续今天的教导。但在你试图摧毁圣诞节之前——无论他们是否相信——先提醒你一件事：如果你认为基督教是一个排他的宗教，圣诞节并不会让这个宗教变得排他，那么你错了。
 
+---
+
+## 圣诞使基督教极具包容性 / Christmas Makes Christianity Radically Inclusive
+
+I would suggest to you for a moment that you are wrong if you think the Christianity is an exclusive religion and that Christmas makes it an exclusive religion. All my friends, Christmas is telling us that Christianity is a radically inclusive religion and here's what I mean. When you hear someone say, ah yes, Christians believe they have to believe in Jesus to get to God.
+
+Well, I believe that all good people, all worthy people, all decent and moral and loving people, no matter what they believe, can find God. Does that sound more inclusive to you? I tell you that is actually a form of very, very narrow exclusivity.
+
+And here's why a person who says that may look more inclusive than a Christian, but actually their premise is that morality and goodness is enough to find God. That's their premise. Their premise is that that's enough to be loving, to be compassionate.
+
+That's enough to find the divine, that's enough to find the good. Anyone they say who is really wonderful and loving and disciplined and diligent and able can find God, what about the rest of us? You exclusive types who say anybody, no matter what they believe, any good person can find God.
+
+---
+
 亲爱的朋友，圣诞节告诉我们，基督教是一种极富包容性的宗教。**这意味着什么？当你听到有人说：“是的，基督徒们相信必须相信耶稣才能见到神。**” 好吧，我相信所有善良的人、值得尊敬的人、正直有道德和充满爱的人，无论他们信仰什么，都能找到上帝。
 
 这听起来更包容了吗？其实这是一种非常狭隘的排他性。而且这里有一个原因：说这种话的人看似比基督徒更加包容，但实际上他们的前提是认为道德与善良足以找到上帝。这就是他们的前提——认为这是足够的爱、足够的同情心。
 
-这是找到神圣、找到美好的足够条件。他们认为任何真正优秀、充满爱、自律和勤奋的人都能找到上帝，那我们呢？你们这些自认为是排他性的人说，无论别人相信什么，所有善良的人都能找到上帝。那那些不自律的我们怎么办？
+这是找到神圣、找到美好的足够条件。他们认为任何真正优秀、充满爱、自律和勤奋的人都能找到上帝，那我们呢？你们这些自认为是排他性的人说，无论别人相信什么，所有善良的人都能找到上帝。
+
+---
+
+## 为失败者预备的信仰 / A Religion for Failures, Not Just the Able
+
+What about those of us who are not disciplined? What about those of us who are not unselfish? What about those of us who have lived lives in our record when we look at it, we're not proud of it at all?
+
+What about those of us who are nervous wrecks? Don't you see, you're so called exclusivity and basically all religions and all philosophies outside of Christianity say the same thing. They say here's how you should live a good and decent and moral life and anyone who lives a good and decent moral life can find the divine.
+
+That's radically exclusive because that means that your religion is only for the able, only for the discipline, only for the good. What about us failures? See Christianity is radically inclusive.
+
+It's the one religion that says no matter who you are, no matter what you've done, no matter what your record is. You can unite with God. You can be welcomed into his family because all other religions say we've got, here's what to do.
+
+Let's go to God. Christianity says God's come to us and he's come in the form of a person and all you have to do is believe in him, grab hold of him. When John the Baptist says to Jesus, how do we know you're the one to come?
+
+And Jesus says, Matthew 11, he says this, he says look it, the blind see, the lame walk, the lepers are cleansed, the poor have good news for each of them, the lepers, the poor, the outcast, the failures, the marginal people, the people that every other religion so-called inclusive religions to say all good and able when cultured people are able to find God. I have a religion says Jesus that's radically inclusive, that brings them all in because I'm not a prophet telling you how to get to God, I'm God who's come to you, I'm in man you well, I am God with you. It says in 1 Corinthians 1, the same kind of thing.
+
+Paul says consider your calling my friends, he says to the Christian church there. Not many of you were wise, not many of you were influential, not many of you were of noble birth, but God chose the foolish things to shame the wise, God chose the weak things to shame the strong, God chose the despised things and even the things that are not to bring to nothing, the things that are that no one will boast in its presence. Don't you see Christianity is radically inclusive, it doesn't just include the strong, but the weak, not just the wise, but the foolish.
+
+Everything else about Christianity makes no sense without Christmas. Jesus is God and that's why his death is so valuable, otherwise his death is of limited significance. Jesus says God and that's why his claims make sense.
+
+Jesus says God and that's why it does make all other religions obsolete. Oh, you hate to hear that because it's so much more radically inclusive than they are. Jesus says no matter who you are, no matter what you've done, take hold of me, rest of me, all you need is need, all you need is nothing.
+
+See, repulsive and attractive at once, he is not only God but God with us.
+
+---
+
+那那些不自律的我们怎么办？
 
 那些自私的我们怎么办？那些回顾自己的人生记录时，根本无法为自己感到骄傲的我们怎么办？那些神经兮兮的我们又该怎么办？你没看到吗？
 
@@ -193,6 +178,30 @@ Today's sermon was recorded in 1993. The sermons and talks you hear on the Gospe
 
 耶稣说他是上帝，这就是为什么其他所有宗教都变得不再重要。哦，你们不喜欢听到这一点，因为它比其他任何宗教都要包容得多。耶稣说，无论你是谁，无论你做过什么，只要抓住我，依靠我，你需要的一切，你都需要的，就是我。看看吧，既令人厌恶又吸引人，他不仅是上帝，而且是与我们同在的上帝。
 
+---
+
+## 以马内利：治愈一切的良药 / Emmanuel: A Medicine for Every Ailment
+
+Listen friends, as I conclude, let me just point this out to you. This is a medicine chest, Christmas is a medicine chest in which you've got the medicine to heal whatever ails you.
+
+And I wish you saw that and I every year I try to break through the sentimental feelings and the nostalgic feelings that you get whenever you come to a Christmas service. I want you to see what's really there. Let me give you just a couple real quick examples.
+
+Some of you have guilty consciences today. Like Lady Macbeth, you're walking around and you can't get out that damn spot. And somebody's told you, well, this is low self esteem, but if you're more candid, it's guilt.
+
+You failed, you've come up short and you are trying to pay for it and you'll never understand your life until you begin to understand it in terms of moral economics. You're trying to pay for your failures with your tears or you're trying to pay with your good deeds or you're trying to pay with your accomplishments or with your achievements or you're trying to pay through self destructive behavior or you're trying to pay through rescuing people with them, you're trying to pay. Look at Jesus through Emmanuel.
+
+Who was it that died on the cross for you? God. Not just anybody, not just a nice guy, God.
+
+It says in Acts 20 verse 28, God redeemed us with his own blood, the blood of God. What is that worth? Anything.
+
+So stop trying to pay. Stop trying to get that damn spot out, as the lady Macbeth would say, with your tears and with your efforts, come to him, he's a man you will. He died for you.
+
+God died for you. One drop of his blood will pay for anything. You can put it behind you.
+
+You've got to stop there. Don't you see, Emmanuel is a medicine that will handle anything.
+
+---
+
 朋友们，请听我说，在我结束时，让我再强调一点。圣诞节就像一个药箱，里面装有治愈一切疾病的药物。```markdown 我希望大家能看清这一点，每年我都在努力突破你们在圣诞节礼拜时所感受到的怀旧情绪和感伤。我想让你们看到真正的东西。
 
 让我给你们举几个真实的例子。有些人今天心里有负罪感，就像麦克白夫人一样，你走来走去，那个污点怎么也擦不掉。有人告诉你这是自卑感，但如果你更坦诚的话，那其实是内疚。你失败了，没有达到预期，试图用眼泪、善行、成就或自我毁灭行为来弥补，甚至通过救助他人来赎罪。
@@ -203,7 +212,31 @@ Today's sermon was recorded in 1993. The sermons and talks you hear on the Gospe
 
 不要再像麦克白夫人那样，试图通过眼泪和努力来擦掉那个污点，而是来到他面前，他会接纳你。因为他为你而死。上帝为你而死。一滴他的血就能赎买一切。
 
-你可以放下这一切。你们必须在这里停下来。难道你看不出来，“神与我们同在”是一种可以解决任何问题的药方吗？但最重要的是，我要再次强调我在礼拜开始时所说的——“神与我们同在”全部关于上帝来到我们中间。
+你可以放下这一切。你们必须在这里停下来。
+
+---
+
+## 靠近上帝的代价 / The Cost of Getting Near God
+
+But most of all, let me say now what I said at the beginning of the service, Emmanuel is all about God coming to be with us.
+
+And if God, the great God of the universe, would become a wriggling little baby for us, what should you be willing to do to get near him? It cost him tremendously to get near us. It's going to cost you something to get near him, but nothing like what it cost him.
+
+You're going to have to give up your sins. You're going to have to give up your life. You may have to give up a lot more of your time.
+
+But if you have a God who's willing to come this far to get near you, don't you think that when you make the effort to get near him, he'll respond, claw, clutch, crawl, do anything to get near this God. Or there's anything in your life keeping you away from him now, get rid of it. He's God with us, Emmanuel.
+
+Come to him, let's pray. Father, we ask now that you would grant to us to see the repulsive attractiveness of this great truth. We pray that you would help us to use it on our lives and use it on our hearts so that we would see the radical grace that's therein.
+
+And we would also see that this is something that will cure us of anything, no matter what we've done, no matter where we are, no matter how far away we are, we can come near because your son came to us. We pray that you'd help us by your Holy Spirit to apply these great truths to our hearts and our lives now. We ask it in Jesus' name, amen.
+
+Thanks for joining us here on the Gospel and Life podcast. We hope that today's teaching encouraged you to go deeper into God's word. You can help others discover this podcast by rating and reviewing it and to find more great Gospel-centered content by Tim Keller, visit GospelUnlife.com.
+
+Today's sermon was recorded in 1993. The sermons and talks you hear on the Gospel and Life podcast were recorded between 1989 and 2017, while Dr. Keller was senior pastor at Redeemer Presbyterian Church.
+
+---
+
+难道你看不出来，"神与我们同在"是一种可以解决任何问题的药方吗？但最重要的是，我要再次强调我在礼拜开始时所说的——"神与我们同在"全部关于上帝来到我们中间。
 
 如果宇宙中伟大的上帝愿意成为一个小婴儿来接近我们，你愿意为此付出什么代价呢？他为了接近我们付出了巨大的代价。你接近他的代价可能会很大，但绝不会像他所付出的那么大。你们必须舍弃罪恶，舍弃生命。
 

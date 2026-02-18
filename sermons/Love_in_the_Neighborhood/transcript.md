@@ -60,6 +60,9 @@ It doesn't say, here's how to get it. It assumes you've already got it and you s
 
 Can you say, how can that be? Well, that will be seen as we go. So we mustn't read it individualistically, and we mustn't read it moralistically.
 
+### Three Dimensions of Love
+
+
 That's the farest. Now, let's get to the first tree because we're going to do this for the rest of the spring, all the way to June. The first tree is relationships.
 
 What we have here in this very famous passage that we just read, there's another version of it in Matthew 5, but it's a lot longer than the other place where we have the servant on the mount. There's a shorter version of it, and therefore, I pull it out because it fits the page, see? It's on the page.
@@ -121,6 +124,9 @@ Or I went to school with some of them. I know some of them, however, they are, b
 And you actually think of them as sort of kind of strange in many ways, or even people that you really just don't respect. Now, you may be civil to them, but you don't do for them. You don't do good.
 
 You don't lay yourself out. You don't open your heart home. You don't open your purse.
+
+### Loving Beyond Your Circle
+
 
 You don't open your heart. You don't open your life. You hang with the people who are like you.
 
@@ -184,6 +190,9 @@ Jesus is actually saying, literally, I'll tell you what he's saying. He says, if
 
 Because the word that's translated credit is the New Testament word for grace, caress. It's the New Testament word that means unmerited love. And when he says, if you only love those who love you, where's the unmerited love in that?
 
+### Radical Inclusion
+
+
 Well, now that's a little weird, but here's what he's saying. Number one, he's saying, when you love your own kind, and not others, when you love people who are giving you some kind of emotional payoff or some kind of social payoff, that they're helping you socially, or they're helping you in your self-esteem, whenever you, you know, I mean, you've got to be careful. Think about this.
 
 Religious people look like they're kind of working with draining people, and they're working with needy people, you know, they look like it very often, but why? Why are you doing it? Are you not doing it so that you can say, I know God loves me, because look at the kind of person I am.
@@ -245,6 +254,9 @@ First of all, look at verse 27-28, these are very famous places. Love your enemy
 Listen, first of all, look at the word butt. What's the word butt, therefore? It's a contrast.
 
 Well, what came before it? Well, we read it three weeks ago, Jesus Christ in the beginning of Luke, this is the Luke version. Jesus Christ says, blessed of the poor, blessed of those who grieve, blessed of those who rejected, woe to the rich, woe to those who are in power.
+
+### Love Demands Justice
+
 
 Well, remember that? Jesus is calling for justice. Jesus saying, we have to oppose injustice, we've got to go against injustice, but you must turn the other cheek.
 

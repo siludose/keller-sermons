@@ -4,6 +4,8 @@
 
 ---
 
+## 引言与经文诵读 / Introduction and Scripture Reading
+
 Welcome to Gospel in Life. During January, we're inviting our listeners to consider becoming a Gospel in Life monthly partner. Monthly partners are an important part in helping us to plan for how we can be the most effective in reaching people all over the world with the gospel.
 
 If you'd like to become a monthly partner, just visit gospelinlife.com slash partner. That's gospelinlife.com slash partner. What comes to mind when you hear about the Ten Commandments?
@@ -21,6 +23,26 @@ Do you not know that your body is a temple of the Holy Spirit who is in you, who
 Therefore honor God with your body. Now for the matters you wrote about, it's good for a man not to marry, but since there's much immorality, each man should have his own wife and each woman her own husband. The husband should fulfill his marital duty to his wife and likewise the wife to her husband, for the wife's body does not belong to her, but to her husband.
 
 And in the same way the husband's body does not belong to him, but to his wife. Do not deprive each other except by mutual consent and only for a time so that you may devote yourselves perhaps to prayer, but then come together again so that Satan will not tempt you because of your lack of self-control. Here ends the reading of God's word.
+
+---
+
+欢迎来到Gospel in Life.在一月份，我们邀请听众考虑成为Gospel in Life的月度合作伙伴。月度合作伙伴在帮助我们规划如何最有效地向全世界传播福音方面起着重要作用。如果您愿意成为月度合作伙伴，只需访问gospelinlife.com/partner.那是gospelinlife.com/partner.当您听到十诫时，您会想到什么？对许多人来说，它们带来了内疚和羞耻的感觉，或者它们似乎是一份不可能遵守的规则清单。
+
+在今天的讲道中，蒂姆·凯勒向我们展示了上帝并没有给我们十诫来用无法实现的道德标准压垮我们，而是指向耶稣基督，唯一完美履行上帝律法的人。让我读一下哥林多前书第六章。我将从第六章第15节读到第七章第5节。哥林多前书16章第15节到第七章第5节。
+
+你们不知道你们的身体是基督的肢体吗？我岂可将基督的肢体与娼妓联合呢？绝对不可。你们不知道与娼妓联合的人就是与她成为一体吗？
+
+因为经上说，二人成为一体。但与主联合的，便是与主成为一灵。要逃避淫乱。人所犯的无论是什么罪，都是在身体以外，但行淫的却是得罪自己的身体。
+
+你们不知道你们的身体是圣灵的殿吗？这圣灵是从神而来，住在你们里面的。并且你们不是自己的人，因为你们是重价买来的。所以要在你们的身体上荣耀神。
+
+关于你们所写的事，我认为男人不结婚是好的，但由于有许多淫乱，每个男人都应该有自己的妻子，每个女人也应该有自己的丈夫。丈夫应履行对妻子的婚姻义务，妻子对丈夫也是如此，因为妻子的身体不属于自己，而是属于丈夫。同样，丈夫的身体也不属于自己，而是属于妻子。除非双方同意，并且只是暂时的，以便你们可以专心祷告，否则不要彼此亏欠，但要再次结合，以免撒旦因你们缺乏自制而诱惑你们。
+
+这里结束了上帝的话语的阅读。
+
+---
+
+## 基督教激进的性伦理 / Christianity's Radical Sexual Ethic
 
 People have been waiting for this for weeks. They continually say, with that view of sex that you have, they say to me, with that view of sex that you have, I can't wait till you start preaching about it in New York. Listen, the early Romans, when Christianity was first bursting onto the scene, the early Romans were amazed and astounded about Christianity in two particulars.
 
@@ -288,22 +310,7 @@ The sermons and talks you hear on the Gospel in Life podcast were recorded betwe
 
 ---
 
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到Gospel in Life.在一月份，我们邀请听众考虑成为Gospel in Life的月度合作伙伴。月度合作伙伴在帮助我们规划如何最有效地向全世界传播福音方面起着重要作用。如果您愿意成为月度合作伙伴，只需访问gospelinlife.com/partner.那是gospelinlife.com/partner.当您听到十诫时，您会想到什么？对许多人来说，它们带来了内疚和羞耻的感觉，或者它们似乎是一份不可能遵守的规则清单。
-
-在今天的讲道中，蒂姆·凯勒向我们展示了上帝并没有给我们十诫来用无法实现的道德标准压垮我们，而是指向耶稣基督，唯一完美履行上帝律法的人。让我读一下哥林多前书第六章。我将从第六章第15节读到第七章第5节。哥林多前书16章第15节到第七章第5节。
-
-你们不知道你们的身体是基督的肢体吗？我岂可将基督的肢体与娼妓联合呢？绝对不可。你们不知道与娼妓联合的人就是与她成为一体吗？
-
-因为经上说，二人成为一体。但与主联合的，便是与主成为一灵。要逃避淫乱。人所犯的无论是什么罪，都是在身体以外，但行淫的却是得罪自己的身体。
-
-你们不知道你们的身体是圣灵的殿吗？这圣灵是从神而来，住在你们里面的。并且你们不是自己的人，因为你们是重价买来的。所以要在你们的身体上荣耀神。
-
-关于你们所写的事，我认为男人不结婚是好的，但由于有许多淫乱，每个男人都应该有自己的妻子，每个女人也应该有自己的丈夫。丈夫应履行对妻子的婚姻义务，妻子对丈夫也是如此，因为妻子的身体不属于自己，而是属于丈夫。同样，丈夫的身体也不属于自己，而是属于妻子。除非双方同意，并且只是暂时的，以便你们可以专心祷告，否则不要彼此亏欠，但要再次结合，以免撒旦因你们缺乏自制而诱惑你们。
-
-这里结束了上帝的话语的阅读。人们等待这个已经好几个星期了。他们不断地说，基于你对性的看法，他们对我说，基于你对性的看法，我迫不及待地想在纽约听你讲道。听着，早期的罗马人，当基督教首次出现时，早期的罗马人对基督教的两个特点感到惊讶。
+人们等待这个已经好几个星期了。他们不断地说，基于你对性的看法，他们对我说，基于你对性的看法，我迫不及待地想在纽约听你讲道。听着，早期的罗马人，当基督教首次出现时，早期的罗马人对基督教的两个特点感到惊讶。
 
 他们对两个特别的事情感到绝对惊讶。其一是基督徒极其慷慨，另一个是他们极其纯洁。一方面，他们相信将大部分收入捐给穷人。其次，他们相信婚姻之外没有性行为。
 

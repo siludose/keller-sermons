@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 **Introduction:**
 
 Welcome to Gospel in Life. During January, we're inviting our listeners to consider becoming a Gospel in Life monthly partner. If you'd like to learn more, keep listening at the end of today's podcast for details.
@@ -25,6 +27,8 @@ You have heard that it was said, love your neighbor and hate your enemy. But I t
 If you love those who love you, what reward will you get? Are not even the tax collectors doing that? And if you greet only your own brothers, what are you doing more than others?
 
 Do not even pagans do that. Be perfect, therefore, as your heavenly father is perfect. This is the word of the Lord.
+
+### The Sixth Commandment and the Radical Ethic of Love
 
 **The Sixth Commandment and the Radical Ethic of Love:**
 
@@ -54,6 +58,8 @@ The package is Christianity itself is actually an interconnected set of radicall
 
 It's a faith. It's many things. But one of the ways to understand it is to think of it as an interconnected set of radically altered relationships.
 
+### Christianity as Interconnected Transformed Relationships
+
 This passage shows you how they are interconnected. It goes like this. A Christian is someone who's come into a radically new relationship with God.
 
 And because you have come into that new relationship with God, it creates a brand new and unique relationship to yourself. And because you've come into a brand new relationship and attitude toward yourself, it results in a completely unique and different attitude and relationship to the world and the people around you. You see that a new relationship of God creates a new relationship with yourself, creates a new relationship with others.
@@ -75,6 +81,8 @@ Let's take a look at those three aspects. Christianity is an interconnected set 
 They all fit together. Now, as we move through the passage, we'll see, first of all, we see what God says a Christian's understanding of him or herself is. Then we'll see the relationship with others.
 
 And finally, we'll see the root of it all, a new relationship with God. We move through the passage. So let's do that.
+
+### A Restructured Attitude Toward Self
 
 **A Restructured Attitude Toward Self:**
 
@@ -116,6 +124,8 @@ Please sit right here. I'm fine, thank you. Can I get you something?
 
 But a little kid, you know, who's in your way, you're trying to get out the bus, you don't say, excuse me, you know, pardon me, you say, get out of my way, kid, even though you're not saying it out loud, you know. If you're from the Midwest, you're not saying it out loud, but you're saying it in here, right? Courtesy, love, is eaten up when you look down your nose at somebody, and therefore, if you're counting people as less important than you, Jesus says, it just destroys, it destroys the ability to love.
 
+### The Sin of Scorn Destroys the Ability to Love
+
 And here we're getting to a very important point. One of the main differences between a Christian, a real Christian, and somebody who's just religious is that a Christian understands the inwardness of sin. See, Jesus is saying something quite critical.
 
 He is saying, look, what is a murderer? What's the difference between a murderer and a grumpy person? What's the difference between a murderer and you?
@@ -133,6 +143,8 @@ We all chase things like success, true love, or the perfect life, good things th
 In his book, Counterfeit Gods, The Empty Promises of Money, Sex, and Power, and the Only Hope That Matters, Tim Keller shows us how a proper understanding of the Bible reveals the truth about societal ideals and our own hearts, and shows us that there is only one God who can wholly satisfy our desires. This month, we'll send you Counterfeit Gods as our thank you for your gift to help Gospel and Life share the love of Christ with people all over the world. You can request your copy at gospelandlife.com slash give.
 
 That's gospelandlife.com slash give. Now here's Dr. Keller with the rest of today's teaching.
+
+### Understanding the Inwardness of Sin
 
 **Understanding the Inwardness of Sin:**
 
@@ -167,6 +179,8 @@ And Father Brown says, it's all a theological issue. Look, no man's really any g
 I want you to see that what I'm telling you today is not my idea. It's always been the Christian ethic. Unless you come to understand that the seeds of the worst sins live in your own breast, unless that humbles you, unless you begin to see that you're not really intrinsically that much different from the people around you, unless you recognize the fact that, yes, God has come to you and through Christ you've been forgiven, but that doesn't make you that much different than other people, you will never be able to come about and have that radical love ethic.
 
 Until you realize that the same reason that some people have wanted to dominate the world is the same reason that Harry wants to run the accounting department, and it's the same reason that you always like to look your name up in print whenever you can find it. It just looks great to see your name in print. It's the self-centeredness that's there at the bottom.
+
+### Turn the Other Cheek: A Case Study
 
 **Turn the Other Cheek - A Case Study:**
 
@@ -206,7 +220,11 @@ Even though I'm not going to come after you and try to beat you up, I want nothi
 
 I also want you to know this, I am not going to let you continue to sin against me because that wouldn't help you, but anytime you want to be friends, I'm ready. Anytime you want to get back in a decent relationship, I'm ready because, you see, I want you to be able to do it right. And the answer to the question, what does it mean to turn the other cheek, means not to worry about an insult and to always say, listen, you slapped me on this cheek, but anytime you want to come back and kiss this one, I'm ready.
 
-Anytime you want to get the relationship back on the right level and on the right footing, I'm ready. A Christian has that attitude toward the self, and that's the reason why the Christian can even act like that. **A Radically Reoriented Relationship to Others:**
+Anytime you want to get the relationship back on the right level and on the right footing, I'm ready. A Christian has that attitude toward the self, and that's the reason why the Christian can even act like that.
+
+### A Radically Reoriented Relationship to Others
+
+**A Radically Reoriented Relationship to Others:**
 
 And that leads to that relationship, we're already into the other point, the relationship of the radically reoriented relationship to other people.
 
@@ -232,7 +250,11 @@ You tell me. Is it impractical to turn the other cheek? My friends, it's impract
 
 And the only way you can ever have the power to turn the other cheek is if you have this radically new attitude toward yourself that enables you to love other people and give of yourself to other people. It creates a servant heart only if you realize that you were an enemy and that though God could have punished you and should have punished you, he sent Jesus Christ to take your punishment on. That and only that gives you that radically new self-image that changes your attitude toward people.
 
-And only that. **The Story of the Tsar:**
+And only that.
+
+### The Story of the Tsar: The Gospel Illustrated
+
+**The Story of the Tsar:**
 
 Let me conclude with this interesting story. True story.
 

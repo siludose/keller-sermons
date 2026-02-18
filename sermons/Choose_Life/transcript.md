@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel in Life. How comfortable are you when it comes to being open about your faith? This month on the podcast, Tim Keller looks at what the Bible says about having a public faith.
 
 He shows us what it looks like to be open about our faith in a pluralistic society, in a way that creates civility and peace and meaningful dialogue with our neighbors. Good morning. The scripture this morning is taken from the Book of Deuteronomy, chapter 30, verses 11-20.
@@ -26,6 +28,8 @@ Here's the one thing you can do. Do this. Don't do this.
 
 This will bring this. This will bring this. So simple.
 
+### The Difficult Simplicity of Faith
+
 In fact, it's so simple. I actually struggled a little bit with this. I still struggle with this passage, you know why?
 
 A preacher loves to take a hard passage and make it simple. And everybody say, oh, it's simpler than I thought. He's wonderful.
@@ -37,6 +41,8 @@ Moses starts saying, look, I'm offering you this personal relationship with God.
 You don't have to go up to heaven. You don't have to go over the sea. He's actually trying to say the simplicity of what I'm telling you is its difficulty.
 
 People miss this covenant relationship with God because it's so simple. The simplicity is its difficulty. And if you're ever going to get it, you need to come to grips with the difficult simplicity of having a personal relationship with God.
+
+### The Deceptive Ordinariness of God's Word
 
 Now, let's look at this difficult simplicity under three headings. We're going to see here, when it comes to this personal covenant relationship with God, its deceptive ordinariness, its threatening graciousness, and its unimaginable promise. Its deceptiveness, its deceptive pardon me, ordinariness.
 
@@ -72,6 +78,8 @@ Modern people have every bit the same problem that the ancients had. We think if
 
 There was an article about the last institute in Manhattan that trains psychiatrists in psychoanalysis, Freudian psychoanalysis. The last institute, the trains, therapists in Freudian psychoanalysis, they were talking about it, and they've mentioned that even just say 30 years ago, 40 years ago there were dozens and dozens in Manhattan. One of the reasons I was so intrigued by that was because I know, when I got here like 20 years ago, and I would talk to New Yorkers who at the time were saying their 50s or 60s, what they told me was that in the middle of the century, every New Yorker who was anybody, anyone who was savvy, anyone who was with at all went to analysis two or three times a week for years and years and years, and everybody knew this is it, this is how we're going to get into our hearts, this is the whole issue, this is it, and if you don't understand this, you're just out of it, and now it's dead, it's an eclipse, it is, you know, it is so unsexy, and yet guess what, the gospel's on every street corner, but there's something else coming, right?
 
+### Beware the Simplicity: Le Chambon's Example
+
 Beware the deceptive simplicity of biblical faith. It really throws people who are having trouble believing it, but guess what, the simplicity of our faith throws just as much those of us who do believe it. You look at it, well what is the heart of it?
 
 Well, you know, the heart of it is, you know, Carl Bart actually said it this way, Jesus loves me this I know, for the Bible tells me so, there it is, or put it another way is you're saved by God's grace, and the New Testament adds through the sacrifice of Christ, and you look at that and you say, okay, I've heard that, I've heard that, I know it, I got it, I got it, and it's so simple, almost nobody grasped the radical implications of it. Walter Brogiman wrote a commentary on Deuteronomy that I use, I've been using during this series of sermons, and in what, on this passage where he sees the place where Moses says, this word is not beyond you, it's near you, you know, it's simple, it's accessible, and Brogiman, and that place in his commentary tells this fascinating story, true story, and here's what he says, another illustration of how plain and simple God's word is, is the account of the evangelical Christian community of Le Chambon in France during World War 2, that hid Jews during Nazi efforts at extermination. The people of the mountain village, under the direction of evangelical church and pastor, saved the lives of an estimated three to 5,000 Jews under circumstances extremely dangerous.
@@ -89,6 +97,8 @@ And why didn't they all do that? And the answer is, it's too simple for us. So y
 Dear friends, do not be deceived by the ordinaryness of what the Bible says about this subject, not have a personal relationship with God. If you're exploring Christianity, please don't be offended by simplicity and its ordinaryness. And if you're a Christian and you say, oh, I understand the gospel, I get the gospel, that just proves you don't.
 
 It's difficulty, it's simplicity, it's simplicity, it's difficulty. And you really don't understand it until you really grasp that. Secondly, though, that's not all, that's part of this difficult simplicity.
+
+### The Threatening Graciousness of Grace
 
 Secondly, there's a threatening graciousness to this. Now, you see, we said, when Moses says, this is near you, in the sense of you don't have to go to heaven to get it, because it's revealed in the Bible. But now here's another thought.
 
@@ -130,6 +140,8 @@ He says, it's in your mouth and in your heart. So your heart is where you believ
 
 It's not something that you prove your worth, you just get it. And therefore he's talking, he's saying, that this relationship with God is not something that you go to heaven to get, you go over the sea to get, you don't go on some kind of quest, you don't have to be some heroic warrior, you receive it by grace. Now this is threatening, and this is our second problem we have with it.
 
+### Naaman: When Grace Feels Too Easy
+
 If you want a perfect example of this, and it's a great example, is the biblical story of Naaman in 2 Kings chapter 5. In 2 Kings chapter 5 we're told about Naaman who was a Syrian general, and he was stricken with leprosy, and he knew he was going to die if he wasn't healed, and he heard about the God of Israel and his power. So he decided to go to Israel and find the prophet Elisha and seek his healing and salvation.
 
 And the text tells us the way he's salad forth to do so, and what he brought with him showed that he understood himself being on a quest. He went with gold and treasure to buy whatever and purchase whatever he had to. He went with a sword, ready to do a great deed because he was a man of prowess and valor.
@@ -160,6 +172,8 @@ You can't call the shots in your life anymore, don't you see? The incredible inc
 
 This threatening graciousness, our pride, because of our pride, the absolute graciousness of the gospel throws us, don't let it throw you, but we're not done. First aspect of this difficult simplicity is the deceptive ordinariness. The second aspect is the threatening graciousness, but the third aspect is the unimaginable promise.
 
+### The Unimaginable Promise: The Lord Is Your Life
+
 What do I mean by that? You're smart people, this is New York, so if you're reading that passage, you realize that I've been concentrating on the first part of the passage, which seems to be all about grace. You don't have to go to heaven, you don't have to go over the sea, it's right there in your mouth in your heart, you have to believe in your heart and confess with your mouth, and it's there, it's right there, but then you get to the last part, and it seems like the second part totally contradicts what was just said, because it says, you see, if your heart turns away and you're not obedient, and if you're drawn away to bow down to other gods and worship them, I declare to you this day you will certainly be destroyed.
 
 You will not live long in the land. This day I call heaven and earth as witnesses against you that I have set before you life and death, blessings and curses, choose life, or else all these curses will come upon you. And wait a minute, we say, wait a minute, that seems like we're back to the quest thing, we're back to going over the sea again.
@@ -179,6 +193,8 @@ So choose life, so obey. And all the way through the book up to now, that's what
 But verse 20, suddenly, suddenly, Moses basically says here, your obedience would be your life, and it could be your life, but because it can't be your life, because you're not going to keep it up, the Lord will be your life. What does that mean? Not that the Lord will give you life if you obey.
 
 That's not what it's saying. It says the Lord will be your life, the Lord himself will be your life. What does that mean?
+
+### Christ's Quest: Triumph Through Losing
 
 Paul explains it in Romans 10. In Romans chapter 10, Paul comes to this very passage when he's proclaiming the gospel of Jesus Christ to the readers of the book of Romans, to the Romans. He goes to this very passage and he interprets the passage in the most unbelievable way.
 

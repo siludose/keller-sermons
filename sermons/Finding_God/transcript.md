@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel in Life. How comfortable are you when it comes to being open about your faith? This month on the podcast, Tim Keller looks at what the Bible says about having a public faith.
 
 He shows us what it looks like to be open about our faith in a pluralistic society in a way that creates civility and peace and meaningful dialogue with our neighbors. Tonight's scripture reading comes from Exodus, chapter 3, verses 1 through 14. Now Moses was tending the flock of Jethro, his father-in-law, the priest of Midian, and he led the flock to the far side of the wilderness and came to Horib, the mountain of God.
@@ -22,7 +24,11 @@ And this will be the sign to you that it is I who have sent you. When you have b
 
 Then what shall I tell them? God said to Moses, I am who I am. This is what you are to say to the Israelites.
 
-I am has sent me to you. The word of the Lord, thanks be to God. Now, each week we are looking at the subject of how we can talk about our deepest faith beliefs in public, how can we share who we are, our deep faith beliefs, but in such a way that is respectful, promotes peace, and I have observed over the years that one of the best ways of having a discussion about faith publicly is to not simply talk about what you believe, but also how you came to believe it.
+I am has sent me to you. The word of the Lord, thanks be to God.
+
+### Four Things That Bring Us to Meet God
+
+Now, each week we are looking at the subject of how we can talk about our deepest faith beliefs in public, how can we share who we are, our deep faith beliefs, but in such a way that is respectful, promotes peace, and I have observed over the years that one of the best ways of having a discussion about faith publicly is to not simply talk about what you believe, but also how you came to believe it.
 
 Not just do the content, but the process or the journey that you went on, you know, it's not just, here's what I believe, but how did you come to believe what you believe? How did you come to have faith in the God you have faith in? It's a journey account, or some people would call it a personal testimony, and I think it lowers the temperature, because when you're not just saying, here's what I believe, no, here's what I believe, you're talking about the process and the experience by which you came to your faith, I think it commands a certain respect, you know, you listen to what person's account of their experience, I think it also very often is helpful because everybody's on a process, and to hear how you went through your process is helpful.
 
@@ -30,11 +36,19 @@ And so in order to help us think about how we can think about this, is we're loo
 
 This is how he didn't just come to believe in God, he already believed in God. In fact, when God speaks to him, he says, look, I'm the God of your father, the God of Abraham, Isaac and Jacob, when he says that, he's saying, I'm the God you believe in, actually, I'm the God of your father, the God of your father, he knows that Moses believes in this God, he's never encountered him, he's never had a face-to-face experience with him, he hasn't met him, and therefore it can be said that this is Moses' conversion experience, and so if we see how he didn't come just to believe in God, but actually meet God, we're going to see four things that brought him to that, and I think there's the same four things that the Bible says you have to have usually happen in your life if you're going to meet him as well. So, if Moses met him this way, we need these four things, usually, in order to actually experience and meet God, what are those four things?
 
-They are a disrupting sight, an expanding concept, a personal problem, and a surprising grace. Okay, so first, a disrupting sight. The first thing that brings Moses to actually meet God is the bush itself, verse two and three.
+They are a disrupting sight, an expanding concept, a personal problem, and a surprising grace.
+
+### A Disrupting Sight: The Burning Bush
+
+Okay, so first, a disrupting sight. The first thing that brings Moses to actually meet God is the bush itself, verse two and three.
 
 Moses saw that though the bush was on fire, it did not burn up, so Moses thought, I will go over and see this strange sight, why the bush is not consumed, does not burn up. Now, Moses probably originally saw a brush fire over here, some distance, but that wasn't all that unusual, there's a lot of reasons why you can have brush fires in the desert, but what caught his attention was this fire didn't go out, and as you can imagine, brush fires are fast, why? Because there's no fuel out there, a bush, or some brush isn't much in the way of fuel, so fires that do happen out there because of lightning or for other whatever reason, or maybe some other shepherd who went by and left a campfire going.
 
-If you are going to have a brush fire, it goes out quickly, but evidently this bush kept burning and burning and burning and burning, and we're told that Moses decided, I better go see what this is, why? Because that doesn't make sense, it doesn't fit, that's impossible, a bush has to burn out, I mean the fire consumes the bush and then it goes out, why is the bush continued to burn, why is the fire continued to burn, and we're told he went over, see twice it uses this word, I will go over and see this strange sight, verse 4, it says, the Lord saw that he had gone over, that is a Hebrew word that means the detour, he let himself be interrupted, his normal path was interrupted, okay, what's the first principle, here's the first principle, ordinarily you don't meet God unless something comes into your life that you can't account for and disrupts your life or disrupts your thinking, very often seriously disrupts and interrupts you, what Moses saw the burning bush didn't fit his understanding of what could happen, because it didn't fit, he went over to see it and figure it out and consider it and so forth, and we usually do not come to faith in God, just simply by thinking about it, we usually have to have something that comes into our life that disrupts us, that we can't account for, and that makes us think in ways we didn't before. Thomas Kuhn wrote a book in the mid 20th century called The Structure of Scientific Revolutions which explains this, it's an academic book that you probably have not heard of and yet you have probably because it was very famous, at least maybe not by name, Kuhn was writing about how science works, the Structure of Scientific Revolutions, Kuhn tried, he was a philosopher of science, historian of science, and he said, actually science does not move forward the way you tend to say, scientists like to say, I'm objective and when I get a new bit of data, I look at it, and if I follow the evidence wherever it leads and so I'm gradually making small changes, I'm getting more evidence, I'm getting clear of you and I'm changing my views in the court with the evidence, and Kuhn says now, that's not how it works.
+If you are going to have a brush fire, it goes out quickly, but evidently this bush kept burning and burning and burning and burning, and we're told that Moses decided, I better go see what this is, why? Because that doesn't make sense, it doesn't fit, that's impossible, a bush has to burn out, I mean the fire consumes the bush and then it goes out, why is the bush continued to burn, why is the fire continued to burn, and we're told he went over, see twice it uses this word, I will go over and see this strange sight, verse 4, it says, the Lord saw that he had gone over, that is a Hebrew word that means the detour, he let himself be interrupted, his normal path was interrupted, okay, what's the first principle, here's the first principle, ordinarily you don't meet God unless something comes into your life that you can't account for and disrupts your life or disrupts your thinking, very often seriously disrupts and interrupts you, what Moses saw the burning bush didn't fit his understanding of what could happen, because it didn't fit, he went over to see it and figure it out and consider it and so forth, and we usually do not come to faith in God, just simply by thinking about it, we usually have to have something that comes into our life that disrupts us, that we can't account for, and that makes us think in ways we didn't before.
+
+### Paradigm Shifts and How We Change Our Minds
+
+Thomas Kuhn wrote a book in the mid 20th century called The Structure of Scientific Revolutions which explains this, it's an academic book that you probably have not heard of and yet you have probably because it was very famous, at least maybe not by name, Kuhn was writing about how science works, the Structure of Scientific Revolutions, Kuhn tried, he was a philosopher of science, historian of science, and he said, actually science does not move forward the way you tend to say, scientists like to say, I'm objective and when I get a new bit of data, I look at it, and if I follow the evidence wherever it leads and so I'm gradually making small changes, I'm getting more evidence, I'm getting clear of you and I'm changing my views in the court with the evidence, and Kuhn says now, that's not how it works.
 
 Kuhn says, we are very close minded, all of us, we are not open to new evidence and he says all of us tend to have interpretive grids by which we interpret reality. Now a grid is what he called a paradigm, so yes, actually he, I think, popularized the term paradigm, a paradigm is a way of looking at reality. And Kuhn says, we really have those views, these interpretive grids, these ways of looking at reality, and when new evidence comes along we do everything we can to use that evidence to confirm what we already believe.
 
@@ -49,6 +63,8 @@ Thomas Koon says, we're not open-minded people, we have our set of beliefs and w
 Koon said, for years, people believed that the earth was fixed and the earth was in the center and there were all these other bodies orbiting around it and of course that seemed to explain. You looked up in the sky and you could see other bodies moving and we said, of course, they're all orbiting around us and so every time you got a new bit of data, we found a new planet, we found another, you know, the astronomers found another heavenly body, they said of course that fits into the grid and then Koon says, what began to happen was some of the bodies that we saw in space didn't seem to fit. Their movements didn't seem to work into this idea that everything was orbiting around earth.
 
 Some of them kind of moved infinitely like zigzags in the sky and that didn't seem to really work. Koon says, what happens eventually is enough data comes in, you can't account for or something comes in, you can't account for and it leads you to question the grid itself and you sit there and say, oh, maybe I got it wrong and you try on, it's like trying on a dress, you try on a new paradigm, you try something else on and you say, well, maybe the earth is orbiting too. And when you try that paradigm on, suddenly it makes sense of all the data and you have what he calls a paradigm shift, it's like a conversion, suddenly you realize if I change the grid then suddenly I can explain everything else and you have this enormous shift so he says basically because we're so close-minded, we do not move, we don't change our bodies little by little, instead we try to work everything into confirm our existing paradigms until something comes in a burning bush, something that doesn't fit, something you can't account for, you try on a new way of thinking and it creates a shift, basically a kind of conversion.
+
+### Real-Life Burning Bushes
 
 Now, that's how it is with God, usually, usually something comes into your life, it's a burning bush and you can't account for it. You've got to set a belief, either you don't believe in God or you believe whether probably is a God but nobody knows, you either have an inconsequential God or you have no God or something like that, a God that you don't need to know in order to live life and then something comes into your life and you can't account for it. It could be a train of thought, we've talked about this in the last couple of weeks, you know, WHO, who lived here in the Upper East Side in World War II, Great British Poet, didn't believe in God, but World War II came, we talked about this at length in the last couple of weeks.
 
@@ -84,6 +100,8 @@ It's our thanks for your gift and provides a way you can do a small act to share
 
 Again, that's gospelandlife.com-slash-give. Now, here's Dr. Keller with the remainder of today's teaching.
 
+### The Willingness to Turn Aside
+
 Barbara Brown Taylor, in her famous sermon on the burning bush, says, imagine if Moses had just hunched down over his shoulders and kept his head down and just stayed busy. What if Moses had said, burning bush? I didn't really see it.
 
 I don't know what that is. Burning bush? Well, probably there's some rational explanation anyway.
@@ -93,6 +111,8 @@ Burning bush. I've been paid to watch sheep, not turn aside and look at bushes. 
 If he had done that, you never would have heard of him. He would never met God. God would never have spoken to him and the same thing would happen to you.
 
 He got to turn aside, okay? So I disrupting sight. Second and third, they kind of go together.
+
+### An Expanding Concept of God
 
 Second and third, if you're really going to meet God, secondly, you have to have an expanding concept of God. Now, what do I mean by expanding concept? Well, let's look at this idea of God revealing himself as fire.
 
@@ -137,6 +157,8 @@ I don't believe in that God either. The God you're talking about is not the God 
 Nothing like the multi-dimensional rich, rich God of the Bible. The Bible's talking about God is this, but he's also this, he's this, but he's also this, and paradoxically he's this, and he's also this, and the simpler your understanding of God is, the more rejectable it is. And I'll go so far as to say, the richer and more nuanced your understanding of God, the harder it is to reject him and the easier it is to believe in him.
 
 Certainly, the harder it is to just reject him out of hand. And what Moses was getting is an expanding understanding of God, and you will, if you're expanding and you're understanding of God, and getting a richer understanding of God, you're moving in the right direction. So he had a disrupting side, he had an expanding concept.
+
+### A Personal Problem: The Holiness of God
 
 Thirdly, there was a personal problem. Now what do I mean by personal problem? Let's go back to the fire.
 
@@ -184,6 +206,8 @@ They didn't make waves. They were afraid to. As we all know, passive goodness is
 
 God is not just good in general. He doesn't tolerate evil, He doesn't tolerate evil in sin in you. And as a result, there's a danger.
 
+### Encountering the Real God, Not a Custom-Made One
+
 Now here's the third point, very important. If you're going to have an experience of God and counter God, it really ought to be a real God. We are so affected by consumer capitalism and in consumer capitalism, we choose everything.
 
 We get what we want. Everything's customized to us. And so you don't you see what we tend to do?
@@ -204,7 +228,11 @@ You know, it'd be nice to have a powerful God because then if he's your God, the
 
 The holiness is nothing but a problem, a big problem for us and if you are starting to sense that this God that you're trying to come to grips with is holy and that you're not just a good person who needs a spiritual boost from him and you're not just even a needy person who needs fulfillment but that you're a sinner and you need forgiveness and pardon. And you begin to actually sense that there's a problem and you've got a problem coming into his presence. Now you have some confidence that you're not making this God up.
 
-Now you've got some confidence that you're on your way toward the real God because you sense that you've got a personal problem, he's not just an abstraction, he's just trying to believe in him but you've got a problem in relating to him and that brings us naturally then the last thing you need would be you need some kind of grace, you need something that will enable you to stand in God's presence. Moses is wondering about that. Down here in verse 11 and 12, Moses says, but who am I that you would send me to Pharaoh and then God says, I will be with you but if you go on in the text, you'll see Moses is not modified here.
+Now you've got some confidence that you're on your way toward the real God because you sense that you've got a personal problem, he's not just an abstraction, he's just trying to believe in him but you've got a problem in relating to him.
+
+### A Surprising Grace: The Angel of the Lord
+
+And that brings us naturally then the last thing you need would be you need some kind of grace, you need something that will enable you to stand in God's presence. Moses is wondering about that. Down here in verse 11 and 12, Moses says, but who am I that you would send me to Pharaoh and then God says, I will be with you but if you go on in the text, you'll see Moses is not modified here.
 
 Moses says, wait a minute, you're holy. He's starting to see who he is, what he's like and he begins to say, how in the world am I? Well put it like this, the bush is not consumed but why isn't Moses?
 
@@ -243,6 +271,8 @@ God has to meet out punishment on sin. Just can't be shrugged at. He is so terri
 And there it is. We have hymns about this. One hymn goes, before the throne absolved we stand, thy love has met, thy laws demand.
 
 Terrible, horrible, beautiful, gorgeous, and if you want to know the ravishing beauty of this fiery God, a God who wants so holy that you got a problem with him and yet so loving that he solved the problem at his own expense. If you say, I want to know that God, you will come to know that God, why? Because that's the God who reveals himself to Moses in the bush and that's the God who reveals himself to people.
+
+### Becoming a Burning Bush
 
 And guess what will happen if you do that? If you believe in Jesus Christ, you will become a burning bush. Moses did.
 

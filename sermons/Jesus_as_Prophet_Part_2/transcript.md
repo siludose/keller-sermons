@@ -14,7 +14,11 @@ You are witnesses of these things. I am going to send you what my father has pro
 
 And while he was blessing them, he left them and was taken up into heaven. And then they worshipped him and returned to Jerusalem with great joy. And they stayed continually in the temple, praising God.
 
-This is God's word. Now many people today think of Christianity as a set of beliefs that you take up, something you decide upon. Here's a set of beliefs, here's a set of ethical guidelines, and you take them up.
+This is God's word.
+
+### Jesus the Revealer
+
+Now many people today think of Christianity as a set of beliefs that you take up, something you decide upon. Here's a set of beliefs, here's a set of ethical guidelines, and you take them up.
 
 You pick them up. You've decided this is what I want to do. This is what I want to be.
 
@@ -70,7 +74,11 @@ And let's just look at it under three headings. What he does, why he does it, an
 
 What, why, and how? I'm saying that, so I remember it. And not so, I don't think you hear it.
 
-What, why, and how? What does he do? He gives us eyes.
+What, why, and how? What does he do?
+
+### The External and Internal Word
+
+He gives us eyes.
 
 He gives us eyes. Historically, the church has understood that Jesus' prophetic ministry had two parts. An earthly and a heavenly, or an external and an internal.
 
@@ -169,6 +177,8 @@ I'm telling you. But nobody else offers this. A redeemer who's a prophet.
 A prophet who's a redeemer, you see, a man who's a God, a God who's a man. And therefore he comes and he opens our minds as well as teaches us both. Now why does he do it?
 
 So that's what he does. He gives his eyes. And secondly, why does he do it?
+
+### Cataracts on the Soul
 
 And the reason he does it is because we're spiritually blind. Let's take a moment to define that. The reason we need this is because he's spiritually blind.
 
@@ -290,7 +300,11 @@ You're blind. We're blind. Okay.
 
 That's what he's done. He gives us eyes. Why he's done it?
 
-Because we're blind. Lastly, how he's done it, and I guess I have to be brief about this, though I've already in a sense answered your question, that issue. How does he do it?
+Because we're blind.
+
+### Assembling the Puzzle
+
+Lastly, how he's done it, and I guess I have to be brief about this, though I've already in a sense answered your question, that issue. How does he do it?
 
 How does he deal with the opaqueness? How does he break through the blindness? And the answer is, it's pretty mysterious, but there's one word here that gives us a bit of a clue.
 

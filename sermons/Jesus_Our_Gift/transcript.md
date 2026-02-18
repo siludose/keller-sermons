@@ -38,9 +38,15 @@ Then you can turn it and then you can see that facet through another one. Everyo
 
 Now tonight, we'll just take a look at this. I would like to look at Jesus through this idea of him being a gift. What are the qualities of a gift?
 
-What is a gift? What should a gift be? Now I'd like to just point out three things, just point out three things that gifts are, and therefore Jesus is.
+What is a gift? What should a gift be?
+
+### Three Qualities of the Best Gifts
+
+Now I'd like to just point out three things, just point out three things that gifts are, and therefore Jesus is.
 
 And by thinking about Jesus as a gift, I think we'll come to understand better who he is and how we should relate to him. Now first of all, now I'm not saying all gifts have these three qualities, but the best gifts do. And therefore what's essential to being a gift has a great deal to do with these three facets, so these three qualities are traits.
+
+### Gifts Are Surprises
 
 Number one, gifts are surprises, a good gift, the best gifts are unexpected. They're a surprise. Now it doesn't mean that all gifts have to be a surprise, and some great gifts sometimes are not a surprise, but the power and the delight.
 
@@ -68,6 +74,8 @@ You haven't even rejected Him because you haven't rejected the real Jesus. Let m
 
 When He was here on earth, remember not many. When He called all of His apostles and disciples and followers together to get together after He was gone, they all got together in the upper room, there was only 120 of them. So by and large He was rejected, only a few really received Him.
 
+### Why They Refused the Real Messiah
+
 Why? The answer is He did not meet the expectations of people who expected a Messiah, they expected a certain kind of person. He came and He said, I'm the Messiah.
 
 Well, they had their expectations and He didn't meet those expectations. And the reason they missed Him was they refused to be surprised. They refused.
@@ -87,6 +95,8 @@ He never becomes an influential person, he just wanders around. And what does he
 And everybody said, this is the Messiah, forget it. This couldn't be the Messiah. This is supposed to be the one who's going to save us.
 
 The one who's going to deal with our problems couldn't be. And so, the only people that received Him were the people, those few, who are willing to let their expectations be shattered. Who are willing to listen to Him and say, oh my, this isn't at all what I expected, but He's exactly what I need.
+
+### The Problem Is You, Not Them
 
 Now, let me get real personal at this point. The average person, and plenty of you who are Christians know that you started out this way too. Why did you start coming back to church?
 
@@ -142,6 +152,8 @@ They either loved him and threw down their lives and did anything for him and fo
 
 You've never really seen what he does. He's a surprise because he's a gift. He's the inexpressible gift because he's surprised you.
 
+### Gifts Can Be Insulting
+
 Secondly, and I'll be a little more brief on this, but I think it's fair to say, not all gifts are like this, but I think we need at least touch on it. Secondly, in certain contexts, gifts can be insulting. We said gifts are always surprising.
 
 Sometimes gifts are insulting. Well, it depends on the gift, you know. I'll tell you, let me give you a great example of where it might happen.
@@ -172,9 +184,13 @@ In his book, The prodigal God, Tim Keller shows how this well-known story reveal
 
 Request your copy today at gospelandlife.com slash give, that's gospelandlife.com slash give. Now, here's Dr. Keller with the rest of today's teaching.
 
+### No One Earns It, No One Deserves It
+
 No one earns it, no one deserves it. I tell you, I don't know why because I'm not much of a confrontor, really, but I used to spend a lot of time in my first church back in Virginia. We had a lot of elderly people in the town, like a lot of small towns, a lot of elderly people in our church, and I went to see a lot of people in their deathbeds, and what amazed me, how often they would say they would be willing to say they were scared, and I would say, what are you anxious about, and so often, so often, those folks would say, I don't know, I don't know, I've tried my best, I've tried my best to be a good mother, I've tried my best to be a good father, I've tried my best, you know, what they're saying is, I don't know if I'm ready to die, I'm anxious about it, I think I've tried my best, I think I've tried my best to be good, and I don't like to confront people, but I used to say back then, I said, well, no one do your anxious, no one's ever done their best in neither of you.
 
 And that usually opened up into this whole theme, the Christian message, the heart of the Christian message is salvation, whatever you want to call it, eternal life, whatever you want to call it, spiritual reality, connection with God, connection with the divine, must be a gift from God to you, it cannot be an attainment from you toward him, impossible. That's the essence, and that is where Christianity diverges from every other religion, every other religion. It says, you've never done your best, no wonder you're anxious, and you'll always be anxious until you see the giftness of Jesus Christ, He's a gift.
+
+### Grace: More Inclusive Than Moralism
 
 We talked about it this morning, you know, under a different heading, but it's good to mention it again. People, so many people, are irritated with the only wayness of Christianity, irritated by the fact that Jesus says, I am the way, the truth, and the life, no one comes to the father but by me. And so people feel like, oh, that sounds too exclusive, and so people usually respond by saying something like this, well, they said, yeah, that's how you Christians believe I know, but I believe that anyone who is good, and anyone who is moral, and anyone who is diligent, and anyone who is loving can reach God.
 
@@ -240,6 +256,8 @@ You yourself are trying to earn your way into something. You've all got your own
 
 And yet Paul says, before God, your righteousness is a filthy rag, only in Christ are you made unto God, righteousness and wisdom and sanctification and redemption? Do you understand that Jesus is a gift? He's an insulting gift.
 
+### The Immeasurable Value of Emmanuel
+
 Now, lastly, we said, Jesus is a gift, that means he's a surprise, as he surprised you. Jesus is a gift, and that means actually he's insulting, because you've got to see that what he offers is a gift, it's not something you can earn. But thirdly, lastly, Jesus Christ is immensely valuable, all gifts, really great gifts.
 
 You look at them, you know, the best gifts are the gifts that you look at and you say, I never, ever would have bought this for myself. In fact, the best gifts are the ones in which you realize I never, ever could have bought this for myself. I couldn't have afforded this.
@@ -277,6 +295,8 @@ Do you understand this? And now let's shift forward to Christmas and suddenly yo
 You know up until, if you go through the Bible, up until Christmas, the first Christmas, what you have, whenever God appears visibly, they're called theophonies, whenever God appears visibly, it's an incredibly intimidating form. You have, he appears as a smoking furnace to Abraham. He appears as a burning tree, you know, blazing tree to Moses.
 
 He appears as a tornado to Job. He appears as a pillar of fire to the children of Israel. He appears as chicana brightness, glory coming down to the temple so nobody could even stand up, intimidating, you see.
+
+### God Appears as an Infant
 
 But suddenly he appears as an infant. An infant, you know, there is nothing more accessible than an infant. One of the great things about having an infant of your own is they're totally open to you.
 

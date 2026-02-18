@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 **Introduction:**
 
 Welcome to Gospel in Life. During January, we're inviting our listeners to consider becoming a Gospel in Life monthly partner. If you'd like to learn more, keep listening at the end of today's podcast for details.
@@ -22,7 +24,11 @@ I spread everything out on his bed. At the end of the day, she came on in and I 
 
 I was amazed at how I'd been convicted and challenged. I was amazed at how I knew that I had changed. I changed.
 
-And I felt like the psalmist who said, oh, thy commandment is exceeding broad, you see, and thy words are sweeter than honey to my mouth. Let me explain. **The Grimm's Fairy Tale:**
+And I felt like the psalmist who said, oh, thy commandment is exceeding broad, you see, and thy words are sweeter than honey to my mouth. Let me explain.
+
+### The Grimm's Fairy Tale: A Society That Destroys Family
+
+**The Grimm's Fairy Tale:**
 
 Have you ever heard a Grimm's fairy tale?
 
@@ -62,7 +68,11 @@ I know we're supposed to honor our parents, but let's look into it a little bit 
 
 What should we do? Why should we do it, and how can we do it? All right?
 
-Let's take a look. **What Does It Mean to Honor?**
+Let's take a look.
+
+### What Does It Mean to Honor?
+
+**What Does It Mean to Honor?**
 
 Number one, what does this commandment ask for? Think.
 
@@ -104,7 +114,11 @@ The Bible doesn't teach that the older you are, the wiser you get. The Bible tea
 
 That's just, that's not what it says. In fact, some people would say, well, the reason you must honor your parents is because you should honor your parents out of gratitude for what they've done. The fact is that there are situations in which there's very little gratitude owed because there was very little given.
 
-And yet the word honor is there for everybody. **Why Honor - Parents as Representatives of God's Moral Order:**
+And yet the word honor is there for everybody.
+
+### Why Honor: Parents as God's Moral Representatives
+
+**Why Honor - Parents as Representatives of God's Moral Order:**
 
 So the real question is, why do it? And the answer is right here, actually.
 
@@ -125,6 +139,8 @@ And you may not like the conductor and think that he or she is doing a good job.
 Because there's a moral structure to things. And some things like music, some things like sports, most things don't happen unless you put yourself under someone's authority. The Bible says there's a moral order for life and God is our creator and he tells us what is right and wrong.
 
 But the first incarnation of that moral order, the first representative that we have of that moral order in the universe is your parents. And that moral order is a teaching authority. Now let me explain that.
+
+### The Family: Neither Authoritarian Nor Permissive
 
 Over the last few years, there's been a revolution in the modern understanding of the family. The old understanding of the family was completely authoritarian where fathers in particular, fathers had the right to kill their children if they wanted to. They had that kind of authority.
 
@@ -172,7 +188,11 @@ And what destroys a child's respect for the parent is not whether or not the par
 
 For a parent to simply say, I don't know what's right and wrong and who knows and you can make up your own mind, is much more devastating to a child than to be told the wrong thing. And that's the reason why Emil Durkheim, the famous sociologist, says that if you give children the wrong kind of authority, at least they'll grow up and they'll say that was wrong, that was stupid, I'm going to find the right kind of right and wrong. But if you give the children no teaching authority at all, the children grow up not believing there is right and wrong and so they can never get to the place of critical freedom.
 
-Because they're never in a position to be able to discern good from bad, wise from foolish, you see. And they die for a famine of authority. **How to Honor Your Parents:**
+Because they're never in a position to be able to discern good from bad, wise from foolish, you see. And they die for a famine of authority.
+
+### How to Honor: Take Them Seriously and Forgive
+
+**How to Honor Your Parents:**
 
 Why do you have to know this to honor your parents?
 
@@ -228,6 +248,8 @@ Sometimes it's getting on the phone and saying, you know, one thing I've always 
 
 You're their image. There's so many ways. Take them seriously, number one.
 
+### Forgiveness and Freedom from Parental Approval
+
 Number two. By the way, here's another way to take them seriously. Don't you remember how you used to hate it when you were growing up, that they always acted like they knew you and they knew exactly what you were doing and they knew exactly what you were thinking?
 
 They would never let you change. They stereotyped you. Remember that?
@@ -263,6 +285,8 @@ But now what happens as you get older, some of you are still locked in that. Som
 You may be that unhappy with them. And yet, you're driven to achieve, or you're driven to do certain things to show that bitter old person that was your father or your mother, that you really can be good, and you are still not free. Because you still need their verdict.
 
 Because you still need their approval. And the only way to be free to honor your parents is if you look beyond and say, no, it's God's verdict, my Father in Heaven's approval who I need. And only His that I need.
+
+### Becoming a Child of the Heavenly Father
 
 **Becoming a Child of the Heavenly Father:**
 

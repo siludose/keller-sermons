@@ -18,6 +18,8 @@ My flesh and my heart may fail, but God is the strength of my heart and my porti
 
 We live in a society, Western society, that does not encourage people to be public about their faith, their religious beliefs. We are told that it is a private thing we should not be talking about, but it is ironic because our culture actually encourages us to be absolutely open and public about everything else, everything else, including sexuality, because it is who we are. But there is nothing more fundamental to who you are than your religious beliefs than your deepest faith beliefs, and therefore the challenge before us as a society is how can we be honest about who we are, which means how can we be public about our faith beliefs, and yet do so in such a way that is respectful and supports the peace.
 
+### What Is Doubt?
+
 So we all have to learn that, and one of the things we are doing in this series is talking about that. Now, if we are going to become a mature society in which we are able to talk about faith, we also have to be able to know how to talk about doubt. We don't get much help here from either religious people or secular people.
 
 Religious people tend to see doubt as a very bad thing, a terrible thing, and around many religious people, it doesn't feel safe to express doubts. But on the other hand, many secular people, certainly in a place like New York City, many people believe that perennial doubt, constant doubt, deep skepticism is the only sophisticated and intellectually mature position. The Bible, however, doesn't look at doubt anywhere nearly as positive or as negative as that.
@@ -74,7 +76,11 @@ And yet, Jesus doesn't just simply see on the one hand, Jesus doesn't say, how d
 
 And see, this is where Jesus shows us, the Bible shows us an attitude toward doubt that neither religious people nor secular people have. It's not nearly as bad as religious people say it is and it's not nearly as good as secular people say. He says, look, don't acquiesce in your doubt.
 
-Let the doubt drive you to something else, but at the same time, Jesus doesn't squalch the doubts at all. So there's some important understanding about doubt and the vertigo and the disequilibrium that it brings, but also the positive can be. Secondly, what causes this man's doubt?
+Let the doubt drive you to something else, but at the same time, Jesus doesn't squalch the doubts at all.
+
+### What Causes Doubt?
+
+So there's some important understanding about doubt and the vertigo and the disequilibrium that it brings, but also the positive can be. Secondly, what causes this man's doubt?
 
 Now there's two things he points out. First of all, he says, I saw something, secondly, he says, I experienced something. What did he see?
 
@@ -153,6 +159,8 @@ That's why here at Gospel and Life, August is Go and Share Month. Throughout Aug
 It's a powerful resource that explores how Christianity makes emotional, cultural, and rational sense in today's world. It's our thanks for your gift, and provides a way you can do a small act to share the gospel, by reading the book with a friend, giving one to a coworker, or passing on both copies to people who are exploring the Christian faith. It's a simple way to start a gospel conversation, or continue it.
 
 To request your two copies of making sense of God, simply go to gospelandlife.com slash give. Again, that's gospelandlife.com slash give. Now, here's Dr.
+
+### What Transforms Doubt?
 
 Keller with the remainder of today's teaching. So on the one hand, your doubts are not just from thinking, but on the other hand, you still have to think. If you're going to process the doubts, all right, so how does he process the doubts?
 
@@ -260,7 +268,11 @@ He says, I saw a gap between the possible and the proved. How was I to cross it?
 
 So, he was shrinking back, but then he said, here's what he said, but then I realized, oh my God, there was a gap behind me, yes, I would have to leap, you know, there would have to be a leap of faith to accepting Jesus Christ, because I couldn't prove that Christ was God, but by God, I had no proof that he was not. This was not to be born. I could not reject Jesus without great faith.
 
-And once I realized that, once I realized I would take faith for me to jump over the gap behind me, I'd flung myself over the gap in front of me toward Jesus. Now, here's the last thing, and this is extremely interesting and important. The man expands his view, he doesn't just experience, he doesn't just think.
+And once I realized that, once I realized I would take faith for me to jump over the gap behind me, I'd flung myself over the gap in front of me toward Jesus.
+
+### An Enlarged View of God
+
+Now, here's the last thing, and this is extremely interesting and important. The man expands his view, he doesn't just experience, he doesn't just think.
 
 He expands his view of God. Thomas Kuhn wrote a book called The Structure Scientific Revolutions, very, very famous book, and he was, what he tried to say was that all of us have paradigms, we have ways of thinking about life, and we have doubts when the paradigm receives some data, it can't account for. And when it can't account for it, then there's a paradigm shift, which means you experienced out, but then you expand the paradigm so it can explain the data that you couldn't understand.
 

@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Life Under the Sun
+
 Welcome to Gospel and Life. When someone you know is contemplating life's deepest questions, who am I? What's wrong with the world?
 
 What can truly make me whole? Jesus doesn't just give us answers. He gives us Himself.
@@ -160,7 +162,11 @@ Keller with the remainder of today's teaching. And here's what you get for it, v
 
 You spend all of your life anxious. All of your life restless. All of your life working like crazy.
 
-And in the end, it goes nowhere. That's the end of the thought experiment. What is the lesson?
+And in the end, it goes nowhere. That's the end of the thought experiment.
+
+### You Cannot Create Your Own Meaning
+
+What is the lesson?
 
 Well the lesson is actually clear. The way to get an understanding of ecclesiastes is to look at the repetition, the repetitious, the repeated phrases. And so the phrase under the sun is a key to the first thought experiment.
 
@@ -242,7 +248,9 @@ It's the spiritual nausea of trying to build your meaning in life on things here
 
 You never can seem to quite grab. It's a spiritual nausea, a sense of meaninglessness, a sense of futility underneath everything. I think that's probably where Sartre got his idea for his great work, nausea.
 
-If your origin is meaningless, and your destiny is meaningless, have the guts to admit, your life is meaningless. Now, that's the big experiment, and that's the lesson. What's the small experiment?
+If your origin is meaningless, and your destiny is meaningless, have the guts to admit, your life is meaningless. ### Life With God at the Center
+
+Now, that's the big experiment, and that's the lesson. What's the small experiment?
 
 There's a little thought experiment, which fortunately for you, if you're looking at your clock, is not going to take as long to get through as the first thought of the experiment. And it's only here in verse 24, 25, and 26. Suddenly, see, if you're reading the book of Ecclesiastes, the word God is nowhere to be seen except just one little place in the beginning of chapter 1.
 
@@ -301,6 +309,8 @@ The last thing he gives, the last gift he gives is he gives people the gift of f
 Isn't that a curse? It depends on what you do with it. Because in Romans 18, it says, God subjected this world to futility, meaninglessness in hope.
 
 If God gives you, right now, if God is giving you an enhanced feeling of meaninglessness and futility in life, and this is New York, so I bet you that's true quite a number of you. It could be a gift if you let it drive you to where you should go. It could be a gift if it points you, if it gets you somewhere, you say, well, where?
+
+### Jesus Took Our Meaninglessness
 
 What? Here's what you should be looking at. In Jesus Christ died on the cross, he cried out, my God, my God, why has thou forsaken me?
 

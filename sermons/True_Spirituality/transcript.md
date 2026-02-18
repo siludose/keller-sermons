@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Scripture Reading and Introduction
+
 Welcome to Gospel in Life. This month on the podcast, we are featuring a series on the sermon on the Mount, a collection of teachings where Jesus outlines what it really means to live the Christian life. In the series, Tim Keller explores a striking idea that Christianity is not just different from the world, it's also radically different from religion.
 
 Now, we've been going through the sermon on the Mount, all spring, and we come to the end of the sermon on the Mount, this is a summarizing passage, it's this summary, it's the end of the sermon, and therefore Jesus is pulling together everything he's been saying, and because it's a summarizing passage for the whole sermon, it therefore is also a summarizing sermon for the whole series, in fact, the whole year, but we're going to be able to pull together everything we've been saying about the sermon on the Mount, all this year. And therefore, I want to congratulate those of you who are just visiting today, this is your first time, a Redeemer, it's the only time you've been a Redeemer in a long time, I just want to congratulate you for being very clever, because it's the best possible, you'd see all these other poor people have been spending hours and weeks trying to figure out the sermon on the Mount, and you're going to get it in a nutshell, it's a very, very smart of you, let me, let me read you, Matthew 7, verse 15 to 29, the end of the sermon. Watch out, Jesus said, watch out for false prophets, they come to you in sheep's clothing, but inwardly they are ferocious wolves, by their fruit you will recognize them, do people pick grapes from the thorn bushes or figs from the thistles, likewise every good tree bears good fruit, but a bad tree bears bad fruit, a good tree cannot bear bad fruit and a bad tree cannot bear good fruit, every tree that does not bear good fruit is cut down and thrown into the fire, thus by their fruit you will recognize them, not everyone who says to me, Lord, Lord will enter the kingdom of heaven, but only he who does the will of my father who is in heaven, many will say to me on that day, Lord, Lord, did we not prophesy in your name, and in your name drive out demons and perform many miracles, and then I will tell them plainly, I never knew you, away from me, you evil doers, therefore everyone who hears these words of mine and puts them into practice is like a wise man who built his house on the rock, the rain came down, the streams rose and the winds blew and beat against that house, yet it did not fall because it had its foundations on the rock, but everyone who hears these words of mine and does not put them into practice is like a foolish man who built his house on sand, the rain came down, the sun rose, the streams rose, and the wind blew and beat against that house, and it fell with a great crash, and when Jesus had finished saying these things, the crowds were amazed at his teaching because he taught us one who had authority and not as their teachers of the law.
@@ -21,6 +23,8 @@ If you're not astounded, you haven't listened to it, so let's listen to it. Ther
 They have to do with the fact that Jesus here at the very end of the sermon says, there are two ways, there are two basic options spiritually. Two ways that I want you to distinguish. Two ways that I want you to see, and make sure you choose the right one, not the wrong one.
 
 Two ways, so first of all he says there's two ways, and secondly he says at the end of those two ways there's a judge, and then he says at the end of the judgment, there's a sentence. There's two ways at the end of the judge sentence, the way is there's the judgment, at the end of the judgment there's the sentence, and he says something very astounding about all three, very. Here's what they are, first.
+
+### The Two Ways: Not Good vs. Bad but Religion vs. Christianity
 
 The first thing he says, he says something about the two ways that are astounding. What are the two ways? Notice, actually we start the sermon here in verse 15.
 
@@ -49,6 +53,8 @@ The word honor is literally the word glory, it's the word docksah. Did you like 
 You know, we sing it every week, you know, praise God from the most blessings flow, you know, and all that. And it's to the tune of the old hundredth. First we say all, all ye who are of tender heart for giving others to take your part.
 
 Praise, praise the Father, praise the Son, and praise the Spirit, what is that? And especially today with the brass and the boy, glory. We're saying to God, you're glorious.
+
+### The Religious Person: Inner Emptiness Driving Outward Performance
 
 And yet this is what it's saying, religious people are people inside who have no sense of their own glory, no sense of their own weight. They have no sense of their own theirness, they have no sense of their own value, they have no sense of their own worth, they have no sense of their own self. And you know, it says that in verse 15, it says on the outside, their sheep, but on the inside, the old translation used to say, the old king James should say, they're ravening wolves.
 
@@ -94,7 +100,11 @@ In the introduction, Tim Keller lays out the case for catacases, the rich and co
 
 Young, as well as historical figures such as Augustine, John Calvin, and Martin Luther. This month, in addition to the new city catacism devotional, we are including a great companion resource, the new city catacism for kids, as our thank you for your gift to help Gospel and Life share the hope of Christ's love with people all over the world. So, request your copies today at gospelandlife.com slash give.
 
-That's gospelandlife.com slash give. Now, here's Tim Keller with the remainder of today's teaching. And then when Jesus says, okay, how do they pray?
+That's gospelandlife.com slash give. Now, here's Tim Keller with the remainder of today's teaching.
+
+### Religion as Power Play: Controlling God and Others
+
+And then when Jesus says, okay, how do they pray?
 
 How do they pray? Why do they help people for the people now for themselves? And why do they pray for God?
 
@@ -114,7 +124,11 @@ You're going to despise people. You're going to look around at them and say you 
 
 You're going to be heartless people. You're going to use your religion to feel better, to feel better than other people, and to exclude everybody emotionally or worse, who doesn't believe what you believe. You may be a very moral person, but your morality will be just like the beauty of a snowflake.
 
-Perfect, intricate, symmetrical, and freezing. And Jesus says that Christianity is different. A Christian is doing all the same stuff for an utterly different reason, and with another utterly different result.
+Perfect, intricate, symmetrical, and freezing.
+
+### The Christian: Inner Fullness Flowing Outward
+
+And Jesus says that Christianity is different. A Christian is doing all the same stuff for an utterly different reason, and with another utterly different result.
 
 Look at the Christian. A good tree bears good fruit. Now you see, here's why religion is so stupid.
 
@@ -184,6 +198,8 @@ This isn't just a throwaway. This is the summary of the whole of this thermal am
 
 Because this is not at all what the teacher's the law were telling them. Not at all. He suddenly realized Jesus was saying, the biggest danger you have is to make mistake religion for Christianity.
 
+### Jesus as Judge: He Puts Himself at the Center
+
 Now the second astonishing thing in the third, and I'll be brief, really, the second astonishing thing is how he puts himself in the center. He puts himself utterly in the center and shows this poor person in verses 21, 22 and 23, what that means. You see, notice in verse 21, 22 and 23, what day is this?
 
 It is not everyone who says to me, Lord, Lord, Lord, enter the kingdom of heaven, but only he who does the will of my father, who is in heaven. Many will say to me, on that day, no, wait a minute, what is this? This is a day, he just calls that day, and on that day we're figuring out who gets into heaven, what day is this?
@@ -232,7 +248,11 @@ For you, it'll fill you with the inner glory. Why would he do that? Well, what m
 
 And he gives you, then, when you believe in him, when you say, Father, accept me because of what Jesus says, Jesus says, I will give you the glory, my Father gave me. So the first thing you have to do is you have to see, you can be extremely busy for Jesus and not really be doing it for him at all. So it's sort of busy about Jesus, but not really doing anything for him at all because you're basically basing everything you do on your good works.
 
-You're just, and that's the reason why you're always angry with God because he's not doing what you said he should do, but look at how, you know, think of all the poor, think of all the people, you know, in your class and you've been out of school for four years and think of all those people sleeping around and you've been good, and they're wise, you're going to hold up better than yours, does that ever occur to you? And if it does occur to you, how exhausting, the layer deadly doing down, down to Jesus feet, standing him in him alone, gloriously complete, the last astoundishing thing he says is this, and I think it's the most astoundishing thing. When he punishes somebody, what does he say?
+You're just, and that's the reason why you're always angry with God because he's not doing what you said he should do, but look at how, you know, think of all the poor, think of all the people, you know, in your class and you've been out of school for four years and think of all those people sleeping around and you've been good, and they're wise, you're going to hold up better than yours, does that ever occur to you? And if it does occur to you, how exhausting, the layer deadly doing down, down to Jesus feet, standing him in him alone, gloriously complete, the last astoundishing thing he says is this, and I think it's the most astoundishing thing.
+
+### The Ultimate Punishment: Losing Jesus Himself
+
+When he punishes somebody, what does he say?
 
 Does he say, fire and brimstone for you, buddy? Does he say, hey, Sisyphus, would you please go over there and roll that stone up that hill? Now he says, depart from me.
 

@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel and Life. When someone you know is contemplating life's deepest questions, who am I? What's wrong with the world?
 
 What can truly make me whole? Jesus doesn't just give us answers. He gives us Himself.
@@ -19,6 +21,8 @@ These are the very scriptures that testify about me, yet you refuse to come to m
 I have come in my Father's name, and you do not accept me, but if someone else comes in his own name, you will accept Him. How can you believe since you accept glory from one another, but do not seek the glory that comes from the only God? But do not think I will accuse you before the Father.
 
 Your accuser is Moses, on whom your hopes are set. If you believed Moses, you would believe me, for he wrote about me. But since you do not believe what he wrote, how are you going to believe what I say?
+
+### The Bible in Public Discourse
 
 The past of which is the Sermonist Base, John 5, is about the Bible. We've been talking about talking about our faith in public. This is the last week in that series.
 
@@ -45,6 +49,8 @@ Don't just listen to what John said, look and don't just even listen to my words
 That's the third witness. Now in this context, he would have been talking about the Old Testament, what we would call the Old Testament. But notice for us, where do you get the testimony of John, the Baptist today?
 
 Where do you get a chance to look at the works of Jesus Christ, the life and ministry of Jesus Christ? It's in what we call the New Testament. In other words, every three witnesses, every one of them, Jesus gives us here is in the scripture.
+
+### The Complete Divine Authority of the Bible
 
 And in the process of looking at what he says here, we learn three things that Jesus himself believed about the scripture, which I think are very relevant to those of us who are trying to talk to people about the Bible. Jesus believes in the complete authority, unity, and vitality, power of the Bible. The authority, the unity, and the vitality.
 
@@ -88,6 +94,8 @@ At every time there was a test, every time there was a temptation, every time th
 
 He believed that everything the Bible said, God said, did he believe that? Yeah. But beyond that, it was the operating principle of his life.
 
+### Can You Be a Christian Without Following All the Bible?
+
 Now, having said that, what do you say when someone says, well, you know, you Christians, it's okay to be a Christian, but you really can't take the Bible literally. Now, and I've actually heard Christians who said, or at least professing Christians, who said, well, I'm a Christian, but I don't take every part of the Bible literally. Some parts of it we just can't follow anymore.
 
 Now, every thoughtful Christian that hears somebody talk about the taking the Bible literally has to wince. And the reason you have to wince is because at one level, no, you don't take the Bible literally exactly. I mean, the point is if the Bible has poetry in it, where it says God was wrestling with the sea monster, and it's obviously poetry, there it's Hebrew poetry.
@@ -107,6 +115,8 @@ How could you possibly say you can follow Jesus and then reject one of the main 
 Without a belief in the full authority of the Bible, you aren't following Jesus. You're following somebody that you're calling Jesus. And it's more than that.
 
 Every indication is that if you say, well, I believe in God and I want to have a spiritual experience, but I don't want to have a fully authoritative Bible because there's some parts of it that we just can't follow anymore. Just some parts I don't like. Some parts I don't want to accept.
+
+### The Android Planet: Why We Need a God Who Talks Back
 
 In the second season of the old TV Star Trek series, second season. This is way back, 70s, 67s at 1969. There was a very funny, it was a comedic, an episode called I Mud.
 
@@ -154,6 +164,8 @@ God comes in from the scripture and says, no, I love you. See, we want God to co
 
 When he tells you, I love you in spite of what your heart says. If you want a real God, if you want a real Jesus, you've got to have an authoritative scripture. You have to have an authoritative scripture.
 
+### The Unity of Scripture: Moses Wrote of Me
+
 Second and third, more briefly actually. Jesus also is teaching here the unity of the scripture. Many people say, well the Bible's a human book and you can see, look at all the contradictions.
 
 You Christians, you pick and choose. What about all these rules down here? Where it says you shouldn't be wearing linen and wool together or you shouldn't be eating this or you should be offering these sacrifices.
@@ -200,6 +212,8 @@ You don't have to go looking through Genesis, Exodus, Leviticus, Numbers, Deuter
 
 The Bible will be a thicket. It'll look like contradiction. But if you understand it's all pointing to me, then suddenly it becomes this incredible unity.
 
+### The Vitality of Scripture: Life Through Christ
+
 There's no contradictions in it. And that leads lastly to the fact of its vitality. And what do I mean by vitality?
 
 Look at this interesting place where Jesus seems to be telling them that they're both right and wrong about the Bible. Verse 39 and 40, you study the scriptures diligently because you think that in them you have eternal life. These are the very scriptures that testify about me, yet you refuse to come to me to have life.
@@ -223,6 +237,8 @@ It's all God's book. Yet it's possible to believe that and yet to miss the main 
 The Bible is just a book to you. It's just a book. Remember how I sometimes mention how Mark Twain who rejected Christianity used to have this nightmare about being asleep and waking up and finding this huge Bible on him bigger than him, weighing them down, crushing him and suffocating him.
 
 What a vivid metaphor that is. But you see, frankly, the Bible, unless you see it's about Jesus, unless you see it's all about Jesus, it will destroy you. It'll either destroy you by making you such guilt over the fact you can't live up to it that you'll just abandon Christianity or it'll turn you into a Pharisee who only care about praise from others, not really from God, who are basically saving themselves by actually having their self-esteem rise as they think of themselves as biblically knowledgeable and obedient, rather than obeying the Bible out of love for God because they realize that they're saved by grace.
+
+### Finding Life Through the Word
 
 Look, let me finish like this. If you are not sure what you believe or whether you believe in Christianity, then you ought to look at what Jesus offers. Jesus says, look at personal, empirical, and scriptural testimony.
 

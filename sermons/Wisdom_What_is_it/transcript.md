@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Scripture Reading and Introduction
+
 Welcome to the Gospel Unliked Podcast. Many of the questions we face in life are complex and aren't always answered by simply following rules. Do I speak up now or do I wait?
 
 Should I take that job or say where I am? That's why wisdom is so crucial. But how do we develop it?
@@ -26,7 +28,11 @@ So what does it take to make good choices, especially in a place like New York t
 
 Millions of people, for thousands of years have looked to it for help and we're going to look for just three weeks at ourselves. Now if we take a look at the very first few verses of the book, we're going to see the basics and what do we have here? What wisdom is, why it's important, why it's a problem, and where to get it, okay?
 
-What wisdom is, why it's important, why it's a problem, and where you can find it. First of all, let's look at what wisdom is. And right off the bat, look at verse 1 and 2, it says, these are the Proverbs of Solomon for gaining wisdom.
+What wisdom is, why it's important, why it's a problem, and where you can find it.
+
+### What Wisdom Is: Competence with Reality
+
+First of all, let's look at what wisdom is. And right off the bat, look at verse 1 and 2, it says, these are the Proverbs of Solomon for gaining wisdom.
 
 But what's the word wisdom mean? Well, one of the best ways to figure out what it means is to look at the synonyms. Look at the other words that are used to describe wisdom right there in those first sentences.
 
@@ -70,6 +76,8 @@ Now, he begins to see why it's so important, because down here in verse 32, it s
 
 It'll literally kill you. Why? Well, let's take a look at this for a minute.
 
+### The Simple and the Fool: Two Forms of Foolishness
+
 First of all, let's look at these two words, the simple and the fool. Now, these are two Hebrew words, and they're used throughout the book of Proverbs. The simple is a word that means young naive people who are too unruited and unformed to make smart decisions because they're going with a crowd.
 
 And by the way, those of, I got to be careful here, I always put this, this is a particular form of foolishness that young people fall into. What is it? Notice it says, the waywardness of the simple will kill them.
@@ -107,6 +115,8 @@ See, we don't know, Christians do not know how to read the book of Proverbs beca
 And a wise person knows the difference. Now, here's the problem. Almost all of us are not in touch with reality enough to know when to do and when not to.
 
 Why? Point three. Point three is, here's why wisdom is such a problem.
+
+### Why Wisdom Is So Hard: Temperament vs. Reality
 
 Some years ago, I read a really great article in the Atlantic Monthly with an interview with Drom Kagan. Drom Kagan taught for many years at Harvard. He's retired in long retired.
 
@@ -151,6 +161,8 @@ It's late, and I'm old. From the article, he says, modern parents have been taug
 Good parenting will see the dark side of their children's temperament, and will intervene showing them that they have to have a greater range of responses. Now, these are all from the article. The point is, the aggressive have to realize you sometimes are to blame.
 
 The anxious have to realize that sometimes you aren't to blame. The philosophical have to realize that sometimes things are really terrible. So what parents need to go to with their children is they need to challenge the anxious to be bold, the bold to be anxious, the pessimistic to have hope and the chronically sunny to worry more.
+
+### Foolishness Is Natural, Wisdom Is Acquired
 
 Now, Proverbs, I told you this head at this point, I'm trying to show you why wisdom is such a problem. Proverbs chapter 22 verse 15 says, foolishness is bound up in the heart of a child. You know what that means?
 
@@ -208,6 +220,8 @@ It's right there. In fact, that's the word. Look at verse seven.
 
 This is one of the most famous verses in the Bible because it's repeated over and over again. The fear of the Lord is the beginning of knowledge, but fools despise wisdom and instruction. Okay.
 
+### Finding Wisdom: Joyful Fear and the Cross
+
 Here's the last thing I'm going to tell you. Here's how you find wisdom. It's through paradoxical fear and the foolishness of grace.
 
 Paradoxical fear and the foolishness of grace. So, first of all, paradoxical fear. The fear of the Lord is the beginning of knowledge.
@@ -263,6 +277,8 @@ You wouldn't have that insecurity that needs to be right. You wouldn't be standi
 There'd be an ease, there'd be an openness. The fear of the Lord, this positive joyful fear of the Lord would be the very beginning of your wisdom. How do you get that?
 
 The only way to get it is to be absolutely sure that God is not going to hurt you. To be absolutely sure that in spite of your flaws, he will not condemn you. The difference between a converted person, a person with a new heart, a person who understands the gospel, and a person who is just nuckling under, is a difference between a person with the positive fear of God versus the negative fear of God, right?
+
+### The Foolishness of Grace: The Cross as True Wisdom
 
 And how can you get that positive fear of God? We've got to know that there is no condemnation for you. And the only way to do that is this, put the book of Proverbs in the whole Bible, put it in the context of the whole Bible, and in the Old Testament we know there's a negative and positive fear, but when you get to the New Testament, we learn there's also a negative and positive foolishness.
 

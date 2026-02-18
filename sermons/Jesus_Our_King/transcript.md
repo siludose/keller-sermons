@@ -42,7 +42,11 @@ Mishayak is coming. The anointed one is coming. He says, be ready.
 
 And it's very good advice. Now look, that's what it's talking about. The Lord has put his Messiah and is installed as Messiah.
 
-And therefore we can read this Psalm as talking about that greater David, that greater king. And it actually tells us three things. It tells us, now lay these principles out and we'll just examine them.
+And therefore we can read this Psalm as talking about that greater David, that greater king.
+
+### We Have a True King
+
+And it actually tells us three things. It tells us, now lay these principles out and we'll just examine them.
 
 The middle section from verse 4 to verse 9 tells us that we have a true king, a king above all the kings, a king behind all the kings. We have a true king, installed by God, my king he says. Then verses 1 to 3 tell us, however, also that human beings hate the king.
 
@@ -82,6 +86,8 @@ Christians know the Bible knows that democracy is medicine, not food. We can't l
 
 We have to have democracy because human beings are so sinful that none of us really are fit to rule. But we need a king. We are built for a king.
 
+### The Memory Trace of the Ancient King
+
 The reason for the old myth, the reason for the new myths, all the superhero myths are new myths about kings. The reason we adore kings and create them is because there's a memory trace in the human race. There's a memory trace in you and me of a great king, an ancient king, one who did rule with such power and wisdom and compassion and justice and glory so that his power and wisdom and compassion and glory were like the sun shining in full strength.
 
 We know that we were built to submit to that king. We were built to give ourselves to that king. We were built to stand before and adore and serve and know that king.
@@ -118,7 +124,11 @@ Is this just another one of the kinds of, is this just the flattery you have to 
 
 And in the New Testament, the gospel message, the message of Christianity is, yes, there is. There is one. Not only one, the Messiah, Messiah gets coming, the Christ, the Lord has anointed one.
 
-That's the first point. There is a king, a true king. But secondly, we're taught here in verses one to three, that the natural heart of every human being hates the true king.
+That's the first point. There is a king, a true king.
+
+### We Hate the True King
+
+But secondly, we're taught here in verses one to three, that the natural heart of every human being hates the true king.
 
 So you have down here in verse one, two, and three, why do the nations conspire and the people's plot in vain? The kings of the earth take their stand, and the rulers gather together against the Lord as an anointed. Here's what they say.
 
@@ -158,6 +168,8 @@ List your copy today at gospel and life dot com slash give that's gospel and lif
 
 You know preachers like to over dramatize everything and and so on and sure there's a lot of people who are indifferent to God. There's a lot of people who don't obey God like they should be but the average person is not hostile. The average person doesn't hate God doesn't hate God and and conspire and plot against him.
 
+### People Hate the Biblical God, Not God in General
+
 Oh, really? Let me give you a couple of it. Let me answer the two basic objection one people say most people really believe in God.
 
 Michael Kinzley in the new republic wrote an interesting editorial. He'd been hearing so many people say that America was getting more and more hostile to religion. And so he wrote an interesting article saying he says that's really bull.
@@ -192,6 +204,8 @@ See, verse eight, I own you. Here's the yoke. That's the God that we reject.
 
 And careful, one more mistake you might make. Some people say, oh, okay, so the people who hate the king are skeptics or people who have rejected religion or rejected Christianity, not necessarily. Don't forget this.
 
+### Using Morality to Avoid Jesus
+
 Here's a great place in one of Flannery O'Connor's stories where she says there was a deep, black, black, wordless conviction in him that the way to avoid Jesus was to avoid sin. I've never gotten over that. Such a great line.
 
 Such an insight. Now, I've used it before, but let me show you how I apply it here. She says, here's a guy who's very religious.
@@ -215,6 +229,8 @@ Have you seen that there's an enmity in your life against God? Have you seen how
 Do you know that that's the words of your own heart? If you know that you hate God, if you know that that's a big part of your heart, that proves you're a Christian because only Christians know that. Only Christians can admit that.
 
 Only the Holy Spirit can allow you to surface that repressed traumatic material. If you don't admit today that you're an enemy of God, you're really an enemy of God. The only way to become his friend is to admit you're his enemy.
+
+### We Need the King: The Yoke Becomes a Refuge
 
 The only way to know that God's Holy Spirit's working in your life is if you're able to see that resentment, we have a king, we hate the king, lastly, thirdly, we need the king. Verses 10, 11 and 12 says, look, if you see you have the king, and you also see you hate the king, the only recourse you have is to persuade, is to be persuaded, I'll explain that, to be persuaded that you need the king. Serve the king, kiss the king, rejoice in the king.
 
@@ -257,6 +273,8 @@ You're two deepest needs. You need to feel that you count, that you're accomplis
 That's the way it is in a relationship. And then oh, blessed are they who take refuge in him. Now let me just conclude by giving you a couple of fairly practical examples here.
 
 The Bible gives us right here in verse 10, 11 and 12 of what it really means to submit to the king. Let me just give you three. Actually let me give you four and afterwards I'm going to be real brief about it and if people want me to draw them out, you can draw them out afterwards in the question and answer time.
+
+### Four Ways to Treat Jesus as King
 
 How do you treat Jesus as a king? A lot of you have believed in Jesus in the general way. A lot of you have even asked Jesus for help in your life but you're not treating him as a king.
 

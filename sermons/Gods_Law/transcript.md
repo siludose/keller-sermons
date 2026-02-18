@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 **Introduction:**
 
 Welcome to Gospel in Life. During January, we're inviting our listeners to consider becoming a Gospel in Life monthly partner. If you'd like to learn more, keep listening at the end of today's podcast for details.
@@ -35,6 +37,8 @@ It's a very, very, very practical book, and an incredibly comprehensive book. No
 And even though it's also mentioned in Exodus 20, this exposition of it here in Deuteronomy 5 is really the most complete exposition and explanation of God's Law, the Ten Commandments, that there is anywhere in the Bible. So let's take a look and see what we're taught about it. It's awfully basic, but it's awfully basic because it's awfully important, so we have to look at it.
 
 Now there's four things I think we're going to learn here about God's Law. The origin of God's Law, the origin of the Law, the substance of the Law, the problem of the Law, and the solution to that problem. The origin, the substance, the problem of the Law that every culture has to deal with, and the solution.
+
+### The Origin of God's Law: Reflecting Our Nature
 
 **The Origin of God's Law:**
 
@@ -70,7 +74,11 @@ The Law of God outlines the kind of life in which you will find who you really a
 
 Very important. So there we see the origin of God's law. It's in the nature of God and in the nature of our own being, and to violate it violates our own being, and to fulfill it fulfills yourself.
 
-Number one. **The Substance of God's Law:**
+Number one.
+
+### The Substance of God's Law: Interdependent Commands
+
+**The Substance of God's Law:**
 
 Another thing I want to look at here is the substance of God's law, and here's what I mean by that. During the next few months, we're going to be looking at what Deuteronomy says, and the middle part of Deuteronomy is actually an exposition of each of these laws, the Ten Commandments.
 
@@ -94,7 +102,11 @@ And so there you have horizontal, how do I love my neighbor as myself, vertical,
 
 It's not just personal and spiritual, it's not just external and social, it's both. That's the first combination. Second combination you may not have thought of, at least I haven't until fairly recently.
 
-It also covers the inner and the outer. It covers the inner, psychological, spiritual, motivational, as well as the external and practical. **The Inner and the Outer:**
+It also covers the inner and the outer. It covers the inner, psychological, spiritual, motivational, as well as the external and practical.
+
+### The Inner and the Outer: Heart Idolatry
+
+**The Inner and the Outer:**
 
 Now, I want you to think this.
 
@@ -170,7 +182,11 @@ When we put our faith in them, deep down, we know they can't satisfy our deepest
 
 This month, we'll send you Counterfeit Gods as our thank you for your gift to help Gospel & Life share the love of Christ with people all over the world. You can request your copy at gospelandlife.com slash give. That's gospelandlife.com slash give.
 
-Now here's Dr. Keller with the rest of today's teaching. **The Problem of the Law:**
+Now here's Dr. Keller with the rest of today's teaching.
+
+### The Problem of the Law: Can't Live With It or Without It
+
+**The Problem of the Law:**
 
 So there's the substance, the interdependence of the Ten Commandments.
 
@@ -228,6 +244,8 @@ But you see the nub of the problem? Secularism makes people individualistic and 
 
 See without the law, if everything's relative, then why not live any way I want? But with the law, when I've got the truth, then I feel like I can bash people. So secularism makes people individualistic and selfish, but religion tends to make people tribal.
 
+### God's Unfulfilled Longing for Loving Obedience
+
 **The Solution - God's Unfulfilled Longing:**
 
 What are we going to do? We can't live with the law of God and we can't live without it. It's the same thing that the children of Israel had a problem with.
@@ -265,6 +283,8 @@ If he wants to get us to submit to him, all he's got to do is snap his fingers a
 He doesn't need to do that. Why would he be giving us the law? He's telling us.
 
 He says I want a love relationship with you. If you obey me, that's you giving me love and it's also me giving you love because this fulfills your deepest being. Oh, that my people would say not I obey you because you're God, but I obey you because you're my God.
+
+### Jesus: The Ultimate Fulfiller of the Law
 
 **Jesus - The Ultimate Law Fulfiller:**
 

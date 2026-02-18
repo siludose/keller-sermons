@@ -4,6 +4,8 @@
 
 ---
 
+## 引言与经文诵读 / Introduction and Scripture Reading
+
 Welcome to Gospel in Life. Are you longing to see real change in your life, in your habits, your relationships, your heart? Today, Tim Keller explores how lasting change actually happens in the life of a Christian and why the Gospel offers a radically different process of transformation than anything else.
 
 The scripture is found in Romans 8 verses 13 through 27. For if you live according to the sinful nature, you will die. But if by the Spirit you put to death the misdeeds of the body, you will live.
@@ -27,6 +29,32 @@ I'll tell you why, because if you have a burden, if you're struggling with somet
 And it tells us three things. This text tells us, first of all, it gives us three things. One, it gives us a warning about suffering.
 
 Secondly, it gives us three resources for suffering. And finally, it tells us how you can be sure that those resources will work. A warning about suffering, three resources for dealing with suffering, and how you can be sure that they'll work.
+
+---
+
+欢迎来到《福音人生》播客。世界受到痛苦和伤害的困扰。我们中许多人都在等待永恒和完整的生活。蒂姆·凯勒探讨圣经对盼望和耐心等待拯救世界意味着什么。
+
+我想从一个问题开始：你在等什么？你可能在等很多事情。也许你在等一份新工作。也许你在等爱情。
+
+也许你在等健康改善。也许你在等生活变得更好。但在更深层次上，我认为我们都在等同样的东西。我们都在等世界变得对。
+
+我们都在等痛苦结束。我们都在等正义。我们都在等完整。我们都在哀叹。
+
+这不是我们想要的世界的样子。这不是生活应该的样子。我们希望事情不同。我们希望事情更好。
+
+现在，圣经中保罗说一个有趣的事情。保罗说："我们知道整个创造至今仍在哀鸣和痛苦中。不仅这样，我们自己有圣灵的初熟果子，甚至我们也在内心哀鸣，等待我们身体的救赎。" 这是什么意思？
+
+保罗说的是，不仅仅是我们在哀叹。整个创造都在哀叹。世界本身在哭泣，等待改革。现在，这很有趣，因为当我们谈论盼望时，我们通常谈论个人盼望。
+
+我们谈论我的生活。我的问题。我的痛苦。但保罗说的是更大的东西。
+
+保罗说的是整个创造的盼望。让我回溯一下。在创始中，上帝创造了世界，上帝说这是好的。上帝创造了人，他们是在他的形象中。
+
+生活很完美。没有痛苦。没有死亡。没有邪恶。
+
+---
+
+## 警告：苦难不可避免 / A Warning: Suffering Is Unavoidable
 
 Okay? First, a warning. Now, this is an amazing passage very long, and I certainly can't take a look at every single thought unit, but in the middle, it talks about groaning.
 
@@ -63,6 +91,24 @@ Don't think, well, not if I'm smart, not if I'm savvy, not if I'm nimble. You ne
 The three resources that Paul tells come with Jesus. You bring Jesus into your life. You get these three resources.
 
 We can name them under the headings, prayer, pattern, perspective. Prayer, pattern, perspective. Okay, let's go through them.
+
+---
+
+但然后人类犯了罪。人类背弃了上帝。而世界改变了。世界被损坏了。
+
+痛苦进入世界。死亡进入世界。邪恶进入世界。现在，世界本身也受到了诅咒。
+
+圣经说："地因你而被诅咒。"创造本身被破坏了。现在，我们生活在一个损坏的世界中。这就是为什么有痛苦。
+
+这就是为什么有邪恶。这就是为什么有死亡。这就是为什么生活很困难。但是，圣经说，创造不会永远被破坏。
+
+创造最终将被赎回。有一天，上帝将创造新天新地。有一天，创造将被修复。这是基督徒的盼望。
+
+这是我们在等什么。我们在等新世界。我们在等上帝把创造弄对。现在，但在那之前会发生什么？
+
+---
+
+## 资源一：借祷告处理苦难 / Resource One: Processing Suffering Through Prayer
 
 First of all, prayer. When you suffer, you can process the suffering through prayer. Well, of course you say, everybody prays.
 
@@ -116,6 +162,26 @@ When you suffer, can you come before God with that kind of confidence to know th
 
 If you are able to process your suffering before God like that, there will be a calm, there will be a groundedness. Okay, that's your first resource, but that's not the only one. There's another one.
 
+---
+
+在那之前我们做什么？我们如何生活在一个损坏的世界中，同时等待新世界？这就是保罗试图说的。保罗说我们"哀叹"。
+
+这个词很有趣。它意味着叹气。它意味着深呼一口气，希望。这是什么意思？
+
+**这意味着当我们经历痛苦时，当我们看到世界的伤害时，我们可以叹气。**我们可以说："这不是应该的方式。这不应该这样。" 而我们是对的。
+
+这不应该是这样的方式。世界不应该充满痛苦。人们不应该受苦。但是，当我们叹气时，当我们承认问题时，我们不应该陷入绝望。
+
+我们应该有盼望。我们应该相信上帝将修复它。保罗说我们有"圣灵的初熟果子"。这是什么意思？
+
+**这意味着我们已经尝到了上帝的救恩。**我们已经经历了上帝的爱。我们已经感到了变化的开始。但这不是全部。
+
+初熟果子只是未来更大收获的象征。所以当我们体验上帝的爱和拯救时，这是一个标志，更多的来临。有一天，所有的创造都将体验这种救赎。现在，这对我们的生活意味着什么？
+
+---
+
+## 资源二：死而复活的模式 / Resource Two: The Death-Resurrection Pattern
+
 The second resource is a pattern. Now what do we mean by a pattern? Well, Paul was a pastor and therefore I do understand this part because I'm a pastor too.
 
 Constantly, there are people who come to pastors and say, if God really loves me, why are all these problems happening to me? If God really loves me, why the tragedy, why the suffering? If he loves me in Jesus like you say, why all this?
@@ -164,7 +230,25 @@ You are the image of God, and you have potential for understanding and wisdom an
 
 Without death, there will never be a resurrection, but it's possible if you share in His suffering, if you follow His pattern, if you do it looking to Him, remembering Him, seeing what He did, following Him, believing in Him, trusting Him, then what happens? What actually happens is you become a diamond under that pressure. That's what it's saying.
 
-So first of all, you've got the processing through prayer. And if you process it through prayer, then you have the hope of this pattern actually being reproduced in your life, but that's not all. The third resource is prayer, pattern, perspective.
+So first of all, you've got the processing through prayer. And if you process it through prayer, then you have the hope of this pattern actually being reproduced in your life, but that's not all.
+
+---
+
+首先，**这意味着我们可以诚实地面对痛苦。**我们不必假装事情没问题。我们不必假装世界是完美的。我们可以说："是的，这很痛苦。
+
+是的，这是错的。是的，我很伤心。" 圣经允许我们伤心。圣经允许我们对不公正感到愤怒。
+
+圣经允许我们感到痛苦。其次，**这意味着我们可以有盼望。**即使在痛苦中，即使在伤害中，我们仍然可以有盼望。我们可以相信上帝正在工作。
+
+我们可以相信上帝最终会修复创造。保罗说："现在我们在镜子中看到黑暗和模糊不清。但后来我们将面对面看。"这是说，现在我们不能看到一切上帝正在做什么。
+
+事情对我们来说没有意义。但有一天，一切都会有意义。
+
+---
+
+## 资源三：将来荣耀的视角 / Resource Three: The Perspective of Future Glory
+
+The third resource is prayer, pattern, perspective.
 
 And this is the most powerful. Paul's constantly saying what you need in order to handle your suffering is hope. You need patience.
 
@@ -228,6 +312,20 @@ Perspective, grasp it, prayer, process it, and then you will find that suffering
 
 But listen, when I suffer, I don't feel that God loves me, or you say in the future, there's going to be this great glory, well, when I suffer, I don't feel it at all. It's unreal to me. I feel maybe even unworthy of it.
 
+---
+
+第三，**这意味着我们可以为改变工作。**如果创造最终将被赎回，那么我们可以在现在为改变工作。
+
+我们可以努力创造正义。我们可以帮助穷人。我们可以为受压迫的人辩护。我们可以治愈伤害。
+
+我们可以为和平工作。这不会完全修复世界。但它会使它更好。它会减轻一些痛苦。
+
+它会表明上帝的爱。
+
+---
+
+## 圣灵的叹息：圣诞与十字架 / The Spirit Groans: Christmas and the Cross
+
 How can I be sure these resources will work? Here's all I can tell you from this text. Notice it says that the Spirit of God groans.
 
 That's amazing. It's not just creation of groans and it's not just we, the grown, the Spirit of God groans. And that's weird because remember, groaning, the word grown means a death pain.
@@ -266,70 +364,7 @@ The sermons and talks you hear on the Gospel and Life podcast were recorded betw
 
 ---
 
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《福音人生》播客。世界受到痛苦和伤害的困扰。我们中许多人都在等待永恒和完整的生活。蒂姆·凯勒探讨圣经对盼望和耐心等待拯救世界意味着什么。
-
-我想从一个问题开始：你在等什么？你可能在等很多事情。也许你在等一份新工作。也许你在等爱情。
-
-也许你在等健康改善。也许你在等生活变得更好。但在更深层次上，我认为我们都在等同样的东西。我们都在等世界变得对。
-
-我们都在等痛苦结束。我们都在等正义。我们都在等完整。我们都在哀叹。
-
-这不是我们想要的世界的样子。这不是生活应该的样子。我们希望事情不同。我们希望事情更好。
-
-现在，圣经中保罗说一个有趣的事情。保罗说："我们知道整个创造至今仍在哀鸣和痛苦中。不仅这样，我们自己有圣灵的初熟果子，甚至我们也在内心哀鸣，等待我们身体的救赎。" 这是什么意思？
-
-保罗说的是，不仅仅是我们在哀叹。整个创造都在哀叹。世界本身在哭泣，等待改革。现在，这很有趣，因为当我们谈论盼望时，我们通常谈论个人盼望。
-
-我们谈论我的生活。我的问题。我的痛苦。但保罗说的是更大的东西。
-
-保罗说的是整个创造的盼望。让我回溯一下。在创始中，上帝创造了世界，上帝说这是好的。上帝创造了人，他们是在他的形象中。
-
-生活很完美。没有痛苦。没有死亡。没有邪恶。
-
-但然后人类犯了罪。人类背弃了上帝。而世界改变了。世界被损坏了。
-
-痛苦进入世界。死亡进入世界。邪恶进入世界。现在，世界本身也受到了诅咒。
-
-圣经说："地因你而被诅咒。"创造本身被破坏了。现在，我们生活在一个损坏的世界中。这就是为什么有痛苦。
-
-这就是为什么有邪恶。这就是为什么有死亡。这就是为什么生活很困难。但是，圣经说，创造不会永远被破坏。
-
-创造最终将被赎回。有一天，上帝将创造新天新地。有一天，创造将被修复。这是基督徒的盼望。
-
-这是我们在等什么。我们在等新世界。我们在等上帝把创造弄对。现在，但在那之前会发生什么？
-
-在那之前我们做什么？我们如何生活在一个损坏的世界中，同时等待新世界？这就是保罗试图说的。保罗说我们"哀叹"。
-
-这个词很有趣。它意味着叹气。它意味着深呼一口气，希望。这是什么意思？
-
-**这意味着当我们经历痛苦时，当我们看到世界的伤害时，我们可以叹气。**我们可以说："这不是应该的方式。这不应该这样。" 而我们是对的。
-
-这不应该是这样的方式。世界不应该充满痛苦。人们不应该受苦。但是，当我们叹气时，当我们承认问题时，我们不应该陷入绝望。
-
-我们应该有盼望。我们应该相信上帝将修复它。保罗说我们有"圣灵的初熟果子"。这是什么意思？
-
-**这意味着我们已经尝到了上帝的救恩。**我们已经经历了上帝的爱。我们已经感到了变化的开始。但这不是全部。
-
-初熟果子只是未来更大收获的象征。所以当我们体验上帝的爱和拯救时，这是一个标志，更多的来临。有一天，所有的创造都将体验这种救赎。现在，这对我们的生活意味着什么？
-
-首先，**这意味着我们可以诚实地面对痛苦。**我们不必假装事情没问题。我们不必假装世界是完美的。我们可以说："是的，这很痛苦。
-
-是的，这是错的。是的，我很伤心。" 圣经允许我们伤心。圣经允许我们对不公正感到愤怒。
-
-圣经允许我们感到痛苦。其次，**这意味着我们可以有盼望。**即使在痛苦中，即使在伤害中，我们仍然可以有盼望。我们可以相信上帝正在工作。
-
-我们可以相信上帝最终会修复创造。保罗说："现在我们在镜子中看到黑暗和模糊不清。但后来我们将面对面看。"这是说，现在我们不能看到一切上帝正在做什么。
-
-事情对我们来说没有意义。但有一天，一切都会有意义。第三，**这意味着我们可以为改变工作。**如果创造最终将被赎回，那么我们可以在现在为改变工作。
-
-我们可以努力创造正义。我们可以帮助穷人。我们可以为受压迫的人辩护。我们可以治愈伤害。
-
-我们可以为和平工作。这不会完全修复世界。但它会使它更好。它会减轻一些痛苦。
-
-它会表明上帝的爱。现在，最后，我想说这个。许多人在痛苦中时会失去信仰。他们说："如果有上帝，为什么会有这么多痛苦？
+现在，最后，我想说这个。许多人在痛苦中时会失去信仰。他们说："如果有上帝，为什么会有这么多痛苦？
 
 " 而这是一个有效的问题。但圣经给了我们一个答案。圣经说世界被破坏了。圣经说有一场属灵的战争在进行。
 

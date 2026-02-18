@@ -4,6 +4,8 @@
 
 ---
 
+## 检验世界观的两个标准 / Two Tests of Any Valid Worldview
+
 Welcome to Gospel in Life. How comfortable are you when it comes to being open about your faith? This month on the podcast, Tim Keller looks at what the Bible says about having a public faith.
 
 He shows us what it looks like to be open about our faith in a pluralistic society in a way that creates civility and peace and meaningful dialogue with our neighbors. What we're going to do tonight is look at who is Jesus Christ. What you just heard depicted early dramatically was how the actions and the behavior of Jesus Christ has continually ignited debate about his identity.
@@ -23,6 +25,26 @@ And I've come to see over the years that those are the two tests of any valid wo
 I mean that really was 1970. Now all we ask is, oh religion, who knows whether it's true or not, does it work for me? Who knows whether it's intellectually credible, I mean after all, everybody's got their own views.
 
 What I want to know is it's essentially satisfying to me. With all their respects, I think that's a dangerous approach. Because we do know something called a placebo effect, you know.
+
+---
+
+欢迎来到《生命中的福音》。你在信仰上有多开放？本月的播客中，提摩西·基勒将探讨圣经关于公开信仰的观点。他向我们展示了在一个多元化的社会中如何以一种促进文明、和平和有意义对话的方式公开谈论我们的信仰。
+
+今晚我们将探讨耶稣基督的身份。你刚刚听到的早期戏剧化描绘了耶稣的行为和举止是如何不断引发关于其身份的辩论的。所有有思想的人都会参与这场辩论。我很久以前还是个大学生，我的孩子们偶尔会问我：“爸爸，在你上大学的时候，他们有电视吗？
+
+”我说：“没有，亲爱的。我们常常在洞穴墙上画画动物来消磨时光。” 你可以看到一些至今仍然存在的画作。我记得在我上大学时，有一张我永远忘不了的图画。
+
+那是1970年期间的事情，具体的历史我不太清楚，但我知道当时美国东北部许多大学因为要讨论生活中的问题而关闭了校园，学生们罢课。结果，在我们所在的校园里，每天都有开放麦克风活动在学院广场举行。任何人都可以上去演讲，成群的人前来听讲。无论你在哪里，都能看到一群人聚在一起谈论生命的意义。
+
+有一组学生挂了一块牌子。我记得牌子是黑色的，上面写着白色的大字：“耶稣基督的复活在理智上可信，在存在上令人满意。”多年来，我逐渐认识到这两个标准是对任何有效世界观、哲学或宗教进行检验的两个关键点：它必须合乎逻辑、连贯，并且真实；同时也要相关，能够满足人们的需求并连接他们的经验。现代人倾向于在面对宗教或哲学时不再提出第一个问题了。
+
+我指的是那确实是1970年。现在我们所问的只是，哦，宗教，谁知道它是否真实？对我有效吗？谁知道它是否在智力上站得住脚？
+
+毕竟，每个人都有自己的看法。我想知道的是，它对我来说本质上是令人满意的。尽管如此，我认为这是一种危险的方法。因为确实有一种叫做安慰剂效应的东西我们知道。
+
+---
+
+## 属灵的安慰剂效应 / The Spiritual Placebo Effect
 
 A placebo effect is this. If I am sick and I take some medicine that I really believe will make me better. But I have very serious symptoms, I'm dying of something.
 
@@ -57,6 +79,34 @@ And because it's true, it'll meet your needs. It's exciting in this role. And if
 Now, how do you know Christianity is true? That's quite a challenge. That's quite a dare, especially to do in a kind of confined period of time tonight.
 
 And therefore, what I like to do is give you an overview of the main piece of evidence, which I think is overwhelming and inescapable evidence for the truth of the Christian message. And that is Jesus Christ as datum. Jesus Christ as fat.
+
+---
+
+安慰剂效应是指这样的情况：如果我生病了，我相信某种药物会让我好转。但我的症状非常严重，我可能正在死于某种疾病。只要我相信足够多，就会有安慰剂效应，一些症状会消失，我会感觉好些。但从长远来看，安慰剂效应是非常危险的。
+
+因为它客观上无法治疗我的疾病。它可能会让我以为自己没事了，一切都好了，不需要做其他事情了。如果有一个精神上的客观宇宙。我并不是现在说这个，我没有试图证明给你看。
+
+我只是在说，如果有这样一个客观的精神宇宙，就像物理宇宙一样客观。那么进入一种宗教、信仰、世界观或哲学时，每个人都有自己的工作哲学。每个人都有一套关于我们的问题、我们的去向、人性和终极现实的答案。每个人都有一个工作哲学。
+
+如果你只是说这唯一重要的是我相信它，感觉很好，对我有效。那如果有一种精神上的安慰剂效应呢？那会不会让你觉得一切安好？你知道，每一种宗教、每一个哲学，甚至是那些最疯狂、最荒诞、最不连贯的，都能产生这样的人：他们因为追随这个美妙的组织而感到生活有了意义和目的。
+
+每个人都能做到这一点。黑手党也能做到。有收入很好。有兄弟也不错。
+
+如果有一种安慰剂效应呢？如果你觉得一段时间内感觉良好，但客观上你却因某种与这无关、也解决不了的问题而濒临死亡，你不觉得这样很毁灭吗？基督教的特点在于它几乎是在挑战人们说：“是的，我们本质上就是满足。” 世界上有数以百万计的人可以说基督教帮助了他们。
+
+没有人否认这一点，这是事实。但是基督教挑战并宣称：不只是行为上的满足。我们在智力上是有说服力的，在现实中有意义，因为我们是真的。这与现代思维模式截然不同。
+
+现代思维模式认为：“如果它有效，那就是真的。”而基督教则说：“你没看到吗？” 那将是一种安慰剂效应。我们只有在真实的情况下才能真正起作用。
+
+圣经说：不要因为基督教有用就来信仰它，虽然它确实有这个效果。不要因为基督教令人兴奋就来信仰它，虽然绝对如此。不要因为基督教能满足你的需求就来信仰它，虽然它确实能这样做。要因为你相信它是真的才来信仰它。
+
+因为它是真的，所以它能满足你的需求。它在这个角色上是令人兴奋的。如果它不是真的，那就只是安慰剂。那么，你怎么知道基督教是真的呢？
+
+这是一个很大的挑战，也是一个很大的挑战，尤其是在今晚这种有限的时间内。因此，我喜欢做的是给你一个主要证据的大致概述，我认为这是无可辩驳、无法逃避的基督教信息真实性的证据。那就是耶稣基督作为事实。耶稣基督作为救主。
+
+---
+
+## 耶稣：独一无二的历史事实 / Jesus as Unique Historical Datum
 
 Who is He? You see John 9 that you just heard depicted. Jesus deeds were always making people come up with theories.
 
@@ -132,6 +182,58 @@ There's an awful lot of other people like him that I don't think that we've got 
 
 Have you looked at it? Now, let me show you what the data is. And then let me show you there only five.
 
+---
+
+他是谁？你刚刚听到约翰福音9章的描述。耶稣的行为总是让人们提出理论。你们听到了这些理论吗？
+
+这个人是个罪人。有人反驳说：“等等，他可能是个先知。” 你知道，从没见过罪人做这种事。这个人可能是先知，但这够了吗？
+
+最后，耶稣基督说：“我是治愈你的人。”瞎子下来就拜耶稣。拜了。你们听见没有？
+
+拜了。而耶稣做了什么？他接受了。他保持沉默。
+
+他是谁？什么样的人会接受崇拜呢？霍顿·史密斯写了一本很好的书叫《世界伟大宗教》。这是一本古老的书，流传了很长时间。
+
+你知道吗？它是宗教课程中的重要读物，一本极好的书。世界上的伟大宗教中，这本书里说，在人类历史的长河中，只有两位人物的生活如此非凡、如此巨大，以至于他们生命的事实是如此难以解释，以至于周围的人都不只是问：你是谁？而是问：你是什么？
+
+亨特·史密斯指出，历史上真正对世界产生重大影响的两个人物就是释迦牟尼和耶稣。而这两人对待崇拜的态度截然相反。在两种情况下，人们都想要崇拜他们，因为他们从未见过如此慈悲、如此正直的生活，也从未见过这样的美丽、智慧或任何类似的东西。史密斯说：你们是什么？
+
+人们想要崇拜。而佛陀却说：绝对不要崇拜我。我不是神。佛陀总是不断地说，不要看我，要看我的法，我的教义和教导。
+
+不要看我，要看我的法，我的教义。耶稣则明确接受了人们的崇拜。不仅耶稣没有说他不是神，他还明确地表示，连他自己都不是神，他说他是神。每当有人崇拜时，无论是托马斯跪下喊“主啊，神啊”，还是瞎子崇拜时，耶稣都平静地接受了这种崇拜。
+
+耶稣身上最不可思议的一点就是这一点。有很多人可以被称为历史上最有影响力的人物之一，至少有20个人。事实上，耶稣很可能也会被列为世界十大最具影响力的十个人之一。实际上，你甚至可以把耶稣放在前三名。
+
+事实上，可能达成共识的是他是最有影响力的人，但他属于这个团体的一部分。另一方面，也有一些人声称自己是神。他们自称是神，自称是神圣人物，但除了一个例外之外，在这些人之间没有任何重叠。因为那些宣称自己是神的人总是只能说服一些边缘化、失衡的小团体，也就是一些被边缘化的弱小群体。
+
+哦，这样的例子有很多。我是神，请崇拜我。这样的例子有很多。他们从未说服过除了一小群不正常的人以外的任何人。
+
+相反，在这里，你们有一大群历史上最有影响力的人物，而几乎在所有情况下，当他们谈论自己时，都表现得很谦逊。不要看我，佛陀说。看看我的法教。他们总是说，不要崇拜我。
+
+不要那样做。正是这一点使他们伟大，使他们有影响力。除了一个例外之外。只有一个男人同时属于这两个类别。
+
+他不仅做出了惊人的声明，还让人们相信了这些声明。如果历史上最有影响力的一个人声称自己是神，并因此要求地球上每一个人都向他效忠， 那么没有一个有思想的人可以不研究这个而不被说服。你不能说我已经平衡过，我对生活采取了一种深思熟虑的态度。我不是基督徒，我不相信耶稣是神。
+
+但是你看，我没有深入研究过。我是长大的环境影响下接受的宗教教育，但基本上，我只上了宗教入门课和哲学入门课。我基本上意识到周围大多数聪明的人和酷的人都不相信这个。所以我也不信。
+
+朋友们，耶稣的声明及其影响力之大表明，你最好不只是怀疑他不是神。神啊，你必须知道他不是神。声明的规模。想想看，在非常正式的信笺上收到一家纽约主要律师事务所的来信，说请来见我们，告知你是英国王室的一位远亲。
+
+你的第一反应是什么？我是中国人。来吧，这不可能。然而，你心里清楚，你甚至都不会打个电话。
+
+再给你举一个例子。假设你收到了IRS的正式信笺，上面写着你欠了40万美元的滞纳税，你说：“我不可能。”“我没有赚到4万美元。” 怎么会这样呢？
+
+然而，你得明白这个要求的规模。这个规模意味着你不能仅仅怀疑它的真实性。你必须确定它是假的，因为如果有可能是真的而你错过了，你的生活就会被毁掉。当耶稣基督说：“我是道路、真理和生命。
+
+除了我，没有人能到父那里去。” 你最好确定这不是真的。他是疯子。确实，我认为每个人都不必研究大卫·库里斯的生活，因为我们不知道他是否真的是他说的那个人。
+
+然而，这里有一个这样宣称的人，看看他的生活产生了多大的影响。耶稣基督的数据。你看过吗？现在让我告诉你这些数据是什么。
+
+然后我会告诉你只有五个解释。我将简单列举一下，因为这基本上就是整个案例。也许你从未见过关于基督教的整体论据。关于耶稣是否如他所说是那个人的论据。
+
+---
+
+## 关于耶稣的五个事实 / The Five Facts About Jesus
+
 I'm just going to tick through them because this is basically the case. Maybe you've never seen an overall case. The case for Christianity.
 
 The case for Jesus being who he said he is. Look at the data and there's only five possible answers, five explanations. Who is this?
@@ -172,6 +274,38 @@ I will tell you, the first two are impossible. The first two options are impossi
 
 There's five options, the first two are impossible, the second two are improbable, the last one's inescapable. They all start with I. The first two, the first two, the first one.
 
+---
+
+看看这些数据，只有五个可能的答案。他是谁？我已经向你们展示过，任何一个明智的人都不可能忽视这些数据并决定相信哪个选项。因为你如果连尝试都不愿意，只是选择忽略它，或者你说：“我不知道，我没有看过。
+
+” 你怎么可以这样呢？如果你错了，你的生活可能会被毁掉。这个要求的规模。看看这些数据，只有五个解释方式。
+
+这是数据：第一点，在大约2000年前的巴勒斯坦，有一个自称是神、是弥赛亚、是天之子，并声称要将天国带到地球上的男人。1. 第一，第二，在他传讲信息的时候，听他讲话的人看见了他所行的一些看似奇迹的事。他们看见他从一点点的面包或两块饼中喂饱五千人。他们看见他在水面上行走。
+
+2. 他们看见他使死人复活。他们看见他医治病人。这是第二点。3. 我不是在告诉你他确实做了奇迹，而是在告诉你数百个人亲眼目睹了他所行的看似奇迹的事。
+
+这引起了巨大的轰动。4. 刚才你听到的约翰福音9章就是一个例子。第三，他不仅声称自己是神，还说服了最亲近他的人——与他同住的使徒们等相信他是神。考虑到在地球上最后可能相信一个人可以成为神的是第一世纪的犹太人这一点。
+
+5. 在东方，他们对神的理解是神是一种存在于每个人和每样事物中的生命力量，所以可以说某个人是某种神的表现并不奇怪。而在西方，罗马人和希腊人的观念中有很多神，并且这些神会以人类的形式出现来取乐一阵子。你可以从神话中看到这一点，但犹太人对神的理解却是独一无二的。6. 犹太人认为神不仅是无所不在的，更是超越世界的，是创造世界的存在，是没有开始的。
+
+他们通过《十诫》前两条诫命已经教导了两千多年：永远不要崇拜任何被造之物，永远不要崇拜牛犊，永远不要崇拜月亮的儿子，等等。这些教义已经深深植根于他们的思想中，以至于他们甚至不用神的名字。它太神圣了，世界上最后一个会相信有人是神的人群，大概就是一世纪的犹太人了吧，但不仅如此，最后一个相信你神的人，竟然是你同住、同床共枕的人。嘿，这些伟大的英雄人物大家都知道吧，人人都喜欢他们，然后那些和他们一起生活的人，有人给他们写书约，有人为他们写文章。
+
+这就是为什么在这篇文章中会有几百个人声称自己是上帝的原因——他们确实自称是上帝，但却没有任何影响。为什么呢？因为基本上总有人会看到残忍的一面，总有人会看到自私的行为，总有人会看到虚伪和伪善。你永远无法让那些与你同住、同床共枕的人相信这个人就是神。
+
+事实三：围绕耶稣基督的那群人不仅听到了他自称是神的说法，他们还信了。第四点，在他死后，有几十甚至几百个人声称见过他复活。不仅是所有的使徒，我们还知道至少有一次500多人同时见证了这一点——保罗在《哥林多前书》中提过这一点，我们一会儿再讲到。有一次，500多人同时看到了他复活。
+
+这就是事实四：有时是几十人，有时是几百人在场说：“我见过他，他没有死，他已经复活了。” 第五点，这些人经历了这一切后被彻底改变，他们为了传播这个消息而走遍世界，甚至不惜牺牲生命。许多人付出了极大的代价，有些人甚至为信仰献上了生命的最后一刻，但他们都被彻底改变了，所以他们无处不在地传播着这一信仰。有一个人自称是神，并且确实做了奇迹，他让身边的人相信了这一点。
+
+在他死后，很多人声称见过他的复活，这些人因为遇见这位复活的救主而被彻底改变，于是他们四处传扬这个消息。你如何解释这些事实呢？你如何解释？你如何解释他是谁的数据？
+
+你必须给出一个说法，而这种说法只有五种可能。我将一一列举。我要告诉你，前两种是不可能的。前两种选项根本不可能，我甚至不会说它们是“可能”的，我会直接称它们为“选项”。
+
+有五个选项：前两种是不可能的，后两种不太可能，最后一种是不可避免的。它们都以“I”开头。先讲第一种，再讲第二种。大多数纽约人都用这种方式摆脱这些数据，所以我至少已经花了几分钟在解释上。
+
+---
+
+## 选项一：传说——不可能 / Option One: Legend — Impossible
+
 Most people in New York get out from under the data this way so I've got at least spent a couple minutes on this. Most people say he's a legend. We don't know that any of that happened.
 
 That's the average way that New York people get out from under it. Here's what I mean. In other words, I come to you like I said and many of you here tonight, I'm hoping that afterwards we can talk and have a question answer time after the program is over and so on.
@@ -183,6 +317,22 @@ How do we know all these things? Don't you know that Jesus Christ like any chari
 And you know you played whisper down the alley having you you know you say it to one person next person and over the years these tales became embellished. And the early church began to put into these tales they began to make up stories and they began to put words in Jesus' mouth that met their needs. And so finally they were written down in the New Testament many years after but they were written by the people who were Christians, they weren't their biased people.
 
 They wrote these things down many years later and so we have no idea what Jesus really said. We don't know which of these things are genuine, we don't know which of these accounts is genuine, you can't read the New Testament history. He was a legend that's how I get out from under the data.
+
+---
+
+大多数人会说他是传说中的人物，我们不知道那些事情是否真的发生过。这就是纽约人通常的做法。换句话说，我今晚像之前一样来见你们，希望之后我们可以进行问答环节。你们可能会跟我一起探讨这个问题，但大多数人的回答是：你如何解释这些数据？
+
+我们怎么知道耶稣是谁？我们怎么知道他声称自己是神？我们怎么知道他行了奇迹？你怎么知道这些事情？
+
+难道不知道耶稣基督和其他有魅力的人物一样吗？他的追随者被他所震撼，在他死后他们开始编织关于他的故事。你知道，就像玩“悄悄话”游戏，你告诉一个人，下一个人再传给另一个人，随着时间的推移，这些故事变得越来越丰富。早期教会把这些故事写下来，并在耶稣的话语中加上符合他们需求的内容。
+
+最终，许多年后才把这些内容记录在新约圣经里。但这些书是基督徒写的，他们可能是有偏见的。这些事情是在许多年后被记录下来的，所以我们不知道耶稣究竟说了什么。我们无法确定哪些言论是真实的，也无法确定哪段记载是真实的。
+
+你不能从新约历史中读到真相。他是传说，这就是我如何摆脱这些数据的方式。让我给你们讲三个不能成立的理由。这本身就是一个很好的话题，但我必须给出这三个理由。
+
+---
+
+## 圣经是历史而非传说 / The Bible Is Written as History, Not Legend
 
 Let me just give you actually three reasons that can't be. And this would be a great talk on itself but I just have to give you three reasons why it can't be. Number one, the Bible is not written as legend, the Bible's written as history.
 
@@ -284,236 +434,7 @@ And if you know that you've got that conflict of interest but you have to study 
 
 And that's the reason why I would tell you, so many scholars will be skeptical of the historical account of Jesus and won't be skeptical of what Caesars got like wars, Herodotus, all those accounts, waitonious and so on. He's not a legend. Now if he's not a legend and the second impossible option is he couldn't be a good man, he couldn't be.
 
-Do you know what he says? Have you read what he says? People like to say, oh, but he was just a fine teacher.
-
-How could he be a fine teacher? He says, I'm the way the truth in the life. No one comes to the Father but by me.
-
-He says, if you want to follow me, if you want to be my disciple you have to hate your Father and Mother. He says, anyone who wants to lose his life, save his life will lose it, but anyone who will lose his life for my sake will find it. He says, all power is given unto me and low I'm with you always the end of the earth.
-
-You know what he's saying? Let me just give it to you in modern language. He says, I'm the only way to ultimate reality.
-
-I am the ultimate reality. He says, if you want to follow me, you have got to give me everything. Your love for me must be so high that your love for anything else, even parents and children and spouses has to look like hate in comparison.
-
-If there's anything keeping you from me, if it's an eye, throw it away, pluck it out. If it's a hand, cut it off. Get rid of it.
-
-It's not worth losing me. All reality, all the universe will bow to me. All things will bow to me and all things will bow to you if you come to me.
-
-Who has ever said things like this before? I'll tell you one thing, no good person would say this. This person is either God or he's on the level of a poached egg, a man who says he's a poached egg.
-
-He's either God or he's a terrible liar, but he can't be a good man. Reject him, hate him, assassinate him. But none of this nonsense that he's a good man.
-
-He's not a legend, he's not a good man. Then we say, ah, well, maybe he was a liar or maybe he was a lunatic. But there's a couple of problems with both of those and I'll just treat them together to get to the end.
-
-Mainly because both the liar option and the lunatic option are both the same option. In other words, you're saying he fooled his followers. He was either a very bad person like the Pharisee said in John 9, or he was really a lunatic.
-
-We've got a bit of a problem there. Here's why. For example, look at the quality of his teaching.
-
-It's not the ravings of a madman. GK Chester didn't put it this way. If I found a key on the road and discovered it fit and opened a particular lock.
-
-If I found a key on the road and discovered it fit and opened a particular lock at my house, I'd assume most likely that the key was made by the lock maker. And if I find a set of teachings set out in pre-modern Oriental society that has proven itself of such universal validity, that it has fascinated and satisfied millions of people in every century, including the best minds in history and the simplest hearts. That it has made itself at home in virtually every culture, inspired masterpieces of beauty in every field of art, continues to go rapidly and spread and assert itself in lands where a century ago the name of Jesus Christ was not even heard.
-
-If such teaching so obviously fits the locks of so many human souls in so many times and so many places, are they likely to be the work of a deceiver or a fool? In fact, it is more likely that they were designed by the heart maker. Well, then take a look at his life.
-
-Look at his life. We see the account. Is that life a life of a liar or a lunatic?
-
-Someone's put it this way. No one has ever yet discovered the word Jesus ought to have said. The account.
-
-You try to come up with a better line. Do you realize what kind of person you have to be to even make this up? If somebody made this up, we would have to be sitting here having the same kind of discussion over who is this incredible person who made it up?
-
-What kind of person would this be? No one has ever yet discovered the word Jesus ought to have said or the deed he ought to have done. Nothing he does falls short.
-
-In fact, he is always surprising you and taking your breath away because he's better than you could imagine. Why? They are the surprises of perfection.
-
-He combined virtues never seen together, tenderness without weakness, strength without harshness, humility without the slightest lack of confidence, holiness and unbending convictions without the slightest lack of approachability, power without insensitivity, passion without prejudice, the harshest judgment on the self-satisfied, yet the most winsome kindness to the broken and the marginal, never inconsistent, never a false step, never a drawing note. P. T.
-
-Forsyth said, If God be not thus, he is less than the God we crave and less than the God the world needs. This is the holy love that deserves to be almighty. Listen, when we describe it, we're done.
-
-When we describe it, even describing it, can't you begin to feel a little bit of what they saw? The reason they got down and worshipped him? You can see it when you read the gospels.
-
-You can see it as we just described it. They felt they knew that they were looking through the substance of a human flesh, the very being of God. The last people in the world who would believe this were 1st century Jews.
-
-What power could have gotten them to believe it? What's the alternative? St.
-
-Thomas Aquinas put it this way. He says the only alternative is to believe even greater miracle. And that greater miracle would be, if Jesus Christ did not happen and even more unbelievable miracle happened, the conversion of one half of the Roman world and their moral transformation into unsolficionist and new heights of holiness all by the biggest lie in history.
-
-What's the inescapable option? Not a legend, can't be a good man, those are the impossible ones. The improbable ones, a deceiver or delusional.
-
-Where does it bring us? It brings us to this place. If you get rid of your bias against this possible supernatural, if you get rid of your bias against the idea of a miracle, if you get rid of that bias, it's hard to believe who he said he is, but it's harder not to.
-
-It's difficult to believe who he said he is, but the theories that you have to adhere to in order to get out from it are even more species and have even more holes. And as a result, we come to the final and we say he must be who he said he is. If that's true, it means number one.
-
-It means that there is no way that you have really met the real Jesus unless your reaction to him has been extreme. If there's anybody in this room who doesn't hate him or on the other hand, fear him. I think he's the most dangerous person that ever lived or on the other hand, there's three hands on this man here.
-
-Or on the other hand, love him, adore him and he's thrown over everything to follow him. Those are the only three alternative responses that are rational. Don't you see?
-
-Because of his claims. You should either hate him and attack him or you should fear him and run from him or you should love him and bow down before him. But if you have said, well, I don't know what I think or I think I'm a Christian.
-
-I wish I was a better Christian. I don't know if I'm a Christian. You don't know who he is.
-
-You have never seen the real Jesus. You're responding to a figment of your imagination. Get real.
-
-Lastly, if Jesus is who he said he is, it's great news. You know why? Because he's saying morality and goodness is not the way.
-
-See, Buddha says, I am not God. Look to my teaching. If you just live a good life, that'll be enough.
-
-But if on the other hand, if on the other hand, if on the other hand, you see Jesus who says, don't look to my teaching. Look to me. Buddha says, I'm not God.
-
-I show you the way to God. Jesus says, I'm God come to you. You will never be good enough.
-
-You will never be moral enough to reach God. I have come to live the life you should have lived. I've come to die the death.
-
-You should have died to pay for your sins. I've come all the way. Believe in me.
-
-See, Buddha says, this is the way. Jesus says, I am the way. Buddha says, I can show you the way to God.
-
-Jesus says, get real. You'll never get there. You'll never be good enough.
-
-I'm God come to you. That's good news. If you understand what I just said, and you're not a Christian tonight, you better ask yourself, since I have lots and lots and lots of conflict of interest, I have lots and lots and lots of fears that make me prejudice against the truth of it, please agree tonight to explore.
-
-Some of you think everything I said is silly. I hope you come back some other time anyway. I hope you'll think about it.
-
-Some of you are surprised. Some of you say, I need to study more. Some of you are saying, I need to get more into this.
-
-My stereotypes have been shattered a little bit. I've gotten new ideas to think about. I'm convicted in some ways.
-
-I would like you, if you can, after the service is done, to stick around for a question and answer time, and or go to the welcome table afterwards, out front, get a little blue piece of paper that will give you a book called, Who Is This Jesus? This is for people who want to know. People who aren't sure who he is.
-
-People who are guests tonight, go out, fill out one of those forms, take it downstairs these lounge, and you'll get a free book of the same title of the talk tonight. What we're going to do now, I'm going to pray, we're going to hear a piece of music, and right after that I'm going to take just two or three questions from people to get our question and answer time started. Then I'll dismiss all of you and the people who need to stay can stay up front here and we'll have a question and answer time right afterwards.
-
-Let me pray with you. Our Father, we close this time with prayer because we know that like Jesus said to the Pharisees, because you don't think you're blind, you're very blind. And because you haven't admitted that you don't see, you don't see.
-
-But if you admit you don't see, you begin to see. And if you admit your prejudice, you're losing your prejudices, I pray that your spirit will help people to see that they don't see, so that they can begin to see. And you will get people here, a Holy Spirit, to help people to see their prejudices so they can drop their prejudices so that we can see whether or not Jesus Christ is existentially satisfying and intellectually credible.
-
-I ask that your spirit would help everybody here to see that in Jesus name we pray. Amen. Thanks for listening to today's teaching.
-
-It's our prayer that you were encouraged by it and that it helps you apply the gospel to your life and share it with others. As you may know, August is Goen's share month at gospel and life. We believe God uses small acts to do great things.
-
-If you've already taken a step, maybe you've shared a resource or started praying for someone, we'd love to know. You can encourage others by marking your location on our Goen's share map. Just go to gospelenlife.com slash share and let us know you've participated.
-
-Today's sermon was recorded in 1994. The sermons and talks who hear on the gospel and life podcast were recorded between 1989 and 2017, while Dr.
-
 ---
-
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《生命中的福音》。你在信仰上有多开放？本月的播客中，提摩西·基勒将探讨圣经关于公开信仰的观点。他向我们展示了在一个多元化的社会中如何以一种促进文明、和平和有意义对话的方式公开谈论我们的信仰。
-
-今晚我们将探讨耶稣基督的身份。你刚刚听到的早期戏剧化描绘了耶稣的行为和举止是如何不断引发关于其身份的辩论的。所有有思想的人都会参与这场辩论。我很久以前还是个大学生，我的孩子们偶尔会问我：“爸爸，在你上大学的时候，他们有电视吗？
-
-”我说：“没有，亲爱的。我们常常在洞穴墙上画画动物来消磨时光。” 你可以看到一些至今仍然存在的画作。我记得在我上大学时，有一张我永远忘不了的图画。
-
-那是1970年期间的事情，具体的历史我不太清楚，但我知道当时美国东北部许多大学因为要讨论生活中的问题而关闭了校园，学生们罢课。结果，在我们所在的校园里，每天都有开放麦克风活动在学院广场举行。任何人都可以上去演讲，成群的人前来听讲。无论你在哪里，都能看到一群人聚在一起谈论生命的意义。
-
-有一组学生挂了一块牌子。我记得牌子是黑色的，上面写着白色的大字：“耶稣基督的复活在理智上可信，在存在上令人满意。”多年来，我逐渐认识到这两个标准是对任何有效世界观、哲学或宗教进行检验的两个关键点：它必须合乎逻辑、连贯，并且真实；同时也要相关，能够满足人们的需求并连接他们的经验。现代人倾向于在面对宗教或哲学时不再提出第一个问题了。
-
-我指的是那确实是1970年。现在我们所问的只是，哦，宗教，谁知道它是否真实？对我有效吗？谁知道它是否在智力上站得住脚？
-
-毕竟，每个人都有自己的看法。我想知道的是，它对我来说本质上是令人满意的。尽管如此，我认为这是一种危险的方法。因为确实有一种叫做安慰剂效应的东西我们知道。
-
-安慰剂效应是指这样的情况：如果我生病了，我相信某种药物会让我好转。但我的症状非常严重，我可能正在死于某种疾病。只要我相信足够多，就会有安慰剂效应，一些症状会消失，我会感觉好些。但从长远来看，安慰剂效应是非常危险的。
-
-因为它客观上无法治疗我的疾病。它可能会让我以为自己没事了，一切都好了，不需要做其他事情了。如果有一个精神上的客观宇宙。我并不是现在说这个，我没有试图证明给你看。
-
-我只是在说，如果有这样一个客观的精神宇宙，就像物理宇宙一样客观。那么进入一种宗教、信仰、世界观或哲学时，每个人都有自己的工作哲学。每个人都有一套关于我们的问题、我们的去向、人性和终极现实的答案。每个人都有一个工作哲学。
-
-如果你只是说这唯一重要的是我相信它，感觉很好，对我有效。那如果有一种精神上的安慰剂效应呢？那会不会让你觉得一切安好？你知道，每一种宗教、每一个哲学，甚至是那些最疯狂、最荒诞、最不连贯的，都能产生这样的人：他们因为追随这个美妙的组织而感到生活有了意义和目的。
-
-每个人都能做到这一点。黑手党也能做到。有收入很好。有兄弟也不错。
-
-如果有一种安慰剂效应呢？如果你觉得一段时间内感觉良好，但客观上你却因某种与这无关、也解决不了的问题而濒临死亡，你不觉得这样很毁灭吗？基督教的特点在于它几乎是在挑战人们说：“是的，我们本质上就是满足。” 世界上有数以百万计的人可以说基督教帮助了他们。
-
-没有人否认这一点，这是事实。但是基督教挑战并宣称：不只是行为上的满足。我们在智力上是有说服力的，在现实中有意义，因为我们是真的。这与现代思维模式截然不同。
-
-现代思维模式认为：“如果它有效，那就是真的。”而基督教则说：“你没看到吗？” 那将是一种安慰剂效应。我们只有在真实的情况下才能真正起作用。
-
-圣经说：不要因为基督教有用就来信仰它，虽然它确实有这个效果。不要因为基督教令人兴奋就来信仰它，虽然绝对如此。不要因为基督教能满足你的需求就来信仰它，虽然它确实能这样做。要因为你相信它是真的才来信仰它。
-
-因为它是真的，所以它能满足你的需求。它在这个角色上是令人兴奋的。如果它不是真的，那就只是安慰剂。那么，你怎么知道基督教是真的呢？
-
-这是一个很大的挑战，也是一个很大的挑战，尤其是在今晚这种有限的时间内。因此，我喜欢做的是给你一个主要证据的大致概述，我认为这是无可辩驳、无法逃避的基督教信息真实性的证据。那就是耶稣基督作为事实。耶稣基督作为救主。
-
-他是谁？你刚刚听到约翰福音9章的描述。耶稣的行为总是让人们提出理论。你们听到了这些理论吗？
-
-这个人是个罪人。有人反驳说：“等等，他可能是个先知。” 你知道，从没见过罪人做这种事。这个人可能是先知，但这够了吗？
-
-最后，耶稣基督说：“我是治愈你的人。”瞎子下来就拜耶稣。拜了。你们听见没有？
-
-拜了。而耶稣做了什么？他接受了。他保持沉默。
-
-他是谁？什么样的人会接受崇拜呢？霍顿·史密斯写了一本很好的书叫《世界伟大宗教》。这是一本古老的书，流传了很长时间。
-
-你知道吗？它是宗教课程中的重要读物，一本极好的书。世界上的伟大宗教中，这本书里说，在人类历史的长河中，只有两位人物的生活如此非凡、如此巨大，以至于他们生命的事实是如此难以解释，以至于周围的人都不只是问：你是谁？而是问：你是什么？
-
-亨特·史密斯指出，历史上真正对世界产生重大影响的两个人物就是释迦牟尼和耶稣。而这两人对待崇拜的态度截然相反。在两种情况下，人们都想要崇拜他们，因为他们从未见过如此慈悲、如此正直的生活，也从未见过这样的美丽、智慧或任何类似的东西。史密斯说：你们是什么？
-
-人们想要崇拜。而佛陀却说：绝对不要崇拜我。我不是神。佛陀总是不断地说，不要看我，要看我的法，我的教义和教导。
-
-不要看我，要看我的法，我的教义。耶稣则明确接受了人们的崇拜。不仅耶稣没有说他不是神，他还明确地表示，连他自己都不是神，他说他是神。每当有人崇拜时，无论是托马斯跪下喊“主啊，神啊”，还是瞎子崇拜时，耶稣都平静地接受了这种崇拜。
-
-耶稣身上最不可思议的一点就是这一点。有很多人可以被称为历史上最有影响力的人物之一，至少有20个人。事实上，耶稣很可能也会被列为世界十大最具影响力的十个人之一。实际上，你甚至可以把耶稣放在前三名。
-
-事实上，可能达成共识的是他是最有影响力的人，但他属于这个团体的一部分。另一方面，也有一些人声称自己是神。他们自称是神，自称是神圣人物，但除了一个例外之外，在这些人之间没有任何重叠。因为那些宣称自己是神的人总是只能说服一些边缘化、失衡的小团体，也就是一些被边缘化的弱小群体。
-
-哦，这样的例子有很多。我是神，请崇拜我。这样的例子有很多。他们从未说服过除了一小群不正常的人以外的任何人。
-
-相反，在这里，你们有一大群历史上最有影响力的人物，而几乎在所有情况下，当他们谈论自己时，都表现得很谦逊。不要看我，佛陀说。看看我的法教。他们总是说，不要崇拜我。
-
-不要那样做。正是这一点使他们伟大，使他们有影响力。除了一个例外之外。只有一个男人同时属于这两个类别。
-
-他不仅做出了惊人的声明，还让人们相信了这些声明。如果历史上最有影响力的一个人声称自己是神，并因此要求地球上每一个人都向他效忠， 那么没有一个有思想的人可以不研究这个而不被说服。你不能说我已经平衡过，我对生活采取了一种深思熟虑的态度。我不是基督徒，我不相信耶稣是神。
-
-但是你看，我没有深入研究过。我是长大的环境影响下接受的宗教教育，但基本上，我只上了宗教入门课和哲学入门课。我基本上意识到周围大多数聪明的人和酷的人都不相信这个。所以我也不信。
-
-朋友们，耶稣的声明及其影响力之大表明，你最好不只是怀疑他不是神。神啊，你必须知道他不是神。声明的规模。想想看，在非常正式的信笺上收到一家纽约主要律师事务所的来信，说请来见我们，告知你是英国王室的一位远亲。
-
-你的第一反应是什么？我是中国人。来吧，这不可能。然而，你心里清楚，你甚至都不会打个电话。
-
-再给你举一个例子。假设你收到了IRS的正式信笺，上面写着你欠了40万美元的滞纳税，你说：“我不可能。”“我没有赚到4万美元。” 怎么会这样呢？
-
-然而，你得明白这个要求的规模。这个规模意味着你不能仅仅怀疑它的真实性。你必须确定它是假的，因为如果有可能是真的而你错过了，你的生活就会被毁掉。当耶稣基督说：“我是道路、真理和生命。
-
-除了我，没有人能到父那里去。” 你最好确定这不是真的。他是疯子。确实，我认为每个人都不必研究大卫·库里斯的生活，因为我们不知道他是否真的是他说的那个人。
-
-然而，这里有一个这样宣称的人，看看他的生活产生了多大的影响。耶稣基督的数据。你看过吗？现在让我告诉你这些数据是什么。
-
-然后我会告诉你只有五个解释。我将简单列举一下，因为这基本上就是整个案例。也许你从未见过关于基督教的整体论据。关于耶稣是否如他所说是那个人的论据。
-
-看看这些数据，只有五个可能的答案。他是谁？我已经向你们展示过，任何一个明智的人都不可能忽视这些数据并决定相信哪个选项。因为你如果连尝试都不愿意，只是选择忽略它，或者你说：“我不知道，我没有看过。
-
-” 你怎么可以这样呢？如果你错了，你的生活可能会被毁掉。这个要求的规模。看看这些数据，只有五个解释方式。
-
-这是数据：第一点，在大约2000年前的巴勒斯坦，有一个自称是神、是弥赛亚、是天之子，并声称要将天国带到地球上的男人。1. 第一，第二，在他传讲信息的时候，听他讲话的人看见了他所行的一些看似奇迹的事。他们看见他从一点点的面包或两块饼中喂饱五千人。他们看见他在水面上行走。
-
-2. 他们看见他使死人复活。他们看见他医治病人。这是第二点。3. 我不是在告诉你他确实做了奇迹，而是在告诉你数百个人亲眼目睹了他所行的看似奇迹的事。
-
-这引起了巨大的轰动。4. 刚才你听到的约翰福音9章就是一个例子。第三，他不仅声称自己是神，还说服了最亲近他的人——与他同住的使徒们等相信他是神。考虑到在地球上最后可能相信一个人可以成为神的是第一世纪的犹太人这一点。
-
-5. 在东方，他们对神的理解是神是一种存在于每个人和每样事物中的生命力量，所以可以说某个人是某种神的表现并不奇怪。而在西方，罗马人和希腊人的观念中有很多神，并且这些神会以人类的形式出现来取乐一阵子。你可以从神话中看到这一点，但犹太人对神的理解却是独一无二的。6. 犹太人认为神不仅是无所不在的，更是超越世界的，是创造世界的存在，是没有开始的。
-
-他们通过《十诫》前两条诫命已经教导了两千多年：永远不要崇拜任何被造之物，永远不要崇拜牛犊，永远不要崇拜月亮的儿子，等等。这些教义已经深深植根于他们的思想中，以至于他们甚至不用神的名字。它太神圣了，世界上最后一个会相信有人是神的人群，大概就是一世纪的犹太人了吧，但不仅如此，最后一个相信你神的人，竟然是你同住、同床共枕的人。嘿，这些伟大的英雄人物大家都知道吧，人人都喜欢他们，然后那些和他们一起生活的人，有人给他们写书约，有人为他们写文章。
-
-这就是为什么在这篇文章中会有几百个人声称自己是上帝的原因——他们确实自称是上帝，但却没有任何影响。为什么呢？因为基本上总有人会看到残忍的一面，总有人会看到自私的行为，总有人会看到虚伪和伪善。你永远无法让那些与你同住、同床共枕的人相信这个人就是神。
-
-事实三：围绕耶稣基督的那群人不仅听到了他自称是神的说法，他们还信了。第四点，在他死后，有几十甚至几百个人声称见过他复活。不仅是所有的使徒，我们还知道至少有一次500多人同时见证了这一点——保罗在《哥林多前书》中提过这一点，我们一会儿再讲到。有一次，500多人同时看到了他复活。
-
-这就是事实四：有时是几十人，有时是几百人在场说：“我见过他，他没有死，他已经复活了。” 第五点，这些人经历了这一切后被彻底改变，他们为了传播这个消息而走遍世界，甚至不惜牺牲生命。许多人付出了极大的代价，有些人甚至为信仰献上了生命的最后一刻，但他们都被彻底改变了，所以他们无处不在地传播着这一信仰。有一个人自称是神，并且确实做了奇迹，他让身边的人相信了这一点。
-
-在他死后，很多人声称见过他的复活，这些人因为遇见这位复活的救主而被彻底改变，于是他们四处传扬这个消息。你如何解释这些事实呢？你如何解释？你如何解释他是谁的数据？
-
-你必须给出一个说法，而这种说法只有五种可能。我将一一列举。我要告诉你，前两种是不可能的。前两种选项根本不可能，我甚至不会说它们是“可能”的，我会直接称它们为“选项”。
-
-有五个选项：前两种是不可能的，后两种不太可能，最后一种是不可避免的。它们都以“I”开头。先讲第一种，再讲第二种。大多数纽约人都用这种方式摆脱这些数据，所以我至少已经花了几分钟在解释上。
-
-大多数人会说他是传说中的人物，我们不知道那些事情是否真的发生过。这就是纽约人通常的做法。换句话说，我今晚像之前一样来见你们，希望之后我们可以进行问答环节。你们可能会跟我一起探讨这个问题，但大多数人的回答是：你如何解释这些数据？
-
-我们怎么知道耶稣是谁？我们怎么知道他声称自己是神？我们怎么知道他行了奇迹？你怎么知道这些事情？
-
-难道不知道耶稣基督和其他有魅力的人物一样吗？他的追随者被他所震撼，在他死后他们开始编织关于他的故事。你知道，就像玩“悄悄话”游戏，你告诉一个人，下一个人再传给另一个人，随着时间的推移，这些故事变得越来越丰富。早期教会把这些故事写下来，并在耶稣的话语中加上符合他们需求的内容。
-
-最终，许多年后才把这些内容记录在新约圣经里。但这些书是基督徒写的，他们可能是有偏见的。这些事情是在许多年后被记录下来的，所以我们不知道耶稣究竟说了什么。我们无法确定哪些言论是真实的，也无法确定哪段记载是真实的。
-
-你不能从新约历史中读到真相。他是传说，这就是我如何摆脱这些数据的方式。让我给你们讲三个不能成立的理由。这本身就是一个很好的话题，但我必须给出这三个理由。
 
 首先，圣经不是传说，而是历史。我们总是说福音改变了一切，并且我们相信确实如此。这也是为什么在《福音与生命》八月分享福音月期间，我们在邀请成千上万的听众迈出一小步，向生活中上帝为你安排的人分享福音。对于本月向《福音与生命》捐款的朋友，我们将赠送两本《理解上帝》（Making Sense of God）一书，作者是蒂姆·凯勒。
 
@@ -577,6 +498,32 @@ Today's sermon was recorded in 1994. The sermons and talks who hear on the gospe
 
 你最好确保每一点怀疑都经过双重和三重检查，因为它们可能是偏见。你也必须确保每一个疑点都经过双重和三重检查，因为你知道你有很大的动机不相信这些事情。这就是为什么我要告诉你，许多学者会对耶稣的历史记载持怀疑态度，但不会对恺撒的战争、希罗多德等人的记载持怀疑态度。他不是传说。
 
+---
+
+## 选项二：好人——不可能 / Option Two: Not a Good Man — Impossible
+
+Do you know what he says? Have you read what he says? People like to say, oh, but he was just a fine teacher.
+
+How could he be a fine teacher? He says, I'm the way the truth in the life. No one comes to the Father but by me.
+
+He says, if you want to follow me, if you want to be my disciple you have to hate your Father and Mother. He says, anyone who wants to lose his life, save his life will lose it, but anyone who will lose his life for my sake will find it. He says, all power is given unto me and low I'm with you always the end of the earth.
+
+You know what he's saying? Let me just give it to you in modern language. He says, I'm the only way to ultimate reality.
+
+I am the ultimate reality. He says, if you want to follow me, you have got to give me everything. Your love for me must be so high that your love for anything else, even parents and children and spouses has to look like hate in comparison.
+
+If there's anything keeping you from me, if it's an eye, throw it away, pluck it out. If it's a hand, cut it off. Get rid of it.
+
+It's not worth losing me. All reality, all the universe will bow to me. All things will bow to me and all things will bow to you if you come to me.
+
+Who has ever said things like this before? I'll tell you one thing, no good person would say this. This person is either God or he's on the level of a poached egg, a man who says he's a poached egg.
+
+He's either God or he's a terrible liar, but he can't be a good man. Reject him, hate him, assassinate him. But none of this nonsense that he's a good man.
+
+He's not a legend, he's not a good man. Then we say, ah, well, maybe he was a liar or maybe he was a lunatic. But there's a couple of problems with both of those and I'll just treat them together to get to the end.
+
+---
+
 如果他不是传说，那么第二个不可能的选择就是他不是一个好人。你知道他说了什么吗？你读过他的哪些话吗？人们常说，哦，但他只是一个优秀的教师。
 
 他是怎么成为优秀教师的呢？他说：“我是道路、真理和生命。没有人能到父那里去，除非是经过我。” 他又说：“如果你愿意跟从我，如果你想要做我的门徒，你必须恨你的父亲和母亲。
@@ -592,6 +539,46 @@ Today's sermon was recorded in 1994. The sermons and talks who hear on the gospe
 我可以告诉你，好人绝不会这么说。这个人要么是神，要么就是个煮熟的鸡蛋，一个说自己是煮熟的鸡蛋的人。他要么是神，要么是个大骗子，但肯定不是个好人。拒绝他，恨他，诋毁他。
 
 但他绝不可能是个好人。他不是传说中的人物，也不是个好人。那么我们说，嗯，也许他是骗子或者疯子。但是这两种说法都有问题，我一起处理一下，直接讲到重点。
+
+---
+
+## 选项三和四：骗子或疯子——不大可能 / Options Three and Four: Liar or Lunatic — Improbable
+
+Mainly because both the liar option and the lunatic option are both the same option. In other words, you're saying he fooled his followers. He was either a very bad person like the Pharisee said in John 9, or he was really a lunatic.
+
+We've got a bit of a problem there. Here's why. For example, look at the quality of his teaching.
+
+It's not the ravings of a madman. GK Chester didn't put it this way. If I found a key on the road and discovered it fit and opened a particular lock.
+
+If I found a key on the road and discovered it fit and opened a particular lock at my house, I'd assume most likely that the key was made by the lock maker. And if I find a set of teachings set out in pre-modern Oriental society that has proven itself of such universal validity, that it has fascinated and satisfied millions of people in every century, including the best minds in history and the simplest hearts. That it has made itself at home in virtually every culture, inspired masterpieces of beauty in every field of art, continues to go rapidly and spread and assert itself in lands where a century ago the name of Jesus Christ was not even heard.
+
+If such teaching so obviously fits the locks of so many human souls in so many times and so many places, are they likely to be the work of a deceiver or a fool? In fact, it is more likely that they were designed by the heart maker. Well, then take a look at his life.
+
+Look at his life. We see the account. Is that life a life of a liar or a lunatic?
+
+Someone's put it this way. No one has ever yet discovered the word Jesus ought to have said. The account.
+
+You try to come up with a better line. Do you realize what kind of person you have to be to even make this up? If somebody made this up, we would have to be sitting here having the same kind of discussion over who is this incredible person who made it up?
+
+What kind of person would this be? No one has ever yet discovered the word Jesus ought to have said or the deed he ought to have done. Nothing he does falls short.
+
+In fact, he is always surprising you and taking your breath away because he's better than you could imagine. Why? They are the surprises of perfection.
+
+He combined virtues never seen together, tenderness without weakness, strength without harshness, humility without the slightest lack of confidence, holiness and unbending convictions without the slightest lack of approachability, power without insensitivity, passion without prejudice, the harshest judgment on the self-satisfied, yet the most winsome kindness to the broken and the marginal, never inconsistent, never a false step, never a drawing note. P. T.
+
+Forsyth said, If God be not thus, he is less than the God we crave and less than the God the world needs. This is the holy love that deserves to be almighty. Listen, when we describe it, we're done.
+
+When we describe it, even describing it, can't you begin to feel a little bit of what they saw? The reason they got down and worshipped him? You can see it when you read the gospels.
+
+You can see it as we just described it. They felt they knew that they were looking through the substance of a human flesh, the very being of God. The last people in the world who would believe this were 1st century Jews.
+
+What power could have gotten them to believe it? What's the alternative? St.
+
+Thomas Aquinas put it this way. He says the only alternative is to believe even greater miracle. And that greater miracle would be, if Jesus Christ did not happen and even more unbelievable miracle happened, the conversion of one half of the Roman world and their moral transformation into unsolficionist and new heights of holiness all by the biggest lie in history.
+
+What's the inescapable option? Not a legend, can't be a good man, those are the impossible ones. The improbable ones, a deceiver or delusional.
+
+---
 
 主要问题是这两种说法本质上是一样的。换句话说，你是在说他欺骗了他的追随者。他要么像约翰9章中的法利赛人所说的那样是个非常坏的人，要么就是个真正的疯子。这里确实有个问题。
 
@@ -614,6 +601,66 @@ Today's sermon was recorded in 1994. The sermons and talks who hear on the gospe
 最不可能相信这个的人是1世纪的犹太人。什么力量能让这些人相信呢？有什么替代方案吗？托马斯·阿奎那这样说过：唯一的替代就是相信一个更大的奇迹。
 
 而那个更大的奇迹将是，如果耶稣基督没有发生，甚至更难以置信的奇迹发生了——半个罗马世界的道德转变和他们的道德提升到无罪的高度，这一切都是历史上最大的谎言带来的转化。什么是不可避免的选择？不是传说，也不是一个好人，这些都不可能。不可能的选项，要么是骗子，要么是精神错乱。
+
+---
+
+## 不可避免的结论 / The Inescapable Conclusion
+
+Where does it bring us? It brings us to this place. If you get rid of your bias against this possible supernatural, if you get rid of your bias against the idea of a miracle, if you get rid of that bias, it's hard to believe who he said he is, but it's harder not to.
+
+It's difficult to believe who he said he is, but the theories that you have to adhere to in order to get out from it are even more species and have even more holes. And as a result, we come to the final and we say he must be who he said he is. If that's true, it means number one.
+
+It means that there is no way that you have really met the real Jesus unless your reaction to him has been extreme. If there's anybody in this room who doesn't hate him or on the other hand, fear him. I think he's the most dangerous person that ever lived or on the other hand, there's three hands on this man here.
+
+Or on the other hand, love him, adore him and he's thrown over everything to follow him. Those are the only three alternative responses that are rational. Don't you see?
+
+Because of his claims. You should either hate him and attack him or you should fear him and run from him or you should love him and bow down before him. But if you have said, well, I don't know what I think or I think I'm a Christian.
+
+I wish I was a better Christian. I don't know if I'm a Christian. You don't know who he is.
+
+You have never seen the real Jesus. You're responding to a figment of your imagination. Get real.
+
+Lastly, if Jesus is who he said he is, it's great news. You know why? Because he's saying morality and goodness is not the way.
+
+See, Buddha says, I am not God. Look to my teaching. If you just live a good life, that'll be enough.
+
+But if on the other hand, if on the other hand, if on the other hand, you see Jesus who says, don't look to my teaching. Look to me. Buddha says, I'm not God.
+
+I show you the way to God. Jesus says, I'm God come to you. You will never be good enough.
+
+You will never be moral enough to reach God. I have come to live the life you should have lived. I've come to die the death.
+
+You should have died to pay for your sins. I've come all the way. Believe in me.
+
+See, Buddha says, this is the way. Jesus says, I am the way. Buddha says, I can show you the way to God.
+
+Jesus says, get real. You'll never get there. You'll never be good enough.
+
+I'm God come to you. That's good news. If you understand what I just said, and you're not a Christian tonight, you better ask yourself, since I have lots and lots and lots of conflict of interest, I have lots and lots and lots of fears that make me prejudice against the truth of it, please agree tonight to explore.
+
+Some of you think everything I said is silly. I hope you come back some other time anyway. I hope you'll think about it.
+
+Some of you are surprised. Some of you say, I need to study more. Some of you are saying, I need to get more into this.
+
+My stereotypes have been shattered a little bit. I've gotten new ideas to think about. I'm convicted in some ways.
+
+I would like you, if you can, after the service is done, to stick around for a question and answer time, and or go to the welcome table afterwards, out front, get a little blue piece of paper that will give you a book called, Who Is This Jesus? This is for people who want to know. People who aren't sure who he is.
+
+People who are guests tonight, go out, fill out one of those forms, take it downstairs these lounge, and you'll get a free book of the same title of the talk tonight. What we're going to do now, I'm going to pray, we're going to hear a piece of music, and right after that I'm going to take just two or three questions from people to get our question and answer time started. Then I'll dismiss all of you and the people who need to stay can stay up front here and we'll have a question and answer time right afterwards.
+
+Let me pray with you. Our Father, we close this time with prayer because we know that like Jesus said to the Pharisees, because you don't think you're blind, you're very blind. And because you haven't admitted that you don't see, you don't see.
+
+But if you admit you don't see, you begin to see. And if you admit your prejudice, you're losing your prejudices, I pray that your spirit will help people to see that they don't see, so that they can begin to see. And you will get people here, a Holy Spirit, to help people to see their prejudices so they can drop their prejudices so that we can see whether or not Jesus Christ is existentially satisfying and intellectually credible.
+
+I ask that your spirit would help everybody here to see that in Jesus name we pray. Amen. Thanks for listening to today's teaching.
+
+It's our prayer that you were encouraged by it and that it helps you apply the gospel to your life and share it with others. As you may know, August is Goen's share month at gospel and life. We believe God uses small acts to do great things.
+
+If you've already taken a step, maybe you've shared a resource or started praying for someone, we'd love to know. You can encourage others by marking your location on our Goen's share map. Just go to gospelenlife.com slash share and let us know you've participated.
+
+Today's sermon was recorded in 1994. The sermons and talks who hear on the gospel and life podcast were recorded between 1989 and 2017, while Dr.
+
+---
 
 这会带我们去哪里？它把我们带到这个地方。如果你摒弃对这个超自然可能性的偏见，如果摒弃对奇迹想法的偏见，如果摆脱了这种偏见，要相信他所说的他是谁，其实更难；但要不相信，就更加困难。要相信他所说的他是谁，确实很难，但是为了从中解脱出来而必须坚持的理论却更多漏洞。
 

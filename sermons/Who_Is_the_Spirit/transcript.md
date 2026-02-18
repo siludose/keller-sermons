@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Scripture Reading: John 14 on the Holy Spirit
+
 Welcome to Gospel and Life. Who is the Holy Spirit? And why is the Spirit's work so vital to the Christian life?
 
 The Bible tells us the Holy Spirit is not just a vague force, but a person who works in the lives of Christians in profound ways. Today Tim Keller is exploring how the Spirit calls us to faith, unites us together, equips us with gifts and shapes us to be more like Christ. The Scripture reading this morning comes from John's Gospel, chapter 14, verses 16-26.
@@ -18,7 +20,11 @@ All this I have spoken while still with you, but the counselor, the Holy Spirit 
 
 My impression is that there is an awful lot of churches in the world that talk about nothing but spiritual experience and there is an awful lot of churches that are just absolutely afraid of the subject and just want to talk about doctrine and truth and knowing the right things. But I think the remedy for that imbalance is the doctrine of the Holy Spirit because the deeper you get into it, the more you realize that spirit and truth go together and that's what we are going to be doing over the next number of weeks. This is an introduction, let's take a look at what this great passage tells us about who of the Holy Spirit is, what He does and then how you can receive what He gives.
 
-Who He is, what He does, how you can receive what He gives, very top level, very basic intro, but wonderful. First, who is He? Who is the Holy Spirit and by the way, I already gave you a bit of an answer by the choice of my pronoun.
+Who He is, what He does, how you can receive what He gives, very top level, very basic intro, but wonderful.
+
+### The Holy Spirit Is a Person, Not a Force
+
+First, who is He? Who is the Holy Spirit and by the way, I already gave you a bit of an answer by the choice of my pronoun.
 
 The Holy Spirit is a personal, is the personal divine resident of the Christian's heart. The Holy Spirit is the personal divine resident of the Christian's heart. First of all, personal.
 
@@ -52,7 +58,11 @@ It's not three gods, there are two one for that, but it's not one god in three f
 
 All I can tell you is, in the early days of my Christian faith, it was a millstone around my neck. It felt like this is so confusing, and today I think it's one of the greatest things. It's one of the joys I've got when I contemplated it.
 
-Once you get to understand it, you see the beauty of it, and I can't go into any further than that, because we're here not to talk about the Trinity, but the Holy Spirit. But here's what I want you to see, why so important. The Holy Spirit is not an impersonal force.
+Once you get to understand it, you see the beauty of it, and I can't go into any further than that, because we're here not to talk about the Trinity, but the Holy Spirit.
+
+### Being Filled with the Spirit as a Person
+
+But here's what I want you to see, why so important. The Holy Spirit is not an impersonal force.
 
 The Holy Spirit is a divine person in the middle of your life. Why does that matter? Oh, it matters.
 
@@ -85,6 +95,8 @@ Because neither he nor the mistress could bear even the photograph face of his w
 Are you melted by spiritual understanding, by an acute consciousness of the glorious person that's there to change the way in which you live? Just the awareness of it fills you with a sense of his presence, and it would bring integrity to your life. You're doing right now that you wouldn't do if you were aware of him being there.
 
 If you turn the pictures back over and you say, oh, I might think about this. Of course, it also means to hang on his words. Be filled with the Spirit is very different than to be filled with a force, which leads us to the second point.
+
+### The Spirit of Truth: Author of Scripture and Subjective Experience
 
 The Holy Spirit is a personal divine resident of the Christian heart. Secondly, what does the Holy Spirit do? There are two words here that tell us what he does and they're great.
 
@@ -139,6 +151,8 @@ It's another thing to have the Holy Spirit come and reveal Jesus Christ to you i
 It's one thing to know with your head that sugar is sweet, it's another thing to taste it and have your whole being electrified by it. You not only know it, but you sense it, and that's the job of the Holy Spirit. He is the author, not only of objective truth, because he wrote the Bible, but of subjective truth, he makes it live in your life.
 
 He makes it live, he makes it vivid and powerful, he makes it life-changing, and that's the first thing the Holy Spirit does. But believe it or not, that's not all. Because actually, if this is all he did, he still would be a kind of consultant, or somebody who hired just to come in and give you certain things at certain times.
+
+### The Counselor: Your Permanent Legal Advocate
 
 But that's not all he is. He's also a counselor. I mean, this is the main point of this whole passage.
 
@@ -224,7 +238,11 @@ And then you say, I'm not getting anything out of it. Okay. He's a permanent leg
 
 He's a permanent friend who's willing to do interventions on you all the time. He's for you, para. But he sometimes can be against you for you.
 
-And that's the wonder of having the Holy Spirit in your life. Now, lastly, very importantly, how can you be, well, I'm not going to say be full of the Spirit. We're going to go to that later.
+And that's the wonder of having the Holy Spirit in your life.
+
+### The First Advocate in Heaven: Jesus Our Legal Representative
+
+Now, lastly, very importantly, how can you be, well, I'm not going to say be full of the Spirit. We're going to go to that later.
 
 But how can you be sure that you're receiving the benefits that the Holy Spirit can offer you? And I think there's two answers in this text. We're just sticking with the text.
 
@@ -298,7 +316,11 @@ All the good deeds and all the prayers and going to church and everything. Get i
 
 And I realize that when you believe in Jesus Christ as your Savior, and when He becomes your legal advocate, it means that justice of God is on your side. It would be unjust for God to take two payments for the same sin. And your sins have been paid for.
 
-And therefore, the very justice of God, the omnipotent, infallible, infinite justice of God, demands that there is no condemnation for you. Now, if we've got that advocate up there doing that, what is the Holy Spirit doing down here? The Holy Spirit is our advocate on earth.
+And therefore, the very justice of God, the omnipotent, infallible, infinite justice of God, demands that there is no condemnation for you.
+
+### The Spirit Points to Jesus: Floodlight on His Glory
+
+Now, if we've got that advocate up there doing that, what is the Holy Spirit doing down here? The Holy Spirit is our advocate on earth.
 
 Jesus Christ is our advocate in heaven. What the Holy Spirit is doing is He's taking the advocacy in heaven and applying it here on earth against the enemies in your own heart. He's pounding into you.
 
@@ -328,7 +350,11 @@ There is nothing that can overturn you. That can cast you down. Nothing.
 
 The Holy Spirit's job is to pull. He's an advocate on earth pointing to our advocate in heaven, making the work of the advocate in heaven so beautiful to your life that it changes it. All right, look, two things.
 
-Number one, here's two ways I would like you to change your life on the basis of what I've already said, even if you say, I've already got some things to change. All right, then these two things. Would you please notice the magnificence of divine selflessness, the magnificence of divine selflessness?
+Number one, here's two ways I would like you to change your life on the basis of what I've already said, even if you say, I've already got some things to change. All right, then these two things.
+
+### Application: Divine Selflessness and Your Need for an Advocate
+
+Would you please notice the magnificence of divine selflessness, the magnificence of divine selflessness?
 
 Here's Jesus Christ, emptying self of His glory in order to become a servant and die on the cross for our sins. And now, here's the Holy Spirit, not speaking of His own glory, but glorifying Jesus. There must be something deep in the heart of God that is other oriented.
 

@@ -4,6 +4,8 @@
 
 ---
 
+## 引言与经文诵读 / Introduction and Scripture Reading
+
 Welcome to Gospel and Life. When someone you know is contemplating life's deepest questions, who am I? What's wrong with the world?
 
 What can truly make me whole? Jesus doesn't just give us answers. He gives us Himself.
@@ -21,6 +23,16 @@ These are the very scriptures that testify about me, yet you refuse to come to m
 I have come in my Father's name, and you do not accept me, but if someone else comes in his own name, you will accept Him. How can you believe since you accept glory from one another, but do not seek the glory that comes from the only God? But do not think I will accuse you before the Father.
 
 Your accuser is Moses, on whom your hopes are set. If you believed Moses, you would believe me, for he wrote about me. But since you do not believe what he wrote, how are you going to believe what I say?
+
+---
+
+欢迎来到《福音人生》。你想知道耶稣真的是谁吗？你想知道他的生活和教导意味着什么吗？在今天的信息中，蒂姆·凯勒帮助我们发现关于耶稣的真相，以及他如何改变我们的生活。
+
+我想从一个问题开始："耶稣是谁？" 现在，这个问题的答案取决于你问谁。有些人说耶稣是一位伟大的道德教师。有些人说耶稣是一位精神大师。
+
+---
+
+## 公共话语中的圣经 / The Bible in Public Discourse
 
 The past of which is the Sermonist Base, John 5, is about the Bible. We've been talking about talking about our faith in public. This is the last week in that series.
 
@@ -47,6 +59,18 @@ Don't just listen to what John said, look and don't just even listen to my words
 That's the third witness. Now in this context, he would have been talking about the Old Testament, what we would call the Old Testament. But notice for us, where do you get the testimony of John, the Baptist today?
 
 Where do you get a chance to look at the works of Jesus Christ, the life and ministry of Jesus Christ? It's in what we call the New Testament. In other words, every three witnesses, every one of them, Jesus gives us here is in the scripture.
+
+---
+
+有些人说耶稣只是一个好人。有些人说耶稣是一个骗子或精神病患者。但圣经告诉我们耶稣是什么。圣经说耶稣是上帝的儿子。
+
+圣经说耶稣是上帝本身成为人。圣经说耶稣是来救世界的救世主。现在，这是一个非常强大的声明。这不只是说耶稣是一个好人。
+
+这是说耶稣是上帝。现在，你可能想知道："但我怎么知道这是真的？我怎么知道耶稣真的是上帝的儿子？" 好问题。
+
+---
+
+## 圣经的完全神圣权威 / The Complete Divine Authority of the Bible
 
 And in the process of looking at what he says here, we learn three things that Jesus himself believed about the scripture, which I think are very relevant to those of us who are trying to talk to people about the Bible. Jesus believes in the complete authority, unity, and vitality, power of the Bible. The authority, the unity, and the vitality.
 
@@ -90,6 +114,18 @@ At every time there was a test, every time there was a temptation, every time th
 
 He believed that everything the Bible said, God said, did he believe that? Yeah. But beyond that, it was the operating principle of his life.
 
+---
+
+让我给你一些理由相信这是真的。首先，耶稣声称是上帝的儿子。耶稣说："我和我的父是一样的。"耶稣说："在我以前的事都有我。
+
+"耶稣说："我是生命之粮。"耶稣说："我是光。" 这些都是关于他自己的非常强大的声明。耶稣声称拥有只有上帝拥有的权力和权威。
+
+现在，你可能说："好吧，任何人都可以声称这些事情。"这是真的。任何人都可以走出去说"我是上帝的儿子。" 所以让我给你更多的证据。
+
+---
+
+## 不跟随圣经还能做基督徒吗 / Can You Be a Christian Without Following All the Bible?
+
 Now, having said that, what do you say when someone says, well, you know, you Christians, it's okay to be a Christian, but you really can't take the Bible literally. Now, and I've actually heard Christians who said, or at least professing Christians, who said, well, I'm a Christian, but I don't take every part of the Bible literally. Some parts of it we just can't follow anymore.
 
 Now, every thoughtful Christian that hears somebody talk about the taking the Bible literally has to wince. And the reason you have to wince is because at one level, no, you don't take the Bible literally exactly. I mean, the point is if the Bible has poetry in it, where it says God was wrestling with the sea monster, and it's obviously poetry, there it's Hebrew poetry.
@@ -109,6 +145,20 @@ How could you possibly say you can follow Jesus and then reject one of the main 
 Without a belief in the full authority of the Bible, you aren't following Jesus. You're following somebody that you're calling Jesus. And it's more than that.
 
 Every indication is that if you say, well, I believe in God and I want to have a spiritual experience, but I don't want to have a fully authoritative Bible because there's some parts of it that we just can't follow anymore. Just some parts I don't like. Some parts I don't want to accept.
+
+---
+
+其次，耶稣做了只有上帝才能做的事情。耶稣行奇迹。耶稣医治了病人。耶稣使瞎子看见。
+
+耶稣使聋子听见。耶稣平静风暴。耶稣喂饱了5000人。现在，这些都是难以解释的事情。
+
+这些都是超越人类能力的事情。这些都是上帝能做的事情。其三，耶稣复活了。这是最重要的事实。
+
+耶稣死了。他被钉在十字架上。他埋葬了。但三天后，他复活了。
+
+---
+
+## 我们需要一位会回应的神 / The Android Planet: Why We Need a God Who Talks Back
 
 In the second season of the old TV Star Trek series, second season. This is way back, 70s, 67s at 1969. There was a very funny, it was a comedic, an episode called I Mud.
 
@@ -156,6 +206,18 @@ God comes in from the scripture and says, no, I love you. See, we want God to co
 
 When he tells you, I love you in spite of what your heart says. If you want a real God, if you want a real Jesus, you've got to have an authoritative scripture. You have to have an authoritative scripture.
 
+---
+
+现在，复活不是你只是来自的东西。复活不是你可以伪造的东西。复活不是有自然解释的东西。但有 500多人看到了复活的耶稣。
+
+有许多证人。许多人改变了他们的生活，因为他们相信他们看到了复活的耶稣。所以耶稣真的复活了。这证明了他所声称的。
+
+这证明了他是上帝的儿子。现在，为什么这很重要？为什么知道耶稣是上帝的儿子很重要？它很重要，因为只有上帝才能拯救我们。
+
+---
+
+## 圣经的统一性：摩西为我写 / The Unity of Scripture: Moses Wrote of Me
+
 Second and third, more briefly actually. Jesus also is teaching here the unity of the scripture. Many people say, well the Bible's a human book and you can see, look at all the contradictions.
 
 You Christians, you pick and choose. What about all these rules down here? Where it says you shouldn't be wearing linen and wool together or you shouldn't be eating this or you should be offering these sacrifices.
@@ -202,6 +264,18 @@ You don't have to go looking through Genesis, Exodus, Leviticus, Numbers, Deuter
 
 The Bible will be a thicket. It'll look like contradiction. But if you understand it's all pointing to me, then suddenly it becomes this incredible unity.
 
+---
+
+只有上帝才能原谅我们的罪。只有上帝才能改变我们的心。只有上帝才能给我们永恒的生命。如果耶稣只是一个道德教师，如果耶稣只是一个好人，那么他就不能拯救我们。
+
+但如果耶稣是上帝的儿子，如果耶稣是上帝本身，那么他能拯救我们。而这正是我们所需要的。**我们需要被拯救。****我们需要被赦免。**
+
+**我们需要被改变。****我们需要与上帝有关系。**而耶稣可以做到这一切。
+
+---
+
+## 圣经的活力：借基督得生命 / The Vitality of Scripture: Life Through Christ
+
 There's no contradictions in it. And that leads lastly to the fact of its vitality. And what do I mean by vitality?
 
 Look at this interesting place where Jesus seems to be telling them that they're both right and wrong about the Bible. Verse 39 and 40, you study the scriptures diligently because you think that in them you have eternal life. These are the very scriptures that testify about me, yet you refuse to come to me to have life.
@@ -225,6 +299,30 @@ It's all God's book. Yet it's possible to believe that and yet to miss the main 
 The Bible is just a book to you. It's just a book. Remember how I sometimes mention how Mark Twain who rejected Christianity used to have this nightmare about being asleep and waking up and finding this huge Bible on him bigger than him, weighing them down, crushing him and suffocating him.
 
 What a vivid metaphor that is. But you see, frankly, the Bible, unless you see it's about Jesus, unless you see it's all about Jesus, it will destroy you. It'll either destroy you by making you such guilt over the fact you can't live up to it that you'll just abandon Christianity or it'll turn you into a Pharisee who only care about praise from others, not really from God, who are basically saving themselves by actually having their self-esteem rise as they think of themselves as biblically knowledgeable and obedient, rather than obeying the Bible out of love for God because they realize that they're saved by grace.
+
+---
+
+现在，让我给你一些关于耶稣所做的教导。
+
+首先，耶稣教导关于上帝的爱。耶稣说上帝爱世人。耶稣说上帝像一个好父亲。耶稣说上帝想要与我们有关系。
+
+这与许多人对上帝的看法很不同。许多人认为上帝是严厉的。许多人认为上帝很生气。许多人认为上帝对我们不满意。
+
+但耶稣说上帝爱我们。上帝想我们。上帝想与我们有亲密的关系。其次，耶稣教导关于悔改和原谅。
+
+耶稣说我们都是有罪的。耶稣说我们都需要改变。耶稣说我们都需要被原谅。但耶稣也说上帝会原谅任何向他悔改的人。
+
+耶稣说没有罪太大而不能被原谅。耶稣说上帝总是准备好欢迎我们回家，无论我们做了什么。这很有希望。这很令人难以置信。
+
+这是基督教信仰的核心。第三，耶稣教导关于爱你的邻舍。耶稣说最大的诫命是爱上帝，第二个是爱你的邻舍。耶稣说我们应该关心穷人。
+
+我们应该照顾病人。我们应该为被困的人辩护。我们应该与我们不同意的人宽容。所以耶稣不仅仅关于个人精神。
+
+耶稣是关于正义。耶稣是关于我们对彼此的对待。现在，这如何影响我们？认识耶稣意味着什么？
+
+---
+
+## 借圣道寻见生命 / Finding Life Through the Word
 
 Look, let me finish like this. If you are not sure what you believe or whether you believe in Christianity, then you ought to look at what Jesus offers. Jesus says, look at personal, empirical, and scriptural testimony.
 
@@ -263,61 +361,6 @@ Again, it's all at gospelandlife.com. You can also stay connected with us on Fac
 The sermons and talks you hear on the Gospel and Life podcast were recorded between 1989 and 2017, while Dr.
 
 ---
-
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《福音人生》。你想知道耶稣真的是谁吗？你想知道他的生活和教导意味着什么吗？在今天的信息中，蒂姆·凯勒帮助我们发现关于耶稣的真相，以及他如何改变我们的生活。
-
-我想从一个问题开始："耶稣是谁？" 现在，这个问题的答案取决于你问谁。有些人说耶稣是一位伟大的道德教师。有些人说耶稣是一位精神大师。
-
-有些人说耶稣只是一个好人。有些人说耶稣是一个骗子或精神病患者。但圣经告诉我们耶稣是什么。圣经说耶稣是上帝的儿子。
-
-圣经说耶稣是上帝本身成为人。圣经说耶稣是来救世界的救世主。现在，这是一个非常强大的声明。这不只是说耶稣是一个好人。
-
-这是说耶稣是上帝。现在，你可能想知道："但我怎么知道这是真的？我怎么知道耶稣真的是上帝的儿子？" 好问题。
-
-让我给你一些理由相信这是真的。首先，耶稣声称是上帝的儿子。耶稣说："我和我的父是一样的。"耶稣说："在我以前的事都有我。
-
-"耶稣说："我是生命之粮。"耶稣说："我是光。" 这些都是关于他自己的非常强大的声明。耶稣声称拥有只有上帝拥有的权力和权威。
-
-现在，你可能说："好吧，任何人都可以声称这些事情。"这是真的。任何人都可以走出去说"我是上帝的儿子。" 所以让我给你更多的证据。
-
-其次，耶稣做了只有上帝才能做的事情。耶稣行奇迹。耶稣医治了病人。耶稣使瞎子看见。
-
-耶稣使聋子听见。耶稣平静风暴。耶稣喂饱了5000人。现在，这些都是难以解释的事情。
-
-这些都是超越人类能力的事情。这些都是上帝能做的事情。其三，耶稣复活了。这是最重要的事实。
-
-耶稣死了。他被钉在十字架上。他埋葬了。但三天后，他复活了。
-
-现在，复活不是你只是来自的东西。复活不是你可以伪造的东西。复活不是有自然解释的东西。但有 500多人看到了复活的耶稣。
-
-有许多证人。许多人改变了他们的生活，因为他们相信他们看到了复活的耶稣。所以耶稣真的复活了。这证明了他所声称的。
-
-这证明了他是上帝的儿子。现在，为什么这很重要？为什么知道耶稣是上帝的儿子很重要？它很重要，因为只有上帝才能拯救我们。
-
-只有上帝才能原谅我们的罪。只有上帝才能改变我们的心。只有上帝才能给我们永恒的生命。如果耶稣只是一个道德教师，如果耶稣只是一个好人，那么他就不能拯救我们。
-
-但如果耶稣是上帝的儿子，如果耶稣是上帝本身，那么他能拯救我们。而这正是我们所需要的。**我们需要被拯救。****我们需要被赦免。**
-
-**我们需要被改变。****我们需要与上帝有关系。**而耶稣可以做到这一切。现在，让我给你一些关于耶稣所做的教导。
-
-首先，耶稣教导关于上帝的爱。耶稣说上帝爱世人。耶稣说上帝像一个好父亲。耶稣说上帝想要与我们有关系。
-
-这与许多人对上帝的看法很不同。许多人认为上帝是严厉的。许多人认为上帝很生气。许多人认为上帝对我们不满意。
-
-但耶稣说上帝爱我们。上帝想我们。上帝想与我们有亲密的关系。其次，耶稣教导关于悔改和原谅。
-
-耶稣说我们都是有罪的。耶稣说我们都需要改变。耶稣说我们都需要被原谅。但耶稣也说上帝会原谅任何向他悔改的人。
-
-耶稣说没有罪太大而不能被原谅。耶稣说上帝总是准备好欢迎我们回家，无论我们做了什么。这很有希望。这很令人难以置信。
-
-这是基督教信仰的核心。第三，耶稣教导关于爱你的邻舍。耶稣说最大的诫命是爱上帝，第二个是爱你的邻舍。耶稣说我们应该关心穷人。
-
-我们应该照顾病人。我们应该为被困的人辩护。我们应该与我们不同意的人宽容。所以耶稣不仅仅关于个人精神。
-
-耶稣是关于正义。耶稣是关于我们对彼此的对待。现在，这如何影响我们？认识耶稣意味着什么？
 
 首先，**这意味着我们被拯救。**我们被原谅。我们被改变。我们不再被我们的罪所奴役。
 

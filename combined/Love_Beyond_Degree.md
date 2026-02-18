@@ -4,57 +4,7 @@
 
 ---
 
-Welcome to Gospel in Life. Are you longing to see real change in your life, in your habits, your relationships, your heart? Today, Tim Keller explores how lasting change actually happens in the life of a Christian, and why the Gospel offers a radically different process of transformation than anything else.
-
-The Scripture passes for tonight's Romans 8, verses 28 through 39, and we know that in all things God works for the good of those who love Him, who have been called according to His purpose. For those God for new, He also predestined to be conformed to the likeness of His Son, that He might be the first born among many brothers, and those He predestined He also called those He called He also justified, and those He justified He also glorified. What then shall we say in response to this?
-
-If God is for us, who can be against us? He who did not spare His own Son, but gave Him up for us all. How will He not also, along with Him, graciously give us all things?
-
-Who will bring any charge against those whom God has chosen? It is God who justifies who is He that condemns. Christ Jesus who died more than that who was raised to life is at the right hand of God and is also interceding for us.
-
-Who shall separate us from the love of Christ? Shall trouble or hardship or persecution or famine or nakedness or danger or sword? As it is written, for your sake, we face death all day long.
-
-We are considered as sheep to be slaughtered. No, in all these things, we are more than conquerors through Him who loved us. For I am convinced that neither death nor life, nor angels nor demons, neither the present nor the future, nor any powers, neither height nor depth, nor anything else in all creation will be able to separate us from the love of God that is in Christ Jesus our Lord.
-
-This is the word of the Lord. Christmas is about joy. We sing about joy to the world.
-
-Ever notice that Christmas we sing about these Mary gentlemen and nothing dismayes them. It is amazing. And what we said last week, too, is we are going through Romans 6, 7 and 8 and in this series we come here to the very end of the passage or the section we are looking at which is the end of Romans 8.
-
-And as we said last week, one of the problems with Christmas is that if you are bearing burdens, if you are actually struggling with the life issues, real troubles and an awful lot of people are, Christmas is a tough time because the message is you should have fun. This is Christmas and of course that just makes it worse. And rightly so, I think suffering people at Christmas want to know, what bases does Christmas really give me for joy?
-
-Why should I be married? What bases do I really have for joy that Christmas gives me? And the answer is, if Christmas really happened, if God really did at Christmas open a cleft in the pitied loose walls of this world, if he broke into our broken reality with this healing power, if he became a human being, if Christmas happened, I'd like to show us that there are three things, three solid bases for joy that Christmas gives us, that we can have in any circumstances, even in the deepest grief, these three things you can feel holding you up.
-
-If Christmas happened, I've been getting into a book that used to be required reading. It's actually called one of the most influential books in the history of Western civilization. It's a book called The Consolation of Philosophy by Boethius.
-
-Boethius was a philosopher and a statesman but he was thrown into prison and he wrote this book when he was actually in prison on trumped up charges waiting to be executed. And the question he poses is, if the world takes everything away from you practically, there is to rejoice in in the world, is there any way to maintain your equilibrium, your hope, and your joy in the face of that? And his answer in the end is yes, and he is a Christian.
-
-He comes up with these same three things I'd like to share with you. And by the way, this passage is a marvelous passage, it's a huge passage, and it also raises what a lot of people would consider kind of thorny issues about free will and predestination and all that sort of stuff. I'll come back to that after Christmas.
-
-But you know, I like to give you a gift. Hey, listen, I'm going to give you a gift tonight. You don't have to say, well, how did you get that gift and where did it come from and where did you buy it?
-
-Just enjoy it tonight. There's three things that Christmas, if it's true, and if you believe it's true because you don't have access to this, if you don't believe it. If you believe that what happened to Christmas really happened.
-
-There's three things, three solid bases for joy and here's what they are. Our bad things will turn out for good. Our most truly good things can never be taken away from us, and our best things are yet to come.
-
-That's what it tells us. Our bad things will turn out for good. Our most truly good things can never be taken away from us on our best things are yet to come.
-
-And if you know those, if you got those, you can face things. First, our bad things will turn out for good. Think of Christmas.
-
-Jesus is born into poverty. He's born into danger. You know, his family has to flee to Egypt to escape slaughter.
-
-There's no room for him at the end. But out of Jesus' poverty comes the greatest spiritual riches. Out of Jesus' weakness comes the most incredible power and strength.
-
-Out of Jesus' isolation and rejection comes the people brought together, united in the deepest love, unity. In other words, out of terrible things, through terrible things, because those terrible things have happened comes great good. And Paul says, Romans 8.28, all things work together for good in the lives of those who love God.
-
-All things bad and good, small and little, and big and momentous, all things work together for good to them who love God. Now right away, let me just quickly tell you what this is not saying. This is not a superficial, saccharine view of life that says, oh, behind every cloud there's a silver lining.
-
-Here are these bad things, but they're not really bad. If you learn how to look at them in a certain perspective, no. At the tomb of Lazarus, Jesus' friend Lazarus is dead.
-
-He goes to the tomb. People all around him are weeping. Jesus is about to do exactly what Paul's talking about in Romans 8.28.
-
-He's going to, out of all this bad, he's going to bring something good. He's going to bring glory and joy into the world that wouldn't have been there if Lazarus hadn't died. So he's going to bring good out of the bad.
-
-He's going to make it work out for good, but he's not chuckling at the tomb. Jesus doesn't come up to the tomb going, wait, do you guys see what I'm about to do? He's not chuckling.
+## 耶稣与我们同哭 / Jesus Weeps with Us
 
 He's not saying, oh, I'm going to raise him from the dead. He's weeping with those who weep. We're told he's angry at the tomb.
 
@@ -111,6 +61,50 @@ Our bad things will turn out for good. That's one very important thing to grasp,
 Now that's the second thing Christmas shows us. Why? Well, if anything, Christmas shows us the radical graciousness of God's salvation.
 
 The trajectory of human religion is I code God. I have to ascend through moral effort and through transformations of consciousness or whatever. I must ascend toward God.
+
+---
+
+耶稣诞生在贫穷中。他出生在一个危险的环境中。你知道，他的家人不得不逃到埃及以躲避屠杀。没有地方可以让他住。
+
+但正是从耶稣的贫穷中，带来了最伟大的精神财富；从耶稣的软弱中，带来了最不可思议的力量和勇气；从耶稣的孤立和被排斥中，带来了人们聚集在一起，在最深的爱与团结中结合。换句话说，从可怕的事件中，通过这些可怕的事情，因为那些可怕的事情发生了，最终带来的是巨大的好处。保罗在《罗马书》8章28节中说：“我们晓得万事都互相效力，叫爱神的人得益处。” 无论坏事和好事、小事和大事、大事和重要事，所有的事都在那些爱神的人身上互相效力，成为好的结果。
+
+现在让我快速告诉你这并不是一种表面的、甜腻的人生观，它不是说，每朵乌云后面都有银边。在拉撒路的墓前，耶稣的朋友拉撒路已经死了。耶稣去了坟墓那里，周围的人都在哭泣。耶稣即将要做的事情正是保罗在《罗马书》8章28节中所说的。
+
+他会从这一切坏事中带来好事，把荣耀和喜悦带入这个世界，如果没有拉撒路死去，这些就不会存在。所以他会从坏事中带来好事。他会使这一切最终对你有益，但祂并不是在坟墓旁轻蔑地笑。耶稣没有来到坟墓前说：“你们看，我马上要做什么？
+
+”祂并没有嘲笑。祂也没有说：“我要从死里复活他。”祂是与哀哭的人一同哭泣。约翰福音11章中的坟墓几乎让你不得不想到伟大的威尔士诗人狄兰·托马斯的一句著名诗句。
+
+他说：“不要安静地进入那夜晚，反抗光明消逝的狂怒吧。”耶稣在那里正是这样做的。祂在反抗死亡——将灵魂与身体分离。祂在反抗不公——将种族或人彼此隔绝。
+
+所有神所结合的事物，所有使事物分裂的事物，在神看来都是坏事。它们本身就是邪恶的，并不只是因为换个角度看问题，它们就不是真的坏事了。它们是坏事，非常糟糕。耶稣恨这些事。
+
+祂哭泣，对这些事感到愤怒。但罗马书8章28节说：“我们晓得万事都互相效力，叫爱神的人得益处。”神在掌控一切，最终会战胜那些真正邪恶的事物。所以，尽管现在看起来很糟，但神会将所有坏事和一切不利因素转化为对你有益的结果。
+
+你可能会问：这是如何实现的呢？当然，我认为有两种方式可以解释这一点。一种相对容易理解；另一种则难以理解。比较容易理解的方式就在这里： 罗马书8章28节说：“他使万事互相效力。
+
+”第29节又说：“祂的计划是要我们与祂儿子的形像相似。”这就是我们可以理解的部分。你可能认为自己最大的问题是处境，比如如果能赚到更多的钱、找到更好的工作或打开某个门就好了。但实际情况是，处境无法摧毁你的生命。
+
+性格缺陷的影响。**真正的问题是**你自己的品格。这会摧毁你。愚蠢、骄傲、自私和否认自己的罪与缺点，还有心硬如石，最重要的是，自欺欺人地认为自己可以不依靠上帝就处理好生活中的事情。
+
+所有这些错误，所有的缺陷和性格上的问题，几乎总是需要经历一些糟糕的事情才能被我们敲醒。大多数活了两三个十年以上的人（没有冒犯任何人），无论是谁，在经历了许多事情之后，留下了伤痕，那些伤痛仍然在刺痛着我们，但从中获得的洞察力、品格或力量却是无价之宝。这正是我们在其中得到的一点启示。各种糟糕的事情都会发生在你身上，通过这些事情，上帝会将你塑造得像他的儿子一样。
+
+没有这种契合就没有**真正的喜悦。所以你说，这就完了？所有的坏事只是**为了让我变得更好？不，不能这么认为，因为上帝显然在所有事情中都为好的结果工作，这一点我们永远无法完全理解。
+
+如果你要能够应对生活中的困难，你就必须知道这一点：上帝正在将一切事情转化为对你有利的结果。你不可能完全理解这种转化的方式。对我来说，这是最直接、最重要的地方可以看到这一点。我自己来说，我不会为你忏悔罪行，我会为自己忏悔。
+
+如果我在十字架下的那个阴暗下午，像很多人一样站在那里，我知道所有人都知道的事情——他是个好人，很有能力。这里有一个有能力做善事的人，他在治愈人们，喂饱人们，有着巨大的潜力。然而，在33岁的时候他的生命却被截断了，这是一个悲剧性的死亡。很明显，上帝抛弃了他。
+
+事实上，他说神已经离弃了他。如果我在场，看到所有其他人的情况，我可能会抬头看着说：“我看不出神从这一切中能带来什么好处。”或许我会带着失去信仰回家，至少是动摇了信心。因为我不明白神如何能从中带来巨大的好处。
+
+那将是神为人类所做的最伟大的事情之一。因为它不符合我的思维模式和分类标准。我会说：“我看不出来神在做什么。”换句话说，如果有一个无限的神，当然他有我们无法考虑、无法理解的原因。
+
+不思考这一点是自以为是的极点。所以，如果我在十字架下这样做，而我猜你也可能会在那时那样做——当你感到被抛弃，一切似乎都发生在你身上，你看不到任何好的理由时，不要犯同样的错误。我们的坏事最终会变成好事。这是非常重要的一件事，圣诞节向我们展示了这一点。
+
+其次，我们的**真正的好事永远不会从我们手中夺走。这就是**圣诞节向我们展示的第二件事。为什么呢？因为圣诞节向我们展示了神救恩的彻底恩典。
+
+---
+
+## 超越宗教表现 / Beyond Religious Performance
 
 Then he will bless me. If I live the life I ought to live, then he will bless me and save me. But the trajectory of the gospel is from God to us.
 
@@ -170,6 +164,50 @@ Your adoption into the family. Your relationship with him. These things can't be
 
 See, nothing it says at the very end. In all creation, inside you or outside you can separate you from the love of God. That means that the absolute sovereign of the universe, to whom the galaxies are like dust on the scales, loves you with the unconditional intensity of a parent.
 
+---
+
+人类宗教的发展轨迹是：我塑造神的形象。我必须通过道德努力和意识转变等途径来接近神。然后他才会祝福我，拯救我。如果我过着应该过的生活，他就会祝福我并拯救我。
+
+但福音的信息是从神到我们。你看，在圣诞节的时候，神基本上在说：“你永远不可能达到我的高度。我必须来到你们中间。”你永远达不到这个高度。
+
+因此，神跨越了人类与他的整个鸿沟，一路走来，来到了我们身边。当耶稣来的时候，他是贫穷而弱小的。威廉·比林斯，那位伟大的圣诗作者，在他的作品中有一句名言：“不要在法庭里寻找，也不要在宫殿里寻找，也不要从王室的帷幕中寻求。” 但要到马槽里去寻找。
+
+看看你的神。让他躺在稻草上。神，让他躺在稻草上。为什么神不以将军的身份驾着大军而来？
+
+为什么不以国王的姿态坐在宝座上？他为什么要贫穷而弱小呢？让我告诉你原因。他不是来帮助那些自力更生的人的强大力量。
+
+他不是那种只帮助那些能自救的人的神。绝不是这样。他是为那些软弱无力、无法自己解决问题的人而来。所以他来受苦，来死，来为我们罪孽付出代价。
+
+因此，他来是要赐给我们无条件的爱和救赎的好处。因为这些好处不依赖于我们，也不依赖于我们身上的任何条件。这是超越一切条件之上的爱。这是超越程度之上的爱。
+
+这就是这段经文的核心所在。诗篇可以深刻地影响你与神的关系。即使耶稣也依靠诗篇来面对每一个情况，包括死亡。在蒂姆和凯西·凯勒的365天灵修读物《耶稣的歌》中，你可以找到每天通过诗篇的阅读，并获得新的圣经洞见。
+
+如果你还没有定期灵修的习惯，这本书是一个非常好的开始。而如果你已经花时间在研读和祷告上，那么通过诗篇的阅读和祷告可以帮助你将最深的情感和问题带到神面前，并发现与祂更深一层的亲密关系。作为您对福音与生命事工的支持表示感谢，我们将寄送一本蒂姆和凯西·凯勒的灵修读物给您。请访问gospelandlife.com/slash-give 获取您的副本。
+
+这是gospelandlife.com/slash-give。现在，请听蒂姆·凯勒博士继续今天的教导。例如，在那里说祂预先知道我们，你觉得这代表什么意思？你可能会想，预知就是预见我们。
+
+不，要记住这一点：在圣经中，“知道”是一个非常关系性的词。知道某事是认知上的事情。而真正认识某人则是体验上的事情。你可以知道某人的信息，但不一定真正了解他们。
+
+因此，当圣经说神预先知道我们时，并不是说他预见了我们，而是说他预先爱上了我们。在他向我们施爱之前，我们就没有任何行为指向他。这就是他的爱有多么无条件和强烈。所以，如果你要找一个完美的例子，那就是浪子回头的故事。
+
+你知道，浪子回来了。父亲会坐在门口，脚尖点地，说“这回一定要好好表现”吗？父亲会不会说：“如果他悔改了，我才会给他更多的爱？”不会的。
+
+父亲跑过去迎接他，亲吻他，扑上去拥抱他，并且用无尽的爱包围着他，使他更容易悔改。我们的爱不能引发神的爱；恰恰相反，是神的爱激发了我们对他的爱。这就是它多么激进和无条件。如果你问：“那自由意志呢？
+
+我曾说过我会回来。你为什么不现在就接受这份礼物呢？” 这里就是那份礼物：这里就是那份礼物。神不只是一个老板，他是一位父亲。
+
+一个老板可以喜欢员工，但如果这个员工一而再、再而三地犯错，即使是最好的老板也会想：“我要怎么摆脱她？”“我要怎么摆脱他？”即使是最友善的老板，如果一个人一而再、再而三地犯错，他也可能会想：“我该怎么摆脱他？”但是，当一个孩子一而再、再而三地犯错时，只会让父母对孩子更加关心。
+
+你犯错越多，父母对你的爱就越强烈。这种爱会更加集中和激增。你犯的错误越多，父母对你之爱的强度就越大。这意味着什么？
+
+意味着你真正拥有的最伟大的东西——你的称义、我们之前讨论过的与神和好；你的收养身份、你的家庭关系——这些都无法被夺走。你看，圣经最后一句说：“在基督里，并且无论是在地上还是在天上，都不能叫我们与神的爱隔绝。”**这意味着宇宙的绝对主宰，他对银河系就像对尘埃一样轻视，却以父母般的无条件之爱爱你。**这就是第二点。
+
+圣诞节向我们展示了这一点：你的坏事最终会变成好事。您最真正的好东西永远不会被夺走。而最好的还在后头。现在，我们看到的第三件事在第30节。
+
+---
+
+## 坏事变为祝福 / Bad Things Turn to Good
+
 That's the second thing. And Christmas shows us this. Your bad things will turn out for good.
 
 Your most truly good things can never be taken away from you. And the best things are yet to come. Now the third thing actually we see is in verse 30.
@@ -225,6 +263,50 @@ Suffering when it gets you more deeply into God, when it drives you more deeply 
 Does it hurt? Ask the Velveteen Rabbit? Oh yes, to the skin horse.
 
 That's why it doesn't happen to those who break easily or who have to be very carefully handled. By the time you are real, most of your hair has been loved off and your eyes drop out, and you get really loose in the joints, and you look awfully shabby. But once you are real, you can't be ugly, except to the people who don't understand.
+
+---
+
+从28、29和30节来看，正如我们之前已经看到的，他爱我们，把他的爱放在我们身上，呼召我们。他使我们与神和好，赐给我们正确的关系，并且荣耀我们。但其实不是这样的。这里都是过去时态。
+
+这并不是我们通常说话的方式。你看到了保罗在说什么吗？实际上，评论家们已经注意到这一点几个世纪了，这确实非常引人注目。我们和你们会说的，是这样对基督徒来说的话： 他把他的爱放在你身上，呼召你，使你与神和好。
+
+赦免你，并且有一天他会荣耀你。但保罗并不是这么说的。他说他已经荣耀了你们，用过去时态。过去时态？
+
+这就是他在说什么。首先，因为耶稣基督所做的一切，我们的未来荣耀已经变得如此确定，以至于他可以用这种方式来谈论它。它是如此确定。你说，这怎么可能这么确定呢？
+
+我们有他啊，你知道，这是神在说话的地方。就像《何西阿歌》中说的那样：“坚固的基础。”最后一句是：“那依靠耶稣得以安息的灵魂，我绝不会弃绝给它的敌人。” 那灵魂，纵然全地都起来攻击它。
+
+我绝不、绝不、绝不离弃它。这个关键在于：神怎么可能永远不弃绝我们呢？因为耶稣在十字架上说，“你离弃了我。”耶稣被弃绝是为了我们的缘故，所以我们永远不会被弃绝。
+
+或者说，另一种说法是，耶稣失去了荣耀。腓立比书2章提到，他空了自己。以赛亚书53章也说，他没有美处，我们不会渴望他。他完全失去了他的荣耀，变得可怜、渺小、微不足道，以至于我们可以如此确定和无疑地拥有它，以至于保罗可以用过去时态来谈论它。
+
+现在，如果这是真的，正如我读这一整章时所相信的，并且我们在上周也稍微讨论过这一点。我认为保罗在说什么是这样的：保罗说，他对生命的残酷性有着极大的信心。我没有玫瑰色的眼镜。我并没有一种心胜一切的想法。
+
+我绝不会说，你知道的，事情并不是那么糟糕，只要你换个角度看。我相信生活的残酷性，这种不可避免的生活残酷性，除非我知道荣耀即将来临，否则我无法在这一切苦难中过上有意义的生活。保罗说，只有知道荣耀才能让我们真实地面对生活有多么糟糕，并在这种困境中活出有意义甚至胜利的人生。他在《哥林多后书》4章18节提到：“我们这至暂至轻的苦楚，要为我们成就极重无比、永远的荣耀。
+
+”在2 Corinthians 4章他也说：“我以为，苦难在这临时之世是不配与将来在他我们里面要显出来的荣耀相比的。” 他在说什么呢？有两个要点。这是我们要总结的两方面。
+
+首先，他说，如果你理解保罗在这里所说的，当我们在基督里受苦时，紧紧抓住基督，这会使我们更加真实。因为“荣耀”这个词，在意义上意味着沉重或坚实。实际上，如果我们想想这一点，我们在这整个系列中一直在讨论这个问题。如果每个人都重视你的职业，那么你的职业生涯对你来说非常重要。
+
+所以如果你的职业生涯出现问题，它会让你动摇。但如果你把生活的全部都建立在你的职业生涯上，如果你的身份完全依赖于你的职业，那么一旦你的职业生涯出了问题，你就会彻底崩溃。彻底崩溃。你知道的，没有自我了。
+
+这就是为什么我们不应该把我们的重量放在那些总是摇摆不定的东西上，而是要依靠那块磐石，在神的爱和他对你所说的话、所做的事中扎根更深，这样你会变得更加坚实，更加稳定，实际上也会变得更真实。也就是说，你将成为一个无论发生什么都能持久的人。受苦当你因此更深入地认识神，更深入地经历他为你所做的一切时，会使你更加真实。现在我知道保罗是对的，因为《绒布兔子》也同意他的观点。
+
+例如，皮肤马对绒布兔子说：“当一个孩子长时间地爱你，你就变得真实了。” 受苦吗？问一问绒布兔子吧？当然，对于皮肤马来说是这样。
+
+所以那些容易破碎或需要小心呵护的人不会经历这种真实。到你真正成为真实的时候，你的大部分毛发已经被爱脱落，眼睛也掉出来了，关节松垮了，看起来很破旧。但一旦你变得真实，除了那些不懂的人，你是无法丑陋的。你知道约翰·牛顿那首赞美诗吗？
+
+神在对我们说话，其中有一句说：“这些内在的试炼，我用来从骄傲和自我中释放你，并打破你对尘世快乐的计划，使你能找到我的一切。”你看，首先，受苦实际上现在正在让他更加荣耀。你的内心正日复一日地被更新。荣耀正在为我们准备无上的荣耀，但这还不是全部，未来的荣耀将压倒一切。
+
+当我们思考这一点时，保罗说：“我算计现在的苦难，不值一提，与将来要显给我们的荣耀相比。” 未来的荣耀将带来视角的转变，并使我们能够面对眼前的困难。这就是圣特蕾莎之所以能说：“耶稣第一次亲吻你，第一次荣耀的一刻，将会让你之前经历的所有痛苦，看起来就像在一个糟糕旅馆里度过的一个晚上。” 这就是陀思妥耶夫斯基能够说出“我相信痛苦将会得到治愈和补偿，在世界的终结、永恒和谐的时刻，将会有如此珍贵的事情发生，足以抚慰所有的心灵，弥补人类所有的罪行，洗刷他们所流的所有鲜血，使原谅不仅成为可能，而且是正当的。
+
+”的原因。这听起来非常激进，但保罗正是在谈论这样的事情。现在，让我把这一切总结一下。你们明白了吗？
+
+这种荣耀已经让你变得光荣了，甚至现在的痛苦也能让你变得光荣，总有一天我们会被即将揭示出来的荣耀所遮盖。C·S·刘易斯给我们的一个比喻将所有这些联系在一起，我来读给你们听，不过我不做解释。有一次弗兰内利·奥康纳被问到能否告诉我们她的故事的意义时，她说如果她能在一句话或一个句子中表达出来，她就不用写这个故事了。我也得说同样的话。
+
+---
+
+## 上帝之爱的深度 / The Depth of God's Love
 
 And you know that John Newton hymn that goes where God is speaking to us basically, and the John Newton hymn where God says, these inward trials, these inward trials I employ from pride and self to set thee free and break thy schemes of earthly joy that thou mayst find thine all in me. See, first of all, suffering is actually making him more glorious now. Your inward person is being renewed day by day.
 
@@ -285,161 +367,6 @@ When you do, you will also receive free articles, sermons, devotionals, and othe
 Today's sermon was recorded in 2006. The sermons and talks you hear on the gospelonlife podcast were recorded between 1989 and 2017, while Dr.
 
 ---
-
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《生命中的福音》。你是否渴望在生活、习惯、关系和心灵中看到**真正的改变？今天，提姆·凯勒将探讨基督徒生活中持久改变是**如何发生的，并解释为什么福音提供了与任何其他方式都截然不同的转变过程。今晚的经文来自罗马书8章28至39节。
-
-我们知道，在一切事上，神为爱祂的人工作，使他们得益处，按着祂旨意被召的人。神既预先所知道的人，就预定他们得荣耀；又预先所预定的人，也召他们来；所召来的人，又称他们为义；所称为义的人，也称他们为后嗣。我们说，这怎么说呢？若神是为我们，谁能敌挡我们？
-
-谁是我们的仇敌呢？既是基督的，就是基督的仆人了；既是基督的仆人，神也叫他与基督一同作王，使那些应许，因我们与祂同受苦难而得着满足。因为你们所遇见的试探，无非是人所能受的。神是信实的，必不叫你们受试探过于所能受的；在受试探的时候，总要给你们开一条出路，叫你们能忍受得住。
-
-谁能控告神所拣选的人呢？有神称他们为义了。谁又能定他们的罪呢？有基督耶稣已经死了，而且从死里复活，现今在神的右边，也替我们祈求。
-
-谁能使我们与基督的爱隔绝呢？难道是患难吗？是困苦吗？是逼迫吗？
-
-是饥饿吗？是赤身露体吗？是危险吗？是刀剑吗？
-
-正如经上所记：‘为我们之故，祂被杀；为我们之故，祂受苦难。’以前你们与世人为敌的时候，如今祂替我们死了，所以说：“现在活着的不再是我，乃是基督在我里面活着。”并且我如今在肉身活着，是因信神的儿子而活，祂是爱我，为我舍己。谁能使我们与基督的爱隔绝呢？
-
-难道是患难吗？是困苦吗？是逼迫吗？是饥饿吗？
-
-是赤身露体吗？是危险吗？是刀剑吗？正如经上所记：‘因为我活着，就是基督。
-
-’我也要靠神在基督里活。这是主的话。圣诞节是关于喜乐的。我们唱着《喜乐颂》给世界听。
-
-你有没有注意到，在圣诞节时，我们唱的都是有关玛利亚先生的故事，而他们一点也不沮丧。这真是令人惊讶。正如我们在上周所说的一样，我们现在正在罗马书6、7和8章中进行系列讲解，今天我们将到达这一段落的最后一部分，也就是罗马书8章的最后一部分。这是主的话。
-
-圣诞节是关于喜乐的。我们唱着《喜乐颂》给世界听。正如我们上周所说，圣诞节的一个问题在于，如果你正在承受重担，如果实际上你正与生活中的各种问题斗争——而确实有很多人是这样——那么圣诞节会变得非常艰难。因为它的信息是“你应该开心”，这当然会让情况更糟。
-
-我认为，在圣诞节时经历苦难的人们想知道：圣诞节能给我带来多少**真正的快乐？为什么我应该结婚？圣诞节能为我提供什么真正让我感到快乐的理由呢？答案是**，如果圣诞节真的发生了，如果上帝在圣诞节真的打开了世界的一道裂缝，打破了我们破碎现实的墙壁，并带来了治愈的力量，如果他成为了一个真实的人类，那么如果圣诞节真的发生了，我想向大家展示，有三个坚实的理由让我们因圣诞节而感到快乐。
-
-无论处于何种境况，甚至是最深沉的悲伤中，这三个理由都能支撑着你。如果圣诞节真的发生了，我最近读了一本书，这本书曾经是必读书目之一，事实上它是西方文明史上最具有影响力的书籍之一。这本书名为《哲学的慰藉》，作者是波埃修。波埃修是一位哲学家和政治家，但他被冤枉入狱，在等待被执行死刑时写下了这本书。
-
-他提出的问题是：如果世界剥夺了你所有可以高兴的事物，那么在面对这种情况时，有没有什么方法能保持你的平衡、希望和快乐呢？最终，他的答案是肯定的，并且他是一个基督徒。他提出了与我想要分享给你的这三个理由相同的观点。顺便说一句，这段文字非常精彩，是一段很长的文字，它还涉及了很多人认为棘手的问题，比如自由意志和预定论等。
-
-圣诞节过后我会再回到这个问题上。但是你知道吗？我想给你一个礼物。嘿，听着，今晚我要给你一个礼物。
-
-你不需要问我是怎么得到这个礼物的，也不需要问它是从哪里来的或者是在哪里买的。今晚就尽情享受吧。如果圣诞是真实的，如果你相信它是真的（因为你没有接触到这些信息而选择不相信），那么你就可以从中找到三个理由来欢欣鼓舞。这三个理由是什么？
-
-一是我们的坏事最终会变成好事；二是我们最真挚的好事永远不会被夺走；三是我们最好的东西还在未来等着我们。这就是它告诉我们的。我们的坏事最终会变成好事。我们的最真挚的好事永远不会被夺走。
-
-我们最好的东西还在未来等着我们。如果你知道这些，拥有这些，你就能面对一切。首先，我们的坏事最终会变成好事。想想圣诞吧。
-
-耶稣诞生在贫穷中。他出生在一个危险的环境中。你知道，他的家人不得不逃到埃及以躲避屠杀。没有地方可以让他住。
-
-但正是从耶稣的贫穷中，带来了最伟大的精神财富；从耶稣的软弱中，带来了最不可思议的力量和勇气；从耶稣的孤立和被排斥中，带来了人们聚集在一起，在最深的爱与团结中结合。换句话说，从可怕的事件中，通过这些可怕的事情，因为那些可怕的事情发生了，最终带来的是巨大的好处。保罗在《罗马书》8章28节中说：“我们晓得万事都互相效力，叫爱神的人得益处。” 无论坏事和好事、小事和大事、大事和重要事，所有的事都在那些爱神的人身上互相效力，成为好的结果。
-
-现在让我快速告诉你这并不是一种表面的、甜腻的人生观，它不是说，每朵乌云后面都有银边。在拉撒路的墓前，耶稣的朋友拉撒路已经死了。耶稣去了坟墓那里，周围的人都在哭泣。耶稣即将要做的事情正是保罗在《罗马书》8章28节中所说的。
-
-他会从这一切坏事中带来好事，把荣耀和喜悦带入这个世界，如果没有拉撒路死去，这些就不会存在。所以他会从坏事中带来好事。他会使这一切最终对你有益，但祂并不是在坟墓旁轻蔑地笑。耶稣没有来到坟墓前说：“你们看，我马上要做什么？
-
-”祂并没有嘲笑。祂也没有说：“我要从死里复活他。”祂是与哀哭的人一同哭泣。约翰福音11章中的坟墓几乎让你不得不想到伟大的威尔士诗人狄兰·托马斯的一句著名诗句。
-
-他说：“不要安静地进入那夜晚，反抗光明消逝的狂怒吧。”耶稣在那里正是这样做的。祂在反抗死亡——将灵魂与身体分离。祂在反抗不公——将种族或人彼此隔绝。
-
-所有神所结合的事物，所有使事物分裂的事物，在神看来都是坏事。它们本身就是邪恶的，并不只是因为换个角度看问题，它们就不是真的坏事了。它们是坏事，非常糟糕。耶稣恨这些事。
-
-祂哭泣，对这些事感到愤怒。但罗马书8章28节说：“我们晓得万事都互相效力，叫爱神的人得益处。”神在掌控一切，最终会战胜那些真正邪恶的事物。所以，尽管现在看起来很糟，但神会将所有坏事和一切不利因素转化为对你有益的结果。
-
-你可能会问：这是如何实现的呢？当然，我认为有两种方式可以解释这一点。一种相对容易理解；另一种则难以理解。比较容易理解的方式就在这里： 罗马书8章28节说：“他使万事互相效力。
-
-”第29节又说：“祂的计划是要我们与祂儿子的形像相似。”这就是我们可以理解的部分。你可能认为自己最大的问题是处境，比如如果能赚到更多的钱、找到更好的工作或打开某个门就好了。但实际情况是，处境无法摧毁你的生命。
-
-性格缺陷的影响。**真正的问题是**你自己的品格。这会摧毁你。愚蠢、骄傲、自私和否认自己的罪与缺点，还有心硬如石，最重要的是，自欺欺人地认为自己可以不依靠上帝就处理好生活中的事情。
-
-所有这些错误，所有的缺陷和性格上的问题，几乎总是需要经历一些糟糕的事情才能被我们敲醒。大多数活了两三个十年以上的人（没有冒犯任何人），无论是谁，在经历了许多事情之后，留下了伤痕，那些伤痛仍然在刺痛着我们，但从中获得的洞察力、品格或力量却是无价之宝。这正是我们在其中得到的一点启示。各种糟糕的事情都会发生在你身上，通过这些事情，上帝会将你塑造得像他的儿子一样。
-
-没有这种契合就没有**真正的喜悦。所以你说，这就完了？所有的坏事只是**为了让我变得更好？不，不能这么认为，因为上帝显然在所有事情中都为好的结果工作，这一点我们永远无法完全理解。
-
-如果你要能够应对生活中的困难，你就必须知道这一点：上帝正在将一切事情转化为对你有利的结果。你不可能完全理解这种转化的方式。对我来说，这是最直接、最重要的地方可以看到这一点。我自己来说，我不会为你忏悔罪行，我会为自己忏悔。
-
-如果我在十字架下的那个阴暗下午，像很多人一样站在那里，我知道所有人都知道的事情——他是个好人，很有能力。这里有一个有能力做善事的人，他在治愈人们，喂饱人们，有着巨大的潜力。然而，在33岁的时候他的生命却被截断了，这是一个悲剧性的死亡。很明显，上帝抛弃了他。
-
-事实上，他说神已经离弃了他。如果我在场，看到所有其他人的情况，我可能会抬头看着说：“我看不出神从这一切中能带来什么好处。”或许我会带着失去信仰回家，至少是动摇了信心。因为我不明白神如何能从中带来巨大的好处。
-
-那将是神为人类所做的最伟大的事情之一。因为它不符合我的思维模式和分类标准。我会说：“我看不出来神在做什么。”换句话说，如果有一个无限的神，当然他有我们无法考虑、无法理解的原因。
-
-不思考这一点是自以为是的极点。所以，如果我在十字架下这样做，而我猜你也可能会在那时那样做——当你感到被抛弃，一切似乎都发生在你身上，你看不到任何好的理由时，不要犯同样的错误。我们的坏事最终会变成好事。这是非常重要的一件事，圣诞节向我们展示了这一点。
-
-其次，我们的**真正的好事永远不会从我们手中夺走。这就是**圣诞节向我们展示的第二件事。为什么呢？因为圣诞节向我们展示了神救恩的彻底恩典。
-
-人类宗教的发展轨迹是：我塑造神的形象。我必须通过道德努力和意识转变等途径来接近神。然后他才会祝福我，拯救我。如果我过着应该过的生活，他就会祝福我并拯救我。
-
-但福音的信息是从神到我们。你看，在圣诞节的时候，神基本上在说：“你永远不可能达到我的高度。我必须来到你们中间。”你永远达不到这个高度。
-
-因此，神跨越了人类与他的整个鸿沟，一路走来，来到了我们身边。当耶稣来的时候，他是贫穷而弱小的。威廉·比林斯，那位伟大的圣诗作者，在他的作品中有一句名言：“不要在法庭里寻找，也不要在宫殿里寻找，也不要从王室的帷幕中寻求。” 但要到马槽里去寻找。
-
-看看你的神。让他躺在稻草上。神，让他躺在稻草上。为什么神不以将军的身份驾着大军而来？
-
-为什么不以国王的姿态坐在宝座上？他为什么要贫穷而弱小呢？让我告诉你原因。他不是来帮助那些自力更生的人的强大力量。
-
-他不是那种只帮助那些能自救的人的神。绝不是这样。他是为那些软弱无力、无法自己解决问题的人而来。所以他来受苦，来死，来为我们罪孽付出代价。
-
-因此，他来是要赐给我们无条件的爱和救赎的好处。因为这些好处不依赖于我们，也不依赖于我们身上的任何条件。这是超越一切条件之上的爱。这是超越程度之上的爱。
-
-这就是这段经文的核心所在。诗篇可以深刻地影响你与神的关系。即使耶稣也依靠诗篇来面对每一个情况，包括死亡。在蒂姆和凯西·凯勒的365天灵修读物《耶稣的歌》中，你可以找到每天通过诗篇的阅读，并获得新的圣经洞见。
-
-如果你还没有定期灵修的习惯，这本书是一个非常好的开始。而如果你已经花时间在研读和祷告上，那么通过诗篇的阅读和祷告可以帮助你将最深的情感和问题带到神面前，并发现与祂更深一层的亲密关系。作为您对福音与生命事工的支持表示感谢，我们将寄送一本蒂姆和凯西·凯勒的灵修读物给您。请访问gospelandlife.com/slash-give 获取您的副本。
-
-这是gospelandlife.com/slash-give。现在，请听蒂姆·凯勒博士继续今天的教导。例如，在那里说祂预先知道我们，你觉得这代表什么意思？你可能会想，预知就是预见我们。
-
-不，要记住这一点：在圣经中，“知道”是一个非常关系性的词。知道某事是认知上的事情。而真正认识某人则是体验上的事情。你可以知道某人的信息，但不一定真正了解他们。
-
-因此，当圣经说神预先知道我们时，并不是说他预见了我们，而是说他预先爱上了我们。在他向我们施爱之前，我们就没有任何行为指向他。这就是他的爱有多么无条件和强烈。所以，如果你要找一个完美的例子，那就是浪子回头的故事。
-
-你知道，浪子回来了。父亲会坐在门口，脚尖点地，说“这回一定要好好表现”吗？父亲会不会说：“如果他悔改了，我才会给他更多的爱？”不会的。
-
-父亲跑过去迎接他，亲吻他，扑上去拥抱他，并且用无尽的爱包围着他，使他更容易悔改。我们的爱不能引发神的爱；恰恰相反，是神的爱激发了我们对他的爱。这就是它多么激进和无条件。如果你问：“那自由意志呢？
-
-我曾说过我会回来。你为什么不现在就接受这份礼物呢？” 这里就是那份礼物：这里就是那份礼物。神不只是一个老板，他是一位父亲。
-
-一个老板可以喜欢员工，但如果这个员工一而再、再而三地犯错，即使是最好的老板也会想：“我要怎么摆脱她？”“我要怎么摆脱他？”即使是最友善的老板，如果一个人一而再、再而三地犯错，他也可能会想：“我该怎么摆脱他？”但是，当一个孩子一而再、再而三地犯错时，只会让父母对孩子更加关心。
-
-你犯错越多，父母对你的爱就越强烈。这种爱会更加集中和激增。你犯的错误越多，父母对你之爱的强度就越大。这意味着什么？
-
-意味着你真正拥有的最伟大的东西——你的称义、我们之前讨论过的与神和好；你的收养身份、你的家庭关系——这些都无法被夺走。你看，圣经最后一句说：“在基督里，并且无论是在地上还是在天上，都不能叫我们与神的爱隔绝。”**这意味着宇宙的绝对主宰，他对银河系就像对尘埃一样轻视，却以父母般的无条件之爱爱你。**这就是第二点。
-
-圣诞节向我们展示了这一点：你的坏事最终会变成好事。您最真正的好东西永远不会被夺走。而最好的还在后头。现在，我们看到的第三件事在第30节。
-
-从28、29和30节来看，正如我们之前已经看到的，他爱我们，把他的爱放在我们身上，呼召我们。他使我们与神和好，赐给我们正确的关系，并且荣耀我们。但其实不是这样的。这里都是过去时态。
-
-这并不是我们通常说话的方式。你看到了保罗在说什么吗？实际上，评论家们已经注意到这一点几个世纪了，这确实非常引人注目。我们和你们会说的，是这样对基督徒来说的话： 他把他的爱放在你身上，呼召你，使你与神和好。
-
-赦免你，并且有一天他会荣耀你。但保罗并不是这么说的。他说他已经荣耀了你们，用过去时态。过去时态？
-
-这就是他在说什么。首先，因为耶稣基督所做的一切，我们的未来荣耀已经变得如此确定，以至于他可以用这种方式来谈论它。它是如此确定。你说，这怎么可能这么确定呢？
-
-我们有他啊，你知道，这是神在说话的地方。就像《何西阿歌》中说的那样：“坚固的基础。”最后一句是：“那依靠耶稣得以安息的灵魂，我绝不会弃绝给它的敌人。” 那灵魂，纵然全地都起来攻击它。
-
-我绝不、绝不、绝不离弃它。这个关键在于：神怎么可能永远不弃绝我们呢？因为耶稣在十字架上说，“你离弃了我。”耶稣被弃绝是为了我们的缘故，所以我们永远不会被弃绝。
-
-或者说，另一种说法是，耶稣失去了荣耀。腓立比书2章提到，他空了自己。以赛亚书53章也说，他没有美处，我们不会渴望他。他完全失去了他的荣耀，变得可怜、渺小、微不足道，以至于我们可以如此确定和无疑地拥有它，以至于保罗可以用过去时态来谈论它。
-
-现在，如果这是真的，正如我读这一整章时所相信的，并且我们在上周也稍微讨论过这一点。我认为保罗在说什么是这样的：保罗说，他对生命的残酷性有着极大的信心。我没有玫瑰色的眼镜。我并没有一种心胜一切的想法。
-
-我绝不会说，你知道的，事情并不是那么糟糕，只要你换个角度看。我相信生活的残酷性，这种不可避免的生活残酷性，除非我知道荣耀即将来临，否则我无法在这一切苦难中过上有意义的生活。保罗说，只有知道荣耀才能让我们真实地面对生活有多么糟糕，并在这种困境中活出有意义甚至胜利的人生。他在《哥林多后书》4章18节提到：“我们这至暂至轻的苦楚，要为我们成就极重无比、永远的荣耀。
-
-”在2 Corinthians 4章他也说：“我以为，苦难在这临时之世是不配与将来在他我们里面要显出来的荣耀相比的。” 他在说什么呢？有两个要点。这是我们要总结的两方面。
-
-首先，他说，如果你理解保罗在这里所说的，当我们在基督里受苦时，紧紧抓住基督，这会使我们更加真实。因为“荣耀”这个词，在意义上意味着沉重或坚实。实际上，如果我们想想这一点，我们在这整个系列中一直在讨论这个问题。如果每个人都重视你的职业，那么你的职业生涯对你来说非常重要。
-
-所以如果你的职业生涯出现问题，它会让你动摇。但如果你把生活的全部都建立在你的职业生涯上，如果你的身份完全依赖于你的职业，那么一旦你的职业生涯出了问题，你就会彻底崩溃。彻底崩溃。你知道的，没有自我了。
-
-这就是为什么我们不应该把我们的重量放在那些总是摇摆不定的东西上，而是要依靠那块磐石，在神的爱和他对你所说的话、所做的事中扎根更深，这样你会变得更加坚实，更加稳定，实际上也会变得更真实。也就是说，你将成为一个无论发生什么都能持久的人。受苦当你因此更深入地认识神，更深入地经历他为你所做的一切时，会使你更加真实。现在我知道保罗是对的，因为《绒布兔子》也同意他的观点。
-
-例如，皮肤马对绒布兔子说：“当一个孩子长时间地爱你，你就变得真实了。” 受苦吗？问一问绒布兔子吧？当然，对于皮肤马来说是这样。
-
-所以那些容易破碎或需要小心呵护的人不会经历这种真实。到你真正成为真实的时候，你的大部分毛发已经被爱脱落，眼睛也掉出来了，关节松垮了，看起来很破旧。但一旦你变得真实，除了那些不懂的人，你是无法丑陋的。你知道约翰·牛顿那首赞美诗吗？
-
-神在对我们说话，其中有一句说：“这些内在的试炼，我用来从骄傲和自我中释放你，并打破你对尘世快乐的计划，使你能找到我的一切。”你看，首先，受苦实际上现在正在让他更加荣耀。你的内心正日复一日地被更新。荣耀正在为我们准备无上的荣耀，但这还不是全部，未来的荣耀将压倒一切。
-
-当我们思考这一点时，保罗说：“我算计现在的苦难，不值一提，与将来要显给我们的荣耀相比。” 未来的荣耀将带来视角的转变，并使我们能够面对眼前的困难。这就是圣特蕾莎之所以能说：“耶稣第一次亲吻你，第一次荣耀的一刻，将会让你之前经历的所有痛苦，看起来就像在一个糟糕旅馆里度过的一个晚上。” 这就是陀思妥耶夫斯基能够说出“我相信痛苦将会得到治愈和补偿，在世界的终结、永恒和谐的时刻，将会有如此珍贵的事情发生，足以抚慰所有的心灵，弥补人类所有的罪行，洗刷他们所流的所有鲜血，使原谅不仅成为可能，而且是正当的。
-
-”的原因。这听起来非常激进，但保罗正是在谈论这样的事情。现在，让我把这一切总结一下。你们明白了吗？
-
-这种荣耀已经让你变得光荣了，甚至现在的痛苦也能让你变得光荣，总有一天我们会被即将揭示出来的荣耀所遮盖。C·S·刘易斯给我们的一个比喻将所有这些联系在一起，我来读给你们听，不过我不做解释。有一次弗兰内利·奥康纳被问到能否告诉我们她的故事的意义时，她说如果她能在一句话或一个句子中表达出来，她就不用写这个故事了。我也得说同样的话。
 
 不要问我**这意味着什么。**它意味着的比我能告诉你的更多。这是一个来自地狱的幽灵，不太真实的一个形象，在天堂奥斯卡颁奖典礼上满怀渴望地望着天堂，天使下来试图与他见面，但他的肩膀上有一只小红蜥蜴，蜥蜴不想去，所以这个幽灵很悲伤地转身准备离开。天使喊道：“你为什么要这么快就走？
 

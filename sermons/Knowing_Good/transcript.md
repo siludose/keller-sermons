@@ -68,6 +68,9 @@ That is they either have never heard of it, they never read the Bible, they didn
 
 That's the people who have the law and people who don't. So what does he say about them? He says three things, one of which is interesting, one of which is startling, and one of which is radical and controversial.
 
+### Natural Moral Knowledge
+
+
 It's in verse 1415. Indeed, when Gentiles who do not have the law, due by nature things required by the law, there are law for themselves, even though they do not have the law, they show that the requirements of the law are written on their hearts. Their conscience is also bearing witness, and their thoughts sometimes accusing them in other times, even defending them.
 
 Now here's what he's saying. Here's the interesting thing. All who's sent apart from the law will perish apart from the law, those who are sent under the law will be judged by the law.
@@ -137,6 +140,9 @@ They can twist it. So we all believe that torture for fun is wrong. Why do we be
 And see, in the view of evolution or naturalism, it's a subjective belief, and you only believe it because some of your ancestors felt that way, and that that feeling helped them survive, and all the people who did enjoy torture for fun have not survived, probably because they tortured each other and killed each other. We don't know why, but that's the point. What was the mechanism?
 
 The point is that the reason we all believe that torture for fun is wrong is because all the people who did feel that torture for fun was okay, they died out. And the reason you have the hair color you have is because of evolution, and the reason you have the moral feeling that torture for fun is wrong is also because of evolution, and they come from the same, your hair color, and that moral feeling come from the same place, and they are in the same category. They're only subjective.
+
+### The Subjectivity Objection
+
 
 All your moral feelings are subjectively, you feel those things are wrong subjectively because they helped your ancestors survive, not because they are actually, objectively, universally, and really wrong. They're subjectively wrong because you feel it, but not because they're actually and objectively and universally and really wrong, but just subjective. Now, what happens, though, suppose?
 
@@ -208,6 +214,9 @@ He says, do you not commit adultery? Then he says, you who abhor idols, do you r
 
 He's writing to Jews in Rome, right? He's saying, well, you know, you Jews in Rome should stop at night going in robbing temples and getting the idols and bringing them home. Jews didn't do that.
 
+### True and False Righteousness
+
+
 So he's speaking metaphorically. If he's obviously not speaking literally, and metaphorically, as we often point out, the Bible says, it's one thing to say, I believe in God, I'm living for God, when actually you're living for money, or you're living for power, or you're living for status. And at this point, I think what Paul is trying to show us is what I would call the terrible inwardness of the law.
 
 Terrible? Yes. When Jesus in the Sermon on the Mount expounds the law, he shows the terrible inwardness of it.
@@ -277,6 +286,9 @@ And there's always this kind of inward churn and a lack of rest and a lack of pe
 What is the solution? The solution's a new heart. And how do you get a new heart?
 
 Circumcision of heart. It can only happen obviously by not relying on the law. Well, what do you rely on?
+
+### The Heart of the Matter
+
 
 Here's what you rely on. Why was circumcision used as a sign? Anybody know?
 

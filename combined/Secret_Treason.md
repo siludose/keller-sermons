@@ -4,6 +4,8 @@
 
 ---
 
+## 引言与经文诵读 / Introduction and Scripture Reading
+
 Welcome to Gospel in Life. During January, we're inviting our listeners to consider becoming a Gospel in Life monthly partner. Monthly partners are an important part in helping us to plan for how we can be the most effective in reaching people all over the world with the gospel.
 
 If you'd like to become a monthly partner, just visit gospelinlife.com slash partner. That's gospelinlife.com slash partner. What comes to mind when you hear about the Ten Commandments?
@@ -14,7 +16,25 @@ Since what may be known about God is plain to them because God has made it plain
 
 Therefore, God gave them over in the sinful desires of their hearts to sexual impurity for the degrading of their bodies with one another." Suppressing the truth and suppressing the truth is not admitting there's a God there and the reason that people are suppressing the truth is because, what does it say in verse 21? They won't thank him. The thing that gets this God angry, a God as great as this, a creator God who sifts the stars through his fingers like sand, to whom the Milky Way is a piece of lint.
 
-What gets this great and good being angry? Ingratitude. Now, a question comes up.
+What gets this great and good being angry? Ingratitude.
+
+---
+
+欢迎来到福音生活。在一月份，我们邀请听众考虑成为福音生活的月捐伙伴。月捐伙伴在帮助我们规划如何最有效地将福音传递给全世界人群中起着重要作用。如果您愿意成为月捐伙伴，请访问gospelinlife.com/partner.这是gospelinlife.com/partner. 当你听到十诫时，你会想到什么？
+
+对很多人来说，它们可能带来罪疚和羞耻的感觉，或者看起来像是一份根本无法遵循的规则列表。在今天的讲道中，提姆·凯勒牧师向我们展示，神赐下十诫并不是为用无法实现的道德标准来压垮我们，而是为了指引我们向耶稣基督，祂是唯一完美地成全神律法的人。从天上正显明神的忿怒，临到一切不敬虔和不义的人，就是那些用不义压制真理的人。因为自从创造世界以来，神那看不见的特性、永恒的能力和神性，都是明明可知的，虽是眼不能见，但借着所造之物，就可以晓得，叫人无可推诿。
+
+因为他们虽然知道神，却不当作神荣耀他，也不感谢他。他们的思念变为虚妄，无知的心就昏暗了。自称为聪明，却变成愚拙，将那不朽坏之神的荣耀变为偶像，仿佛必朽坏的人、飞禽、走兽和爬虫的样式。所以，神任凭他们随心所欲，以致彼此玷污自己的身体。
+
+压制真理就是不承认神的存在，而人们压制真理的原因是什么呢？在第21节中说，他们不感谢神。是什么惹动这位伟大创造主的忿怒呢？是忘恩负义。
+
+一位如此伟大神的上帝，一位可以用手指拨弄星辰如沙子的创造者，对银河系而言不过是个绒毛般的存在，这样伟大而良善的存在为何生气呢？是不感恩。有人可能会问，上帝是否小题大做呢？为什么上帝会因忘恩而愤怒呢？
+
+---
+
+## 忘恩如同抄袭和叛国 / Ingratitude as Plagiarism and Treason
+
+Now, a question comes up.
 
 Is God being petty? Why would God get angry about ingratitude? It seems like a petty thing.
 
@@ -62,6 +82,20 @@ My friends, that is treason. You're saying, I want to be governor of my own life
 
 That's treason. It's cosmic treason. It's ingratitude of the highest order.
 
+---
+
+似乎这是一件小事。然而，我们自己却非常认真地对待这个问题。比如说，如果你是一名音乐人，抄袭他人的作品，或者你是一名作家，抄袭他人的文章，或作为学者或学生，把别人写的东西发表出来，声称自己是作者，因此就好像具备权威一般——因为“authority”源自“author”——这种行为是违法的。为什么？
+
+这是抄袭。而抄袭就是一种忘恩，因为它本质上是否认自己依赖于他人承认，而选择以独立自主的姿态出现。让我们谈到另一个层面。在第一次世界大战期间，如果美国抓到一个试图推翻美国政府的德国士兵，他会被如何对待？
+
+根据国际法，他应当被尊重，关入战俘营；但如果是美国人这么做，那就是叛国，那么为什么惩罚会不同呢？因为作为美国公民，他欠这个国家一份恩情。忘恩负义对我们来说，是个极为严重的问题。如果你没有将生命的主权交给神，即便你在某种意义上承认神的存在，但你仍然自己做自己的主人，那就是对宇宙的抄袭。
+
+**真正的献身是**将自己的一切，包括思想、生命的每个部分，都交给神的旨意和话语。**这是背叛，是"宇宙的叛国"。这种忘恩负义在最高意义上是非常严重的，而圣经对此进行了极深刻的讨论。保罗在罗马书第一章中指出，人类虽知神，却拒不归荣耀给他或感谢他，这是压制真理**的表现。
+
+---
+
+## 对自己隐藏的秘密 / The Secret We Keep from Ourselves
+
 And this passage says it's secret treason because the passage says something very, very, very profound. And that is that the wrath of God is being revealed from heaven against the wickedness of men who suppress the truth. Since they can see in nature, it says, since the creation of the world God's invisible qualities have been clearly seen in what is created, though they knew God, they neither glorified him as God nor gave thanks, but suppressed the truth.
 
 The reason this is a secret treason is because you keep it secret from yourself. It says that even though you know there is a God, no matter who you are, who created you, that owns you, to whom you owe a debt, we all press that truth down to some degree. We suppress it.
@@ -83,6 +117,26 @@ It says in verse 21, because they refuse to thank him, it says their thinking be
 Ingratitude leads to repression, repression leads to darkness, and darkness leads to all the sin problems that we've got. And the only answer, this passage tells us, is to exchange the lie for the truth of who God is to us and the debt we owe him, exchange the lie for the truth of gratitude. And when you take that truth and put it back in the center of your life, joy explodes again.
 
 Now that's what the passage says, but let's break it down. Let's go back to each of those steps. Number one, all right, number one.
+
+---
+
+因此，我们**真正的挑战是**，是否在生活中真正承认上帝作为我们的作者，而不仅仅是在口头上。**这是一个秘密的背叛，因为你对自己保密。它说，即使你知道有一位上帝，无论你是谁，那位创造你的、属于你的、你欠债的上帝，我们都在某种程度上压抑了这个真理**。我们压抑它。
+
+我们知道我们在叛变，但我们对自己都保密，然而我们也知道这是事实。这也是这段经文中奇怪的地方。它说他们认识上帝，但同时又说他们压抑这种认识。你知道有一笔绝对重要且充满喜悦的债务，要还给创造者上帝，但你却好像不知道。
+
+我想任何心理学家都会告诉你，那些你在某种程度上知道但又不愿承认的事情是不健康的。它们可以影响你的一生。这段深刻的经文实际上正在对我们进行一种深层次的治疗。它说，正视你对自己的认识，否则你将永远被困于浅薄、痛苦和困惑中。
+
+因此，这段经文说，让我们来看看这种压抑的结构，看看每个人生活中这种秘密背叛的结构是什么。这种结构就在这里。让我给你一个大纲，然后我们来逐步分析。这个大纲非常有趣。
+
+首先，它说，忘恩负义导致压抑。它说他们因为忘恩负义而压抑真理。让我们这样说，忘恩负义导致压抑。然后我们被告知，压抑导致黑暗。
+
+在第21节中，它说，因为他们不愿感谢他，他们的思想变得虚妄，心中充满黑暗。忘恩负义导致压抑，压抑导致黑暗，然后黑暗导致所有的问题。这个黑暗导致你生命中的所有问题，所有的行为问题，所有的不良习惯，所有的罪。忘恩负义导致压抑，压抑导致黑暗，黑暗导致我们所有的罪。
+
+唯一的答案，这段经文告诉我们，就是用有关上帝是谁以及我们欠他的债的真理来交换谎言，把真理放回你生命的中心，喜乐再次爆发。这就是这段经文所说的，但让我们细分这些步骤。第一步，好吧，第一步。这里说，忘恩负义导致压抑。
+
+---
+
+## 忘恩导致压抑真理 / Ingratitude Leads to Repression
 
 It says here, ingratitude leads to repression. You see this word for at the beginning of verse 21, it says for. The reason they repress and suppress the truth, even though they look out into nature and there's a creator God obvious, Paul says, because they don't want to glorify him as God or give thanks to him, they hold down the truth.
 
@@ -110,6 +164,28 @@ They say, well, that doesn't prove God. No, it doesn't. It doesn't prove that th
 
 But what kind of fool would bet your life on that? And what Paul is saying is anybody who does shows a bias. Paul says, if you really are that, if you're that willing to suppress the truth, it shows a bias.
 
+---
+
+你看到在第21节开头的这个词汇"因为"吗？它说因为。压抑和抑制真理的原因，即使他们看到大自然中明显有一位创造者上帝，保罗说，是因为他们不愿意荣耀他为上帝或感谢他，他们压抑了这个真理。这非常重要。
+
+说“我同意有神”是一回事，让他在生活中被荣耀为上帝是另一回事。圣经中的荣耀字面意思是给予某事物重量。保罗说的不是人们否认有神的存在，而是他们否认这个神对他们的真实意义。他们想要否认上帝，想要否认上帝作为上帝的身份。
+
+他们不愿以完全严肃的态度对待他，他们想要成为自己的主人。他们想要自己做主。当他们看到宇宙背后有一位上帝时，他们不去得出那样的逻辑结论。如果宇宙背后有一位上帝，那么我就不应该是自己的权威。
+
+我应该给他至高的权力。顺便说一下，保罗在第20节中提到，从世界造以来，上帝永恒的能力和神性是明明可知的；虽是眼不能见，然而藉着所造之物就可以晓得，叫人无可推诿。他在这里使用了一个古老且无可辩驳的关于上帝存在的论点。他说，看看外面。
+
+看看设计，看看自然，看看设计。他在使用这个古老的论据。他说，想象一下，他说，想象一下，油漆厂的一次爆炸能创造出《蒙娜丽莎》。当然是偶然的，但你知道，东西升起又落下，恰好落在画布上，以这样一种方式画出了这幅美丽的图画。
+
+那样的机会有多大？你会说那没有机会。当然，任何数学家都会告诉你，那不是真的。不能说没有这样的机会。
+
+当然，那种事情发生的机会是微乎其微的。但保罗说，那种事情发生的机会远远超过了所有这些秩序和设计及美丽偶然出现的可能性。然而，他说，令人惊讶的是，许多人愿意将他们的整个人生赌在那个机会之上。每当我向别人提出这个论点时，每当我问，所有的这些偶然发生的机会有多大时，他们会说，那并不能证明上帝的存在。
+
+不，确实不。并不能证明《蒙娜丽莎》不能由油漆厂的爆炸绘制出来。但是哪种傻瓜会愿意用自己的人生去赌这个？保罗所说的是任何这样做的人都显示出了偏见。
+
+---
+
+## 否认上帝的心理动因 / Psychological Reasons to Deny God
+
 You know, Freud, Marx, Feuerbach, and Nietzsche all said that Christians need God. They've got psychological needs for God. You see this, and they all had different approaches, of course, to it.
 
 And Marx said the rich needed God to keep the poor down. And of course, Sigmund Freud said people needed God because they need to have a deity to whom they can atone for their rebellion against authority figures. And Nietzsche had his own view, and Ludwig Feuerbach, and they all said there's psychological reasons why people need to believe in God.
@@ -126,6 +202,26 @@ Oh, how great it would be if it was. That's not what the response has been to me
 
 And that shows, I'd say, a deep bias. That's what Paul says. Here's people who are willing to bet their lives on a fairly slim chance.
 
+---
+
+保罗说，如果你真的愿意如此压抑真相，那就显示出了一种偏见。你知道，弗洛伊德、马克思、费尔巴哈和尼采都说基督徒需要上帝。因为他们在心理上需要上帝。你看，他们当然对此有不同的看法。
+
+马克思说，富人需要上帝来压制穷人。而弗洛伊德则说，人们需要上帝，因为他们需要一个神来为他们对权威的反叛赎罪。尼采有自己的看法，路德维希·费尔巴哈也有，他们都说人们需要相信上帝是有心理原因的。顺便说一句，这是真的。
+
+保罗在这里指出的是，人们不相信上帝有更大的、极深的心理原因。因为即使我们看向外面，说是的，显然必定有一位上帝，但如果有一位创造所有这些设计的个人神，那么我们就欠他权威。没有中间地带。要么没有上帝，这一切都是偶然，要么有上帝，我们欠他一切。
+
+我们不想要那样。所以你看，保罗说有非常深刻的心理原因去否认上帝。这对我来说是有道理的，因为多年来，当我与人交谈时，当你简单地分享基督教的信息时，它大概是这样的。基督教的信息是这样的。
+
+上帝创造了你，虽然你一生都以自己的权威活着，做自己的决定，制定你自己的道德标准，设定自己的目标，但上帝仍然爱你，他进入了你的境况，他在耶稣基督的身上进入了历史，他承受了你因忘恩负义所应受的惩罚，使我们可以进入一个永恒的。。。与我们的创造主建立爱的关系，并拥有一个被喜乐和感恩的爱支配的生活。
+
+这就是信息。理性的拒绝方法，可能是说“我不能接受，因为这好得令人难以置信。”这就如同有人告诉我这是真实的，该有多好。然而，过去几年我收到的反应却不是这样的。
+
+反应通常是：“你又来了，试图告诉我该怎么生活。”这显示了一种深层的偏见。保罗是这样说的：有些人宁愿把他们的生命押在一线的希望上。
+
+---
+
+## 压抑真理导致黑暗 / Repression Leads to Darkness
+
 Ingratitude leads to repression, but then it goes further. Repression leads to darkness. It says here, verse 21, since they would not give thanks to him, their thinking became futile and their foolish hearts were darkened.
 
 Now, the word futile means pointless. It means not being able to see the purpose in something. And that is the truth.
@@ -135,6 +231,20 @@ What Paul is saying here is if you reject the personal God because you don't wan
 When we put our faith in them, deep down, we know they can't satisfy our deepest longings. The truth is that we've made lesser gods of good things, things that can't give us what we really need. In his book Counterfeit Gods, The Empty Promises of Money, Sex, and Power and the Only Hope That Matters, Tim Keller shows us how a proper understanding of the Bible reveals the truth about societal ideals and our own hearts, and shows us that there is only one God who can wholly satisfy our desires.
 
 This month, we'll send you Counterfeit Gods as our thank you for your gift to help Gospel & Life share the love of Christ with people all over the world. You can request your copy at gospelandlife.com slash give. That's gospelandlife.com slash give.
+
+---
+
+忏悔不足会导致压抑，进而导致黑暗。
+
+21节说，因为他们不愿意感谢他，他们的思维就变得虚妄，他们无知的心就昏暗了。这里的“虚妄”意思是没有意义，以及不能看到事物的目的。事实上，保罗在这里想要说的是，如果你不愿意接受这位个人的神，因为你不愿让他主宰你的生命，那么你就处于一个很可怕的位置。如果没有这位个人的神，就没有对错，没有道德结构，没有道德结构的事情，就只剩下黑暗。
+
+我们都在追逐成功、真爱或完美的生活，这些好事很容易就变成了终极的东西。当我们把信仰放在它们上面时，内心深处，我们知道它们无法满足我们最深的渴望。事实是，我们把这些好事变成了次要的神明，无法给我们真正需要的东西。在他的书《伪神》中，Tim Keller向我们展示了如何通过正确理解圣经来揭示社会理想和我们内心的真相，并向我们展示只有一位神才能完全满足我们的欲望。
+
+这个月，为了感谢您的捐赠帮助《福音与生活》与全世界的人分享基督的爱，我们将为您送上《伪神》这本书。您可以在gospelandlife.com/give请求您的副本。
+
+---
+
+## 无神论道德的三个案例 / Three Case Studies on Morality Without God
 
 Now here's Dr. Keller with the rest of today's teaching. Let me give you three case studies.
 
@@ -188,6 +298,32 @@ And almost all of them justify what they've done. Well, I know I raped her becau
 
 And you see, the ingratitude leads to the self-pity, leads to the bitterness, and it leads to prison. But even if you're not in the real prison, self-pity is a prison. And everything comes from that ingratitude.
 
+---
+
+现在，请听Keller博士继续今天的教导。让我给你提供三个案例研究。
+
+一个是关于伍迪·艾伦的新电影《罪与罚》，它的剧情大致是这样的：有一个人是个道德人，但并不是宗教人。他是一个有良知的道德人，但没有多少宗教的基础。他生活得还不错，直到他与一名空姐发生了一段小外遇。空姐看起来要揭发他，试图让他的妻子离开他。
+
+他陷入了困境，他的生活可能会崩溃，于是他开始考虑有人建议的方法，就是杀掉这个女人。他找到了一个拉比，拉比告诉他说，宇宙中必须有一个道德结构，如果没有，就没有意义，也没有办法生活。所以你必须做正确的事情。我不能说得更详细了，因为剧透是不对的，对吧？
+
+但我可以告诉你，这部电影的结局没有一个好的解决。这个电影的讯息就像《传道书》的尾声一样悬而未决。电影的讯息是，我们无法知道宇宙中是否存在一个道德结构，但必须有一个。然而，我们被卡住了。
+
+没有宗教的道德是无效的，没有个人创造者的道德结构是无效的，这是我们知道的。让我给您一个案例研究。几年前，如果你还记得，那时有一系列关于核浩劫的小型系列剧和电影。《第二天》是其中一部迷你剧，不是特别好，但那时有许多好电影。
+
+大家纷纷写信说，如果文明因为核灾难被摧毁，那该有多可怕。我在那个时候读到一篇让我震惊的文章，我想和你分享一下。文章中的人说，将文明因核灾难而毁灭视为可怕，假设了一个个人神的存在。他说，既然大多数受过教育的人要么不相信神，要么至少认为无法知道是否有神，因此既然大多数受过教育的人相信自然是唯一可以确定存在的东西，保罗在第20节说自然背后有一个个人神，但这篇文章的作者说，既然大多数受过教育的人知道除了自然没有其他东西，他说，无论我们的文明是在今天结束还是在十亿年后结束，实际上并没有区别。
+
+因为在文明之前和之后的死寂时间海洋中，我们的文明只是一个微不足道的、偶然的火花，没有人会在乎，也没有人能够理解或记得。所以他说，谁会在乎呢？要说文明可能因核浩劫而结束是可怕的，这种说法假设并预设了一个个人创造神。他这样说，并且他补充，如果你不知道这一点，那么就没有理由为此而担心。
+
+你知道吗？我不知道你如何看待这一点，但如果你说，我不知道，也许你在说，我不知道是否存在一个创造神，但我拒绝这个论点，你就是在与黑暗抗争。因为保罗说，如果你压抑了创造神的概念，你会陷入那篇文章所描述的黑暗中。没有中间的选择，要么有一个创造神，你欠他一切，并给予他对你生活的主权和权威，要么就是黑暗。
+
+实际上，我还要提供第三个案例研究。C.S.刘易斯，作为一个基督徒，他曾经写过一篇文章指出，如果除了自然以外，什么也不存在，如果没有创造神，如果没有超自然现实，只有自然，那恋爱意味着什么？他说，挺有趣的，他说，如果你知道并且持续记住，所有的美丽，无论是她的外表还是她的品格，都是由原子碰撞产生的短暂而偶然的模式，你就不能用最低的动物感受来爱上一个姑娘。而且，你对它们的反应只是你的染色体行为所引发的一种心理磷光现象。
+
+你也不能从音乐中获得**真正的乐趣。现在情况变得更糟，对吧？你也不能从音乐中获得真正的乐趣，如果你知道并且记住它的意义完全是**错觉，而且你只喜欢它是因为你的神经系统被刺激到了。
+
+---
+
+## 感恩是生命的动力源泉 / Gratitude as the Mainspring of Life
+
 On the other hand, if you get up in a day and you stand on the Christian platform, and the Christian platform is this, I have a creator God who created me, I owe him everything, I've never even begun to repay him for what he's done for me, and therefore, never on any day have I ever gotten what I deserve. I've only gotten better than I deserve. And because of that, everything I receive today is the mercy of God.
 
 On the basis of that, your life becomes a mainspring of grateful joy. You see, here's the answer to the whole problem. This terrible secret that goes down and down and down and down, ingratitude leads to repression, repression leads to darkness, darkness leads to self-pity, and all sorts of evil behaviors that kill your own conscience, you go against what you know is right.
@@ -238,122 +374,9 @@ Your worry is over. Even that bad self-image is over. Because you get power and 
 
 I don't have to prove myself anymore to anybody. Thankfulness is the mainspring. Power and freedom and joy in your life to the degree you exercise and use the gratitude you've got.
 
-But there's another kind of person in the room. Here's what you have to figure out. You may be a person with a general belief in God.
-
-You may even have been fairly moral and religious all of your life. But unless you see that the salvation that Jesus Christ gives us is an absolutely free gift, one that you receive with gratitude, acceptance with God is not something that you can earn through your striving, you see. Your life has been mainly, mainly pushed by need and fear instead of by love.
-
-What you need to do is you need to come and say, Lord Jesus Christ, I see that my Father, God is the creator. I owe him everything. I see that what you've done is you've made it possible for me to come to you, to God, because you've taken my punishment.
-
-I give myself to you. I trust in you. Command me.
-
-I'm no longer my authority. Command me. Let your pleasure be my pleasure.
-
-Your love, my love. Your joy, my joy. After Jesus Christ healed ten lepers in Luke chapter 17, only one came back.
-
-And he fell down, which is a posture of obedience. He fell down and he thanked Jesus. And Jesus says, where are the nine?
-
-This is the only one that thanked me. And he looked at him and he said, go in peace. Thy faith has made you whole.
-
-Do you know what faith is? Faith is not so mysterious. It's being willing to respond to the offer of Jesus Christ with gratitude and to say, because of what you've done for me, I give you myself.
-
-Go in peace. Thy faith has made thee whole. Let's pray.
-
-Thanks for listening to today's teaching. It's our prayer that you were encouraged by it and that it helps you apply the gospel to your life and share it with others. For more helpful resources from Tim Keller, visit gospelandlife.com.
-
-There you can subscribe to the Life in the Gospel quarterly journal. When you do, you will also receive free articles, sermons, devotionals, and other great gospel-centric resources. Again, it's all at gospelandlife.com.
-
-You can also stay connected with us on Facebook, Instagram, YouTube, and X. Today's sermon was recorded in 1989. The sermons and talks you hear on the Gospel in Life podcast were recorded between 1989 and 2017 while Dr.
-
 ---
 
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到福音生活。在一月份，我们邀请听众考虑成为福音生活的月捐伙伴。月捐伙伴在帮助我们规划如何最有效地将福音传递给全世界人群中起着重要作用。如果您愿意成为月捐伙伴，请访问gospelinlife.com/partner.这是gospelinlife.com/partner. 当你听到十诫时，你会想到什么？
-
-对很多人来说，它们可能带来罪疚和羞耻的感觉，或者看起来像是一份根本无法遵循的规则列表。在今天的讲道中，提姆·凯勒牧师向我们展示，神赐下十诫并不是为用无法实现的道德标准来压垮我们，而是为了指引我们向耶稣基督，祂是唯一完美地成全神律法的人。从天上正显明神的忿怒，临到一切不敬虔和不义的人，就是那些用不义压制真理的人。因为自从创造世界以来，神那看不见的特性、永恒的能力和神性，都是明明可知的，虽是眼不能见，但借着所造之物，就可以晓得，叫人无可推诿。
-
-因为他们虽然知道神，却不当作神荣耀他，也不感谢他。他们的思念变为虚妄，无知的心就昏暗了。自称为聪明，却变成愚拙，将那不朽坏之神的荣耀变为偶像，仿佛必朽坏的人、飞禽、走兽和爬虫的样式。所以，神任凭他们随心所欲，以致彼此玷污自己的身体。
-
-压制真理就是不承认神的存在，而人们压制真理的原因是什么呢？在第21节中说，他们不感谢神。是什么惹动这位伟大创造主的忿怒呢？是忘恩负义。
-
-一位如此伟大神的上帝，一位可以用手指拨弄星辰如沙子的创造者，对银河系而言不过是个绒毛般的存在，这样伟大而良善的存在为何生气呢？是不感恩。有人可能会问，上帝是否小题大做呢？为什么上帝会因忘恩而愤怒呢？
-
-似乎这是一件小事。然而，我们自己却非常认真地对待这个问题。比如说，如果你是一名音乐人，抄袭他人的作品，或者你是一名作家，抄袭他人的文章，或作为学者或学生，把别人写的东西发表出来，声称自己是作者，因此就好像具备权威一般——因为“authority”源自“author”——这种行为是违法的。为什么？
-
-这是抄袭。而抄袭就是一种忘恩，因为它本质上是否认自己依赖于他人承认，而选择以独立自主的姿态出现。让我们谈到另一个层面。在第一次世界大战期间，如果美国抓到一个试图推翻美国政府的德国士兵，他会被如何对待？
-
-根据国际法，他应当被尊重，关入战俘营；但如果是美国人这么做，那就是叛国，那么为什么惩罚会不同呢？因为作为美国公民，他欠这个国家一份恩情。忘恩负义对我们来说，是个极为严重的问题。如果你没有将生命的主权交给神，即便你在某种意义上承认神的存在，但你仍然自己做自己的主人，那就是对宇宙的抄袭。
-
-**真正的献身是**将自己的一切，包括思想、生命的每个部分，都交给神的旨意和话语。**这是背叛，是"宇宙的叛国"。这种忘恩负义在最高意义上是非常严重的，而圣经对此进行了极深刻的讨论。保罗在罗马书第一章中指出，人类虽知神，却拒不归荣耀给他或感谢他，这是压制真理**的表现。
-
-因此，我们**真正的挑战是**，是否在生活中真正承认上帝作为我们的作者，而不仅仅是在口头上。**这是一个秘密的背叛，因为你对自己保密。它说，即使你知道有一位上帝，无论你是谁，那位创造你的、属于你的、你欠债的上帝，我们都在某种程度上压抑了这个真理**。我们压抑它。
-
-我们知道我们在叛变，但我们对自己都保密，然而我们也知道这是事实。这也是这段经文中奇怪的地方。它说他们认识上帝，但同时又说他们压抑这种认识。你知道有一笔绝对重要且充满喜悦的债务，要还给创造者上帝，但你却好像不知道。
-
-我想任何心理学家都会告诉你，那些你在某种程度上知道但又不愿承认的事情是不健康的。它们可以影响你的一生。这段深刻的经文实际上正在对我们进行一种深层次的治疗。它说，正视你对自己的认识，否则你将永远被困于浅薄、痛苦和困惑中。
-
-因此，这段经文说，让我们来看看这种压抑的结构，看看每个人生活中这种秘密背叛的结构是什么。这种结构就在这里。让我给你一个大纲，然后我们来逐步分析。这个大纲非常有趣。
-
-首先，它说，忘恩负义导致压抑。它说他们因为忘恩负义而压抑真理。让我们这样说，忘恩负义导致压抑。然后我们被告知，压抑导致黑暗。
-
-在第21节中，它说，因为他们不愿感谢他，他们的思想变得虚妄，心中充满黑暗。忘恩负义导致压抑，压抑导致黑暗，然后黑暗导致所有的问题。这个黑暗导致你生命中的所有问题，所有的行为问题，所有的不良习惯，所有的罪。忘恩负义导致压抑，压抑导致黑暗，黑暗导致我们所有的罪。
-
-唯一的答案，这段经文告诉我们，就是用有关上帝是谁以及我们欠他的债的真理来交换谎言，把真理放回你生命的中心，喜乐再次爆发。这就是这段经文所说的，但让我们细分这些步骤。第一步，好吧，第一步。这里说，忘恩负义导致压抑。
-
-你看到在第21节开头的这个词汇"因为"吗？它说因为。压抑和抑制真理的原因，即使他们看到大自然中明显有一位创造者上帝，保罗说，是因为他们不愿意荣耀他为上帝或感谢他，他们压抑了这个真理。这非常重要。
-
-说“我同意有神”是一回事，让他在生活中被荣耀为上帝是另一回事。圣经中的荣耀字面意思是给予某事物重量。保罗说的不是人们否认有神的存在，而是他们否认这个神对他们的真实意义。他们想要否认上帝，想要否认上帝作为上帝的身份。
-
-他们不愿以完全严肃的态度对待他，他们想要成为自己的主人。他们想要自己做主。当他们看到宇宙背后有一位上帝时，他们不去得出那样的逻辑结论。如果宇宙背后有一位上帝，那么我就不应该是自己的权威。
-
-我应该给他至高的权力。顺便说一下，保罗在第20节中提到，从世界造以来，上帝永恒的能力和神性是明明可知的；虽是眼不能见，然而藉着所造之物就可以晓得，叫人无可推诿。他在这里使用了一个古老且无可辩驳的关于上帝存在的论点。他说，看看外面。
-
-看看设计，看看自然，看看设计。他在使用这个古老的论据。他说，想象一下，他说，想象一下，油漆厂的一次爆炸能创造出《蒙娜丽莎》。当然是偶然的，但你知道，东西升起又落下，恰好落在画布上，以这样一种方式画出了这幅美丽的图画。
-
-那样的机会有多大？你会说那没有机会。当然，任何数学家都会告诉你，那不是真的。不能说没有这样的机会。
-
-当然，那种事情发生的机会是微乎其微的。但保罗说，那种事情发生的机会远远超过了所有这些秩序和设计及美丽偶然出现的可能性。然而，他说，令人惊讶的是，许多人愿意将他们的整个人生赌在那个机会之上。每当我向别人提出这个论点时，每当我问，所有的这些偶然发生的机会有多大时，他们会说，那并不能证明上帝的存在。
-
-不，确实不。并不能证明《蒙娜丽莎》不能由油漆厂的爆炸绘制出来。但是哪种傻瓜会愿意用自己的人生去赌这个？保罗所说的是任何这样做的人都显示出了偏见。
-
-保罗说，如果你真的愿意如此压抑真相，那就显示出了一种偏见。你知道，弗洛伊德、马克思、费尔巴哈和尼采都说基督徒需要上帝。因为他们在心理上需要上帝。你看，他们当然对此有不同的看法。
-
-马克思说，富人需要上帝来压制穷人。而弗洛伊德则说，人们需要上帝，因为他们需要一个神来为他们对权威的反叛赎罪。尼采有自己的看法，路德维希·费尔巴哈也有，他们都说人们需要相信上帝是有心理原因的。顺便说一句，这是真的。
-
-保罗在这里指出的是，人们不相信上帝有更大的、极深的心理原因。因为即使我们看向外面，说是的，显然必定有一位上帝，但如果有一位创造所有这些设计的个人神，那么我们就欠他权威。没有中间地带。要么没有上帝，这一切都是偶然，要么有上帝，我们欠他一切。
-
-我们不想要那样。所以你看，保罗说有非常深刻的心理原因去否认上帝。这对我来说是有道理的，因为多年来，当我与人交谈时，当你简单地分享基督教的信息时，它大概是这样的。基督教的信息是这样的。
-
-上帝创造了你，虽然你一生都以自己的权威活着，做自己的决定，制定你自己的道德标准，设定自己的目标，但上帝仍然爱你，他进入了你的境况，他在耶稣基督的身上进入了历史，他承受了你因忘恩负义所应受的惩罚，使我们可以进入一个永恒的。。。与我们的创造主建立爱的关系，并拥有一个被喜乐和感恩的爱支配的生活。
-
-这就是信息。理性的拒绝方法，可能是说“我不能接受，因为这好得令人难以置信。”这就如同有人告诉我这是真实的，该有多好。然而，过去几年我收到的反应却不是这样的。
-
-反应通常是：“你又来了，试图告诉我该怎么生活。”这显示了一种深层的偏见。保罗是这样说的：有些人宁愿把他们的生命押在一线的希望上。忏悔不足会导致压抑，进而导致黑暗。
-
-21节说，因为他们不愿意感谢他，他们的思维就变得虚妄，他们无知的心就昏暗了。这里的“虚妄”意思是没有意义，以及不能看到事物的目的。事实上，保罗在这里想要说的是，如果你不愿意接受这位个人的神，因为你不愿让他主宰你的生命，那么你就处于一个很可怕的位置。如果没有这位个人的神，就没有对错，没有道德结构，没有道德结构的事情，就只剩下黑暗。
-
-我们都在追逐成功、真爱或完美的生活，这些好事很容易就变成了终极的东西。当我们把信仰放在它们上面时，内心深处，我们知道它们无法满足我们最深的渴望。事实是，我们把这些好事变成了次要的神明，无法给我们真正需要的东西。在他的书《伪神》中，Tim Keller向我们展示了如何通过正确理解圣经来揭示社会理想和我们内心的真相，并向我们展示只有一位神才能完全满足我们的欲望。
-
-这个月，为了感谢您的捐赠帮助《福音与生活》与全世界的人分享基督的爱，我们将为您送上《伪神》这本书。您可以在gospelandlife.com/give请求您的副本。现在，请听Keller博士继续今天的教导。让我给你提供三个案例研究。
-
-一个是关于伍迪·艾伦的新电影《罪与罚》，它的剧情大致是这样的：有一个人是个道德人，但并不是宗教人。他是一个有良知的道德人，但没有多少宗教的基础。他生活得还不错，直到他与一名空姐发生了一段小外遇。空姐看起来要揭发他，试图让他的妻子离开他。
-
-他陷入了困境，他的生活可能会崩溃，于是他开始考虑有人建议的方法，就是杀掉这个女人。他找到了一个拉比，拉比告诉他说，宇宙中必须有一个道德结构，如果没有，就没有意义，也没有办法生活。所以你必须做正确的事情。我不能说得更详细了，因为剧透是不对的，对吧？
-
-但我可以告诉你，这部电影的结局没有一个好的解决。这个电影的讯息就像《传道书》的尾声一样悬而未决。电影的讯息是，我们无法知道宇宙中是否存在一个道德结构，但必须有一个。然而，我们被卡住了。
-
-没有宗教的道德是无效的，没有个人创造者的道德结构是无效的，这是我们知道的。让我给您一个案例研究。几年前，如果你还记得，那时有一系列关于核浩劫的小型系列剧和电影。《第二天》是其中一部迷你剧，不是特别好，但那时有许多好电影。
-
-大家纷纷写信说，如果文明因为核灾难被摧毁，那该有多可怕。我在那个时候读到一篇让我震惊的文章，我想和你分享一下。文章中的人说，将文明因核灾难而毁灭视为可怕，假设了一个个人神的存在。他说，既然大多数受过教育的人要么不相信神，要么至少认为无法知道是否有神，因此既然大多数受过教育的人相信自然是唯一可以确定存在的东西，保罗在第20节说自然背后有一个个人神，但这篇文章的作者说，既然大多数受过教育的人知道除了自然没有其他东西，他说，无论我们的文明是在今天结束还是在十亿年后结束，实际上并没有区别。
-
-因为在文明之前和之后的死寂时间海洋中，我们的文明只是一个微不足道的、偶然的火花，没有人会在乎，也没有人能够理解或记得。所以他说，谁会在乎呢？要说文明可能因核浩劫而结束是可怕的，这种说法假设并预设了一个个人创造神。他这样说，并且他补充，如果你不知道这一点，那么就没有理由为此而担心。
-
-你知道吗？我不知道你如何看待这一点，但如果你说，我不知道，也许你在说，我不知道是否存在一个创造神，但我拒绝这个论点，你就是在与黑暗抗争。因为保罗说，如果你压抑了创造神的概念，你会陷入那篇文章所描述的黑暗中。没有中间的选择，要么有一个创造神，你欠他一切，并给予他对你生活的主权和权威，要么就是黑暗。
-
-实际上，我还要提供第三个案例研究。C.S.刘易斯，作为一个基督徒，他曾经写过一篇文章指出，如果除了自然以外，什么也不存在，如果没有创造神，如果没有超自然现实，只有自然，那恋爱意味着什么？他说，挺有趣的，他说，如果你知道并且持续记住，所有的美丽，无论是她的外表还是她的品格，都是由原子碰撞产生的短暂而偶然的模式，你就不能用最低的动物感受来爱上一个姑娘。而且，你对它们的反应只是你的染色体行为所引发的一种心理磷光现象。
-
-你也不能从音乐中获得**真正的乐趣。现在情况变得更糟，对吧？你也不能从音乐中获得真正的乐趣，如果你知道并且记住它的意义完全是**错觉，而且你只喜欢它是因为你的神经系统被刺激到了。接受基督教导的人和仅仅对信仰持一般态度的人之间的区别就在于感恩是否成为你生活的主动力。
+接受基督教导的人和仅仅对信仰持一般态度的人之间的区别就在于感恩是否成为你生活的主动力。
 
 我常常与那些觉得需要神的人交谈，他们感到生活中的空虚，所以他们说：“我需要神。”于是，他们可能来找我，问：“我该怎么做？我去教会吗？读圣经吗？
 
@@ -382,6 +405,38 @@ You can also stay connected with us on Facebook, Instagram, YouTube, and X. Toda
 我为什么要如此关注他得到应得的呢？是什么让我如此不合理？”于是，一切怨恨就结束了，你的苦毒结束了，你的忧虑结束了，甚至你对自己的负面想象也是如此。因为当你说：“天父，感谢你在耶稣基督里完全接纳我。
 
 ”时，你的生命中就获得了能力和自由。我再也不需向任何人证明自己。感恩是动力的泉源。你在生活中获得的能力、自由和喜悦，取决于你运用和行使感恩的程度。
+
+---
+
+## 信心是对恩典的感恩回应 / Faith as Grateful Response to Grace
+
+But there's another kind of person in the room. Here's what you have to figure out. You may be a person with a general belief in God.
+
+You may even have been fairly moral and religious all of your life. But unless you see that the salvation that Jesus Christ gives us is an absolutely free gift, one that you receive with gratitude, acceptance with God is not something that you can earn through your striving, you see. Your life has been mainly, mainly pushed by need and fear instead of by love.
+
+What you need to do is you need to come and say, Lord Jesus Christ, I see that my Father, God is the creator. I owe him everything. I see that what you've done is you've made it possible for me to come to you, to God, because you've taken my punishment.
+
+I give myself to you. I trust in you. Command me.
+
+I'm no longer my authority. Command me. Let your pleasure be my pleasure.
+
+Your love, my love. Your joy, my joy. After Jesus Christ healed ten lepers in Luke chapter 17, only one came back.
+
+And he fell down, which is a posture of obedience. He fell down and he thanked Jesus. And Jesus says, where are the nine?
+
+This is the only one that thanked me. And he looked at him and he said, go in peace. Thy faith has made you whole.
+
+Do you know what faith is? Faith is not so mysterious. It's being willing to respond to the offer of Jesus Christ with gratitude and to say, because of what you've done for me, I give you myself.
+
+Go in peace. Thy faith has made thee whole. Let's pray.
+
+Thanks for listening to today's teaching. It's our prayer that you were encouraged by it and that it helps you apply the gospel to your life and share it with others. For more helpful resources from Tim Keller, visit gospelandlife.com.
+
+There you can subscribe to the Life in the Gospel quarterly journal. When you do, you will also receive free articles, sermons, devotionals, and other great gospel-centric resources. Again, it's all at gospelandlife.com.
+
+You can also stay connected with us on Facebook, Instagram, YouTube, and X. Today's sermon was recorded in 1989. The sermons and talks you hear on the Gospel in Life podcast were recorded between 1989 and 2017 while Dr.
+
+---
 
 不过，房间里还有另一种人。你需要弄明白，你可能是一个对神有大致信仰的人。甚至你可能一生都相当道德和宗教。但除非你看到耶稣基督给我们的救恩是绝对的免费礼物，一个你以感恩之心接受的礼物，获得与神的和好并不是你靠努力挣得的。
 

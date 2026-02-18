@@ -4,71 +4,7 @@
 
 ---
 
-Welcome to Gospel in Life. You don't have to look far to see that something's deeply wrong with our world and with us. But is there an answer that gets to the root of why?
-
-In today's message, Tim Keller explores the human condition through stories in the Bible, uncovering what Scripture says about sin and why it's the only explanation deep enough to face the truth about ourselves. The teaching is based today as an print in your bulletinets, Exodus 17, verses 1 to 7. An incident during the time that children of Israel are wandering in the wilderness and we read, the whole Israelite community set out from the desert of sin traveling from place to place as the Lord commanded.
-
-They camped at refidem but there was no water for the people to drink. So they quarreled with Moses and said, give us water to drink. Moses replied, why do you quarrele with me?
-
-Why do you put the Lord to the test? But the people were thirsty for water there. And they grumbled against Moses.
-
-They said, why did you bring us up out of Egypt to make us and our children and livestock die of thirst? Then Moses cried out to the Lord, what am I to do with these people? They are almost ready to stone me.
-
-The Lord answered Moses, walk on ahead of the people, take with you some of the elders of Israel and take in your hand the staff with which you struck the Nile and go, I will stand there before you by the rock at horub, strike the rock and the water will come out of it for the people to drink. So Moses did this in the sight of the elders of Israel and he called the place Masa and Meraba because the Israelites quarreled and because they tested the Lord saying, is the Lord among us or not? This is God's word.
-
-You know, April and May this year marked the 50th anniversary of the liberation of the death camps in Germany just before the end of World War II and the US News and World Report last week or this week, had a large cover story consisting largely of the reports of eyewitnesses, the GIs, American GIs who still are alive, the reports of those eyewitnesses when they liberated those camps. And I thought I knew a lot about the subject but reading that was just devastating. Here are these guys, GIs, that they were battle-hardened.
-
-They fought the way across Europe and yet when they saw what they saw, they vomited. And they took pictures saying nobody will believe this. That's one of the reasons why we've got the evidence we've got.
-
-And the witnesses ask and the writers ask, in anybody who gets anywhere near that subject, you automatically become a philosopher. You start to ask metaphysical questions. It's not an academic exercise.
-
-You have to. You have to ask this question. It comes up.
-
-How could this have happened? But then once you realize it has, you have to ask yourself the question, what does this say about the human race that we could do this? How could human beings do this?
-
-What does it tell us about the human race that we could do this? And there's only two answers to that question. That question hits you right between the eyes every time you read that.
-
-The question is all through the article. It's not thereby the writers. It's there because of the witnesses.
-
-They kept saying to themselves, what does this tell us about the human race? We had no idea that anybody was capable of this. Now we see they are.
-
-What does this tell us? And there's only two answers to that question. The first answer, which is the normal answer but which is an absolutely wrong and deadly and dangerous answer, is to say, I'm not capable of that.
-
-Most people are not capable of that. Some of them were. Now who's the them?
-
-As soon as you decide that there's a group of people who are capable of it, you know what's going on? That's the way most of us have dealt with it. Both historically, both intellectually and even personally, we say, well, most people aren't capable of that just a certain number of people.
-
-But who? As soon as you say, well, those countries were capable of that, you're in a terrible form of racism, are you not? But even if you say a certain number of people, you immediately begin to treat them as subhuman people that could do that.
-
-They're not like me. People that could do that. And to defend your own view of yourself, you have to demote a certain number of people down into a subhuman status.
-
-And that is exactly what caused the problem to start with. As soon as you say, this group of people, they're not like us. They're not human.
-
-They're not the same level. As soon as you do that, you know what goes on? One of the most intriguing things about that article was the GI's now, 50 years later, are admitting that when they got to the death camps and they saw what had happened, they immediately said, anybody who did this is subhuman.
-
-And when they saw the guards surrendering, in many cases, they just killed them. They just bludgeoned them to death. They just wiped them out.
-
-Wrong illegal? They did it. Why?
-
-Because you see, the first answer to the question, how could anybody do this is to say, there's a certain number of subhuman people that can do it, not me. And then you immediately start to treat them as animals. But that's what caused the issue to start with.
-
-That's what started it all. Then the only other alternative is what? If you don't do that, which is essentially to keep the process going, right?
-
-As soon as you can say, these people are subhuman, then you can treat them in that way. No trial just wiped them out. And of course, if you do that, then somebody's going to do that to somebody else is going to do that to somebody else on the coast.
-
-The only other alternative is to say, we're all capable. We're all capable. There's something about the human heart.
-
-And that's what we've been looking at all during length, all during these last two months. There's something about the human heart. There's seeds in the human heart that should they come forth.
-
-The seeds of that are in us. Those are the only two answers. And the second one has to be the right one.
-
-And the second one is the one, the Bible says. The Bible says, as we've been several times, we've referred to this. Dorothy Sayer says to Christian writer, she says, sin is a deep interior dislocation of the soul.
-
-You know, when a bone is dislocated, it's not on its proper center. And as a result, there's great pain and damage. But she says, and the Bible says, the human heart is deeply dislocated spiritually.
-
-It's not centered on God. And because it's not centered on God, all kinds of things can grow. There's all kinds of pain and damage.
-
-There's pride. There's selfishness. There's denial.
+## 百姓的悖逆 / The People's Rebellion
 
 There's anger. There's envy. We've been looking at it for two months.
 
@@ -140,6 +76,58 @@ Treason. You've brought us here. We're all going to die.
 
 We're all going to be jackal food. Well, we're going to start with you. We'll make you the appetizer.
 
+---
+
+但人们试图解决这个问题的方式并没有给出答案。很多人意识到，除非你说我们都那么邪恶，否则你必须说有些人是低于人类的。然而，也有很多人不愿意接受这两种说法。你知道他们做了什么吗？
+
+就在50年代和60年代，许多经历过苦难的人开始写作，比如在奥斯威辛之后。他们开始说，上帝应该承担责任。人们看到，换句话说，人们不想说某一种族是低于人类的。所以他们就说，是上帝的责任。
+
+为什么他没有阻止呢？上帝应该负责。很多遭受苦难的人，在50年代和60年代开始写书，就像在奥斯威辛之后写的那样。但有趣的是，德国人自己，那些参与其中的人，他们对这些事情有自己的看法。
+
+到了50年代和60年代，一位名叫古特·吕滕博恩的德国人创作了一部名为约拿之兆的话剧。在这个戏剧中，很多参与其中、参与暴力的德国人都被揭露了出来，并受到指责。他们是怎么做的？你知道他们会说什么吗？
+
+他们会说：“我只是在执行命令。”责任应该在更高一级的人身上。于是他们找来更高一级的人。这些人怎么说呢？
+
+这已经是一个戏剧了。下一级的人会说什么呢？他们也会说：“我只是在执行命令。”责任应该再往上推。
+
+然后又找来更高一级的人。这些人又会说什么呢？“我只是在执行命令。”突然间，他们开始意识到问题所在。
+
+没错，是那个站在最高层的人没有责任。是上帝的责任。为什么上帝不阻止这一切？为什么上帝不做些什么？
+
+你怎么能相信一个允许如此邪恶和苦难存在的上帝呢？有趣的是，在这场悲剧中，双方都创作了文学作品，指责上帝应该负责。这个世界上的邪恶如此可怕，谁该被责备？是上帝。
+
+为什么上帝不做点什么？为什么上帝不对这个世界的邪恶和苦难做些什么？我刚才读给你们听的这段经文就是关于这个问题的。这是我们讨论罪的最后一部分。
+
+我们已经讨论了两个月了。为什么上帝不处理邪恶？为什么上帝不处理这里的邪恶、暴力，以及这世界上的破碎呢？这段经文告诉我们，上帝会做些什么。
+
+它讲述了一个发生在多年前的审判，这是历史上最引人注目的审判之一。我仔细地研究着。有一个诉讼，然后是一个审判，最后是执行。现在请跟我看。
+
+首先，经文说整个以色列民族从西奈旷野出发，在耶和华的命令下四处移动。他们在雷弗底米基旅营扎营，但没有水给百姓喝。于是他们与摩西争闹，说：“给我们水喝。”摩西回答：“你们为什么与我争闹呢？
+
+为什么试探耶和华？” 他们准备用石头砸我。现在，这里发生了什么？你看到这个争吵了吗？
+
+犹太人跟随摩西穿越沙漠，在一个没有水的地方停了下来。这不就像生活的一种隐喻吗？他们在努力做好人。他们追随上帝。
+
+他们宣誓效忠。他们来到了一个看起来要死路一条的地方。有些人可能已经死了。他们看不到出路。
+
+而这正是生活的隐喻。你们努力做好人，努力保持道德，努力虔诚。你们努力做一个正直的人，却走到了绝境，被毁灭了。至少你的希望和梦想被摧毁了。
+
+也许你的一些谎言也被摧毁了。于是问题就出现了： 上帝为什么这样做？问题是上帝不在你身边去抓他的手。所以你们转向了他的代表。
+
+他们开始争吵。现在这个“争吵”这个词是两周的翻译。这里的英文“quarrel”是从希伯来语翻译过来的一个词，意思是控告或诉讼。他们指控摩西背叛了他们，因为他们要砸死他。
+
+他们在说：“你背叛了我们。” 背叛。你们把我们带到这个地方，我们都将要死去。我们会成为豺狼的食物。
+
+好吧，我们将从你开始。你会成为开胃菜。换句话说，他们说：你是通过你的犯罪无能和愚蠢害死了我们。然而摩西知道，他们所做的一切不仅仅是在针对他，而是在针对上帝。
+
+你看？摩西说：“你们为什么跟我争吵？你们在试探上帝。”事情就是这样发展的。
+
+因为你看，你中的很多人也可能处于这样的境地。你可能对你生活中的某个摩西非常生气，但实际上你只是对你的生活走向感到愤怒。而在你与摩西的每一次争吵背后，你其实是在与上帝争吵。我不喜欢我的生活这样走。
+
+---
+
+## 摩西在磐石前 / Moses at the Rock
+
 In other words, they said, you've killed us through your criminal incompetence and your stupidity. Moses, however, knows that what they're doing is not just after him, they're after God. See?
 
 Moses said, why do you quarrel with me? You're putting the Lord to the test. And that's the way it goes.
@@ -210,6 +198,60 @@ That's why it's in the Old Testament when someone was brought forth to judgment.
 
 You have the rod. What is God doing? And then he says, I'll stand before you by the rock.
 
+---
+
+为什么上帝让我的人生变成这样？为什么我的生活中事情进行得如此糟糕？上帝怎么能允许这种情况发生？于是，在我们心中就有一场针对上帝的诉讼。
+
+于是就有了控诉。有了控诉。那么，上帝对这个问题的回应是什么呢？回应是一次审判。
+
+一次审判。您说，试炼在哪里？好吧，摩西回答说：“你走在百姓的前面，带着以色列的长老，手里拿着击打尼罗河的杖去。”现在，仔细看看，我要让你这样做，你会发现一些有趣的事情。
+
+他说，带着长老们和那根击打尼罗河的杖。现在，摩西的手杖不仅仅是一根手杖。这根杖是神的权杖。这是神用来惩罚埃及的杖。
+
+当摩西用它击打尼罗河时，河水变成了血。而摩西不断地使用这根杖作为神对埃及施行瘟疫的方式。那这一切又是什么意思呢？杖象征着世俗的权力。
+
+在古代世界，杖是用来惩罚罪犯的东西。你用杖打罪犯。这就是当时的做法。拥有杖的人意味着是统治者或国王、管理者，即拥有世俗权力的人。
+
+顺便说一句，在罗马时代，这非常引人注目，考虑到我们今天是如何设置这一切的。在罗马时代，罗马总督会携带一捆棍棒，这些棍棒捆绑在一起以显示他们的绝对权威和力量。而这些棍棒在拉丁语中被称为fascis（法西斯），这个词正是我们英文中的“法西斯”一词的来源。这根杖不仅是摩西的手杖，这是神权力的杖，是审判之杖。
+
+这根杖通过它，神施行了判决。无论我们往哪里看，都能看到破碎、战争、残忍和痛苦。我们在周围的世界以及自己的生活中都能感受到这些。这一切是如何来的？
+
+又能做些什么呢？在本月即将出版的新书中，《世界出了什么问题？》Tim Keller 提供了一个清晰而充满同情的答案。他从在复兴堂的一系列讲道中汲取灵感，展示了罪恶的现实如何解释我们周围所看到的一切痛苦，并且只有福音才能带来持久的自由和治愈。
+
+> 在本月即将出版的新书《世界出了什么问题？》中，Tim Keller 提供了一个清晰而充满同情的答案。他从在复兴堂的一系列讲道中汲取灵感，展示了罪恶的现实如何解释我们周围所看到的一切痛苦，并且只有福音才能带来持久的自由和治愈。无论你是否被这个世界的状态所压垮，挣扎于自己的错误或选择之中，还是在寻找希望和喜悦，这本书《世界出了什么问题》将帮助你看清福音如何回应我们这个世界的痛苦以及我们内心的伤痛。
+
+这本新出版的书是我们感谢你们本月捐赠的心意，以助福音与生命分享耶稣的好消息。请访问 gospelandlife.com/give 获取您的副本。这是 gospelandlife.com/give。现在，请听凯勒博士继续今天的教导。
+
+将要有一个审判，也将有一次审讯，因为长老们也会参与其中。如果你对旧约有所了解，你会发现每当有人犯错时，他们必须在长老面前出现，并接受棍棒的惩罚。这就是他们的审判方式。如果被判有罪，就会受到惩罚。
+
+所以会有一次审讯，但会是谁呢？这里有个奇怪的地方。不是摩西，尽管摩西的生命危在旦夕，是摩西被指控的对象。摩西的生命危在旦夕，但他手中拿着棍棒。
+
+所以他不会站在被告席上。他不会坐在被告的位置上。因此，不是摩西。那么会是谁呢？
+
+会不会是以色列人呢？你看，有人问，为什么？他们没有做错任何事情。哦，不，他们做了。
+
+哦，他们确实做了。以色列人的一切都归功于神和摩西。神出现了，通过神的大能和摩西的勇敢，他们被从埃及救了出来。他们一切的一切都是神赐予的。
+
+而现在他们却说：我们不喜欢神这样管理我们的生活。我们要夺回统治权。我们不高兴你做事的方式。他们本应该说：为什么神对我们这么好，但他们却在问：你最近为我做了什么？
+
+他们说：我们不喜欢你这样管理我们的生活。所以实际上，他们是犯了和指控摩西一样的叛国罪。他们应该站在被告席上，接受审讯。但不是谁在受审。
+
+—— 凯勒博士 谁在受审？请看第6节，我说，神将在何珥山的磐石前站在你们面前。现在听吧，亲爱的朋友们，在圣经中，尤其是在古代，谁站在谁面前是非常重要的。站在前面的人总是处于仆人的位置。
+
+仆人站在主人面前。弱者站在强者面前。被定罪的人站在法官面前。在整本圣经中，你找不到任何地方说神站在任何人面前。
+
+是人们站在他面前。不，他从不在任何人面前。他会站在我面前吗？那他是要站在我面前吗？
+
+因此他说，你要走在我的前面。这也是为什么在旧约中，当有人被带到审判时，他们会被吩咐站在耶和华和以色列的长老面前。但神却做出了一个绝对、令人惊讶的声明——我要站在你们面前。你有棍子。
+
+神在做什么？然后他又说，我要站在磐石前的你们面前。这里的希伯来语介词表示“在”或“在……之上”。我们常用的译本，新国际版，几乎不敢直译它。
+
+神说，我要站在你们面前，在磐石上，在磐石上方。他们说“在磐石边”，意思是一样的——我要站在你们面前，在磐石上，举起神的棍子击打磐石。神进入法庭。神进入了软弱的位置。
+
+---
+
+## 击打与说话 / Striking versus Speaking
+
 Now, the Hebrew preposition says at the rock or over the rock. And the translators that we use, the new and national version, that's the English translation we use here, is almost afraid to say what it actually says. God says, I will stand before you at the rock, over the rock, on the rock.
 
 They say by the rock same thing. I will stand before you at the rock, bring the rod of God up and strike the rock. The execution.
@@ -279,6 +321,58 @@ The evil of the world, the sinfulness of the world, can only be done through jud
 He came and took the judgment himself. And you see what that means? If you were humble yourself and say, Lord, I deserve to be struck, but you were struck for me.
 
 Then on the last day, God can deal, he can wipe out evil without wiping out you. God could always have brought down the rod on evil, but then he wipes this all out. If you believe in him, he can wipe out evil and he will on the last day without wiping out you.
+
+---
+
+神进入了被定罪的位置。听我说，摩西根本无法用一根物理棒子伤害神。但你能想象他有多么震惊吗？你知道为什么吗？
+
+每当神的荣耀显现时，你都要表现出最大的敬意。记得当摩西靠近燃烧的荆棘丛接近神时，神说了什么？脱下你的鞋，你在圣地上。无论何时神的荣耀在周围，你都要以最大的尊重对待它。
+
+但这里神说，我要站在你们面前，在磐石上击打它。把神的棍子降在我身上。摩西一定比他一生中任何时候都更加震惊了，他会问：这怎么可能？但我们知道是怎么回事。
+
+因为在哥林多前书10章，保罗说，我们的祖先通过红海，并且他们吃同样的灵粮，喝同样的灵水，因为他们从那块磐石喝水，而那磐石就是基督。这里发生了什么。摩西被定罪了。他正处于生命审判中。
+
+上帝进入了摩西的位置。应该是人们受审。他们是叛国者。上帝站在他们的位置上。
+
+上帝在磐石上。上帝在被告席上。被告席。他是被告。
+
+他进来了。上帝在磐石上。上帝在被告席上。并且被处决了。
+
+现在朋友们，你看，并不是那天发生的。不，它没有发生。这是一个预兆。但有一天，在十字架上的某人，那块磐石，仰望天说：“我的神，我的神，那根使尼罗河变血的棍子现在正在流我的血。
+
+”那根使尼罗河变血的棍子现在正使我变血。为什么？因为我们把上帝放在被告席上，我们应该被带上被告席，但上帝实际上进入被告席为我们承担了我们的惩罚。关于约拿的预兆最令人惊讶的事情之一就是，在剧中结尾时，他们是如何处理这个问题的——他们说这是神的问题。
+
+神是责任者。神是那个。这真是太愚蠢了。你不明白吗？
+
+我们不想在自己的生活中看清楚。我们不想在自己心中寻找。我们不想说这个世界的邪恶和死亡集中营的痛苦是我们造成的。所以我们所做的就是试图把上帝放在被告席上。
+
+我们应该因为把上帝放在被告席上而被带上被告席，但上帝亲自进去承担了我们应得的惩罚。最令人着迷的是，在约拿的预兆中，在剧中结尾时，他们说你是对的，神是责任者。不是我们，并且他们说让我们判他死刑。你知道他们说什么吗？
+
+他们说：“让他成为一个普通人。” “让他成为一个无家可归的人。”“让他成为地球上的流浪者。”“让他失去儿子。
+
+” “让他死去。”当他死的时候，让他们侮辱和羞辱他。等等一下。等等一下。
+
+他已经这样做了。主啊，为什么你不解决这个世界的苦难？上帝已经做了其他任何宗教所宣称的神从未做过的事情。没有任何一个宗教声称他们的神曾做过这样的事情。
+
+圣经说我们的神已经解决了苦难和邪恶的问题。他深入其中，他亲自面对了这一切。他亲自经历了。你知道那首著名的基督教诗歌：“其他神祇或许可以骑马前行，但老耶稣基督却跌跌撞撞地走向宝座。
+
+只有你的伤痕才能向我们这些伤口说话。” 唯一的神。唯一一个真正解决苦难和邪恶问题的神，亲自承受了惩罚。我们本应为此受罚。
+
+他做到了。他做了我们在自怜和傲慢中要求于他的事情。上帝实际上来拯救你的方式就是做你叫我做的那件坏事，但你的召唤却是邪恶的。它理应受到审判，但我愿意自己承担这个审判。
+
+如果你阅读那些老兵们的目击记录，你会发现他们开枪的原因很简单——他们开始射击并殴打看守。你知道为什么吗？因为他们内心深处知道，唯一能够应对这种巨大邪恶的方式就是审判。他们需要看到审判。
+
+这是只有通过审判才能治愈的伤口。世界的罪恶、世界的罪性只能通过审判来解决。但通过贬低人、剥夺人的尊严对待看守，他们让自己无法面对我们所有人都应该受到审判的事实。上帝已经通过审判解决了这个世界的苦难和邪恶问题。
+
+他亲自承担了这个审判。你看**这意味着什么？如果你谦卑自己说：“主啊，我理应受罚，但你为我受罚。**” 那么在最后的一天，上帝可以解决这个问题，可以清除邪恶而不清除你们。
+
+上帝本可以随时用棍棒打倒邪恶，但他却保留了这一切。如果你相信他，在最后一天，他可以清除邪恶而不会清除你们。你听到他说的话了吗？最后一件事是：从被击中的磐石中流出的水。
+
+> 水是从受击的磐石来的。你知道**这意味着什么吗？如果你看看耶稣基督，他是为你受击的。**上帝在磐石上，上帝在法庭上。
+
+---
+
+## 从被击之磐石涌出恩典 / Grace from the Stricken Rock
 
 Do you hear him? Now, here's the last thing to say. The water comes from the stricken rock.
 
@@ -353,195 +447,6 @@ Thanks for joining us here on the Gospel Unliked Podcast. We hope that today's t
 Today's sermon was recorded in 1995. The sermons and talks you hear on the Gospel Unliked Podcast were recorded between 1989 and 2017. Well, Dr.
 
 ---
-
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《生命中的福音》。你不需要走得太远就能看到，我们的世界和我们自身出了大问题。但这个问题的根本原因是什么？有没有答案能够触及到？
-
-在今天的讲道中，提姆·凯勒通过圣经中的故事探讨了人类的处境，并揭示了圣经对罪的看法以及为什么只有这种解释才能面对关于我们自身的真相。今天的教导基于出埃及记17章1至7节的内容。当时以色列人正在旷野漂流，我们读到：整个以色列会众从罪的旷野出发，在耶和华所吩咐的地方行路。他们在弗拉地安营，但那里没有水喝。
-
-于是他们与摩西争吵说：“给我们水喝吧。”摩西回答说：“你们为什么与我争论？为什么试探耶和华？”但他们渴了，要求喝水。
-
-以色列人就彼此埋怨说：“你们把我们从埃及领出来是要害死我们和我们的牲畜吗？”摩西向耶和华哀求说：“我Where are you, Lord? 你在哪里呢？” 耶和华对摩西说：“你手里拿着杖，带领那些长老，照我所吩咐的行；在我面前在何珥山站在磐石前。你要击打磐石，从其中必有水流出来，给百姓喝。
-
-”于是，摩西就在以色列人眼前这样做了。他给那地方起名叫玛撒（试探）和米利巴（争闹），因以色列人在那里争闹，试验耶和华说：“耶和华在他中间吗？”这是神的话。你知道，今年的四月和五月是二战结束前50周年纪念纳粹德国死亡集中营解放的日子。
-
-上周或本周，《美国新闻与世界报道》有一篇封面文章，主要是战地目击者的报告，这些目击者大多是仍然健在的美军士兵。我之前对这个话题了解不少，但读了那篇文章后却感到非常震撼。这些士兵们经历了欧洲战场的艰苦战斗，但在看到那些景象时，他们呕吐了，并拍下照片说没有人会相信。这就是为什么我们现在有这么多证据的原因。
-
-目击者和作者都提出了这样的问题：任何人一旦接触到这个话题，都会不由自主地成为哲学家。你会开始提出形而上的问题，这不仅仅是一个学术练习。你必须问这个问题。它总是会出现： 怎么会发生这种情况？
-
-但当你意识到已经发生了时，你不得不问自己，这对人类意味着什么？我们怎么能做这种事情？这告诉我们关于人类的什么？只有两个答案。
-
-每次读到这些内容时，这个问题都会直击你的灵魂。这个问题贯穿整篇文章，并不是作者提出的，而是因为目击者的提问。他们不断地自问：这件事告诉了我们关于人类的什么？我们之前不知道任何人会做出这样的事情。
-
-现在我们知道他们会这样做。这告诉我们什么呢？只有两个答案。第一个答案是通常的答案，但却是完全错误且危险的答案——说我做不到那样的事。
-
-大多数人做不到那样的事。有些人做到了。那么“他们”是谁呢？这些思考让人无法回避，必须面对。
-
-```markdown 正如你一旦认定有一群人能做到这一点，你知道这是怎么回事吗？这是我们大多数人处理问题的方式。无论是历史上、智力上还是个人层面上，我们都说，大多数人都做不到这一点，只有少数几个人能做到。但是是谁呢？
-
-一说到那些国家能做到这一点，你就陷入了可怕的种族主义中，不是吗？即使你说只有某些人数能做到，你立刻就开始把他们当成次等人来看待。他们不像我。能做这种事的人。
-
-为了维护自己的自我观，你必须将某些人贬低为次等人。而这正是问题的根源所在。一说这个群体不像是我们，他们不是人类。他们不在同一水平上。
-
-一旦这样做，你知道会发生什么吗？这篇文章最引人注目的地方之一是，50年后，这些GI们现在承认，当他们到达死亡集中营看到发生的一切时，他们立刻认为任何人做这种事都是次等人。当他们看到看守投降时，在许多情况下，他们直接杀了这些人。他们用钝器砸死他们，把他们全部消灭了。
-
-这不合法吗？他们做了这件事。为什么？因为你看，对这个问题的第一个答案是说，有某些次等人能做这种事，而不是我。
-
-然后你立刻开始把他们当成动物看待。但这正是问题的根源所在。这就是一切的起点。那么唯一的其他选择是什么？
-
-如果你不做这一点，也就是保持这个过程继续下去的话，对吧？一说到这些人是次等人，就可以以这种方式对待他们。没有审判就直接消灭了他们。当然，如果这样做，别人也会这样对你做。
-
-唯一的其他选择就是说，我们都是有能力的。我们都有人类内心的一部分。``` 这段翻译保留了原文的所有格式，并且尽量保持了原意和修辞力量。在这两个月里，我们一直在探讨的正是这一点。
-
-人心中有一种东西。人心中有种子，如果这些种子发芽了。这些种子就在我们心中。这就是唯一的两个答案。
-
-而第二个答案才是正确的。圣经上说，正如我们多次提到的。多萝西·塞耶斯对基督徒作家说过：罪是一种灵魂深处的精神错位。你知道，当骨头错位时，它不在正确的位置上，因此会有极大的疼痛和损伤。
-
-但她又说，圣经上也这样说，人的心灵在精神上是严重错位的。它没有中心在上帝身上。因为没有以神为中心，所以各种各样的事情就会发生。会有各种各样的痛苦和伤害。
-
-比如骄傲、自私、否认等。还有愤怒、嫉妒。我们已经探讨了两个月。在合适的条件下，这些种子会深深地扎根并变得极其邪恶，以至于人的心灵在合适的情况下能够做出这样的事。
-
-但人们试图解决这个问题的方式并没有给出答案。很多人意识到，除非你说我们都那么邪恶，否则你必须说有些人是低于人类的。然而，也有很多人不愿意接受这两种说法。你知道他们做了什么吗？
-
-就在50年代和60年代，许多经历过苦难的人开始写作，比如在奥斯威辛之后。他们开始说，上帝应该承担责任。人们看到，换句话说，人们不想说某一种族是低于人类的。所以他们就说，是上帝的责任。
-
-为什么他没有阻止呢？上帝应该负责。很多遭受苦难的人，在50年代和60年代开始写书，就像在奥斯威辛之后写的那样。但有趣的是，德国人自己，那些参与其中的人，他们对这些事情有自己的看法。
-
-到了50年代和60年代，一位名叫古特·吕滕博恩的德国人创作了一部名为约拿之兆的话剧。在这个戏剧中，很多参与其中、参与暴力的德国人都被揭露了出来，并受到指责。他们是怎么做的？你知道他们会说什么吗？
-
-他们会说：“我只是在执行命令。”责任应该在更高一级的人身上。于是他们找来更高一级的人。这些人怎么说呢？
-
-这已经是一个戏剧了。下一级的人会说什么呢？他们也会说：“我只是在执行命令。”责任应该再往上推。
-
-然后又找来更高一级的人。这些人又会说什么呢？“我只是在执行命令。”突然间，他们开始意识到问题所在。
-
-没错，是那个站在最高层的人没有责任。是上帝的责任。为什么上帝不阻止这一切？为什么上帝不做些什么？
-
-你怎么能相信一个允许如此邪恶和苦难存在的上帝呢？有趣的是，在这场悲剧中，双方都创作了文学作品，指责上帝应该负责。这个世界上的邪恶如此可怕，谁该被责备？是上帝。
-
-为什么上帝不做点什么？为什么上帝不对这个世界的邪恶和苦难做些什么？我刚才读给你们听的这段经文就是关于这个问题的。这是我们讨论罪的最后一部分。
-
-我们已经讨论了两个月了。为什么上帝不处理邪恶？为什么上帝不处理这里的邪恶、暴力，以及这世界上的破碎呢？这段经文告诉我们，上帝会做些什么。
-
-它讲述了一个发生在多年前的审判，这是历史上最引人注目的审判之一。我仔细地研究着。有一个诉讼，然后是一个审判，最后是执行。现在请跟我看。
-
-首先，经文说整个以色列民族从西奈旷野出发，在耶和华的命令下四处移动。他们在雷弗底米基旅营扎营，但没有水给百姓喝。于是他们与摩西争闹，说：“给我们水喝。”摩西回答：“你们为什么与我争闹呢？
-
-为什么试探耶和华？” 他们准备用石头砸我。现在，这里发生了什么？你看到这个争吵了吗？
-
-犹太人跟随摩西穿越沙漠，在一个没有水的地方停了下来。这不就像生活的一种隐喻吗？他们在努力做好人。他们追随上帝。
-
-他们宣誓效忠。他们来到了一个看起来要死路一条的地方。有些人可能已经死了。他们看不到出路。
-
-而这正是生活的隐喻。你们努力做好人，努力保持道德，努力虔诚。你们努力做一个正直的人，却走到了绝境，被毁灭了。至少你的希望和梦想被摧毁了。
-
-也许你的一些谎言也被摧毁了。于是问题就出现了： 上帝为什么这样做？问题是上帝不在你身边去抓他的手。所以你们转向了他的代表。
-
-他们开始争吵。现在这个“争吵”这个词是两周的翻译。这里的英文“quarrel”是从希伯来语翻译过来的一个词，意思是控告或诉讼。他们指控摩西背叛了他们，因为他们要砸死他。
-
-他们在说：“你背叛了我们。” 背叛。你们把我们带到这个地方，我们都将要死去。我们会成为豺狼的食物。
-
-好吧，我们将从你开始。你会成为开胃菜。换句话说，他们说：你是通过你的犯罪无能和愚蠢害死了我们。然而摩西知道，他们所做的一切不仅仅是在针对他，而是在针对上帝。
-
-你看？摩西说：“你们为什么跟我争吵？你们在试探上帝。”事情就是这样发展的。
-
-因为你看，你中的很多人也可能处于这样的境地。你可能对你生活中的某个摩西非常生气，但实际上你只是对你的生活走向感到愤怒。而在你与摩西的每一次争吵背后，你其实是在与上帝争吵。我不喜欢我的生活这样走。
-
-为什么上帝让我的人生变成这样？为什么我的生活中事情进行得如此糟糕？上帝怎么能允许这种情况发生？于是，在我们心中就有一场针对上帝的诉讼。
-
-于是就有了控诉。有了控诉。那么，上帝对这个问题的回应是什么呢？回应是一次审判。
-
-一次审判。您说，试炼在哪里？好吧，摩西回答说：“你走在百姓的前面，带着以色列的长老，手里拿着击打尼罗河的杖去。”现在，仔细看看，我要让你这样做，你会发现一些有趣的事情。
-
-他说，带着长老们和那根击打尼罗河的杖。现在，摩西的手杖不仅仅是一根手杖。这根杖是神的权杖。这是神用来惩罚埃及的杖。
-
-当摩西用它击打尼罗河时，河水变成了血。而摩西不断地使用这根杖作为神对埃及施行瘟疫的方式。那这一切又是什么意思呢？杖象征着世俗的权力。
-
-在古代世界，杖是用来惩罚罪犯的东西。你用杖打罪犯。这就是当时的做法。拥有杖的人意味着是统治者或国王、管理者，即拥有世俗权力的人。
-
-顺便说一句，在罗马时代，这非常引人注目，考虑到我们今天是如何设置这一切的。在罗马时代，罗马总督会携带一捆棍棒，这些棍棒捆绑在一起以显示他们的绝对权威和力量。而这些棍棒在拉丁语中被称为fascis（法西斯），这个词正是我们英文中的“法西斯”一词的来源。这根杖不仅是摩西的手杖，这是神权力的杖，是审判之杖。
-
-这根杖通过它，神施行了判决。无论我们往哪里看，都能看到破碎、战争、残忍和痛苦。我们在周围的世界以及自己的生活中都能感受到这些。这一切是如何来的？
-
-又能做些什么呢？在本月即将出版的新书中，《世界出了什么问题？》Tim Keller 提供了一个清晰而充满同情的答案。他从在复兴堂的一系列讲道中汲取灵感，展示了罪恶的现实如何解释我们周围所看到的一切痛苦，并且只有福音才能带来持久的自由和治愈。
-
-> 在本月即将出版的新书《世界出了什么问题？》中，Tim Keller 提供了一个清晰而充满同情的答案。他从在复兴堂的一系列讲道中汲取灵感，展示了罪恶的现实如何解释我们周围所看到的一切痛苦，并且只有福音才能带来持久的自由和治愈。无论你是否被这个世界的状态所压垮，挣扎于自己的错误或选择之中，还是在寻找希望和喜悦，这本书《世界出了什么问题》将帮助你看清福音如何回应我们这个世界的痛苦以及我们内心的伤痛。
-
-这本新出版的书是我们感谢你们本月捐赠的心意，以助福音与生命分享耶稣的好消息。请访问 gospelandlife.com/give 获取您的副本。这是 gospelandlife.com/give。现在，请听凯勒博士继续今天的教导。
-
-将要有一个审判，也将有一次审讯，因为长老们也会参与其中。如果你对旧约有所了解，你会发现每当有人犯错时，他们必须在长老面前出现，并接受棍棒的惩罚。这就是他们的审判方式。如果被判有罪，就会受到惩罚。
-
-所以会有一次审讯，但会是谁呢？这里有个奇怪的地方。不是摩西，尽管摩西的生命危在旦夕，是摩西被指控的对象。摩西的生命危在旦夕，但他手中拿着棍棒。
-
-所以他不会站在被告席上。他不会坐在被告的位置上。因此，不是摩西。那么会是谁呢？
-
-会不会是以色列人呢？你看，有人问，为什么？他们没有做错任何事情。哦，不，他们做了。
-
-哦，他们确实做了。以色列人的一切都归功于神和摩西。神出现了，通过神的大能和摩西的勇敢，他们被从埃及救了出来。他们一切的一切都是神赐予的。
-
-而现在他们却说：我们不喜欢神这样管理我们的生活。我们要夺回统治权。我们不高兴你做事的方式。他们本应该说：为什么神对我们这么好，但他们却在问：你最近为我做了什么？
-
-他们说：我们不喜欢你这样管理我们的生活。所以实际上，他们是犯了和指控摩西一样的叛国罪。他们应该站在被告席上，接受审讯。但不是谁在受审。
-
-—— 凯勒博士 谁在受审？请看第6节，我说，神将在何珥山的磐石前站在你们面前。现在听吧，亲爱的朋友们，在圣经中，尤其是在古代，谁站在谁面前是非常重要的。站在前面的人总是处于仆人的位置。
-
-仆人站在主人面前。弱者站在强者面前。被定罪的人站在法官面前。在整本圣经中，你找不到任何地方说神站在任何人面前。
-
-是人们站在他面前。不，他从不在任何人面前。他会站在我面前吗？那他是要站在我面前吗？
-
-因此他说，你要走在我的前面。这也是为什么在旧约中，当有人被带到审判时，他们会被吩咐站在耶和华和以色列的长老面前。但神却做出了一个绝对、令人惊讶的声明——我要站在你们面前。你有棍子。
-
-神在做什么？然后他又说，我要站在磐石前的你们面前。这里的希伯来语介词表示“在”或“在……之上”。我们常用的译本，新国际版，几乎不敢直译它。
-
-神说，我要站在你们面前，在磐石上，在磐石上方。他们说“在磐石边”，意思是一样的——我要站在你们面前，在磐石上，举起神的棍子击打磐石。神进入法庭。神进入了软弱的位置。
-
-神进入了被定罪的位置。听我说，摩西根本无法用一根物理棒子伤害神。但你能想象他有多么震惊吗？你知道为什么吗？
-
-每当神的荣耀显现时，你都要表现出最大的敬意。记得当摩西靠近燃烧的荆棘丛接近神时，神说了什么？脱下你的鞋，你在圣地上。无论何时神的荣耀在周围，你都要以最大的尊重对待它。
-
-但这里神说，我要站在你们面前，在磐石上击打它。把神的棍子降在我身上。摩西一定比他一生中任何时候都更加震惊了，他会问：这怎么可能？但我们知道是怎么回事。
-
-因为在哥林多前书10章，保罗说，我们的祖先通过红海，并且他们吃同样的灵粮，喝同样的灵水，因为他们从那块磐石喝水，而那磐石就是基督。这里发生了什么。摩西被定罪了。他正处于生命审判中。
-
-上帝进入了摩西的位置。应该是人们受审。他们是叛国者。上帝站在他们的位置上。
-
-上帝在磐石上。上帝在被告席上。被告席。他是被告。
-
-他进来了。上帝在磐石上。上帝在被告席上。并且被处决了。
-
-现在朋友们，你看，并不是那天发生的。不，它没有发生。这是一个预兆。但有一天，在十字架上的某人，那块磐石，仰望天说：“我的神，我的神，那根使尼罗河变血的棍子现在正在流我的血。
-
-”那根使尼罗河变血的棍子现在正使我变血。为什么？因为我们把上帝放在被告席上，我们应该被带上被告席，但上帝实际上进入被告席为我们承担了我们的惩罚。关于约拿的预兆最令人惊讶的事情之一就是，在剧中结尾时，他们是如何处理这个问题的——他们说这是神的问题。
-
-神是责任者。神是那个。这真是太愚蠢了。你不明白吗？
-
-我们不想在自己的生活中看清楚。我们不想在自己心中寻找。我们不想说这个世界的邪恶和死亡集中营的痛苦是我们造成的。所以我们所做的就是试图把上帝放在被告席上。
-
-我们应该因为把上帝放在被告席上而被带上被告席，但上帝亲自进去承担了我们应得的惩罚。最令人着迷的是，在约拿的预兆中，在剧中结尾时，他们说你是对的，神是责任者。不是我们，并且他们说让我们判他死刑。你知道他们说什么吗？
-
-他们说：“让他成为一个普通人。” “让他成为一个无家可归的人。”“让他成为地球上的流浪者。”“让他失去儿子。
-
-” “让他死去。”当他死的时候，让他们侮辱和羞辱他。等等一下。等等一下。
-
-他已经这样做了。主啊，为什么你不解决这个世界的苦难？上帝已经做了其他任何宗教所宣称的神从未做过的事情。没有任何一个宗教声称他们的神曾做过这样的事情。
-
-圣经说我们的神已经解决了苦难和邪恶的问题。他深入其中，他亲自面对了这一切。他亲自经历了。你知道那首著名的基督教诗歌：“其他神祇或许可以骑马前行，但老耶稣基督却跌跌撞撞地走向宝座。
-
-只有你的伤痕才能向我们这些伤口说话。” 唯一的神。唯一一个真正解决苦难和邪恶问题的神，亲自承受了惩罚。我们本应为此受罚。
-
-他做到了。他做了我们在自怜和傲慢中要求于他的事情。上帝实际上来拯救你的方式就是做你叫我做的那件坏事，但你的召唤却是邪恶的。它理应受到审判，但我愿意自己承担这个审判。
-
-如果你阅读那些老兵们的目击记录，你会发现他们开枪的原因很简单——他们开始射击并殴打看守。你知道为什么吗？因为他们内心深处知道，唯一能够应对这种巨大邪恶的方式就是审判。他们需要看到审判。
-
-这是只有通过审判才能治愈的伤口。世界的罪恶、世界的罪性只能通过审判来解决。但通过贬低人、剥夺人的尊严对待看守，他们让自己无法面对我们所有人都应该受到审判的事实。上帝已经通过审判解决了这个世界的苦难和邪恶问题。
-
-他亲自承担了这个审判。你看**这意味着什么？如果你谦卑自己说：“主啊，我理应受罚，但你为我受罚。**” 那么在最后的一天，上帝可以解决这个问题，可以清除邪恶而不清除你们。
-
-上帝本可以随时用棍棒打倒邪恶，但他却保留了这一切。如果你相信他，在最后一天，他可以清除邪恶而不会清除你们。你听到他说的话了吗？最后一件事是：从被击中的磐石中流出的水。
-
-> 水是从受击的磐石来的。你知道**这意味着什么吗？如果你看看耶稣基督，他是为你受击的。**上帝在磐石上，上帝在法庭上。
 
 如果你看到他为你受击，看到他被神的棍棒抽打得满身是血，水就来了。这使你能够面对生命的旷野，能够应对这个世界的沙漠。你注意到上帝并没有把以色列人从沙漠中带出来。他在沙漠中给他们提供帮助。
 

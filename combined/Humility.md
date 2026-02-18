@@ -4,15 +4,7 @@
 
 ---
 
-## 引言 欢迎来到《生命中的福音》！我们很多人试图通过意志力来改变自己，克服坏习惯或强迫更好的行为，却发现最终还是回到了旧有的模式。今天的信息中，提摩太·基勒（Tim Keller）正在探讨圣灵的果子，展示**真正的转变不是**关于道德克制，而是通过基督从内心深处被改变。### 经文阅读：腓立比书 2:1-11 今晚的经文来自腓立比书第二章1至11节。
-
-Welcome to Gospel in Life! Many of us try to change through sheer willpower, conquering bad habits or forcing better behavior, only to find ourselves snapping back to old patterns. In today's message, Tim Keller is exploring the fruit of the Spirit, showing how real transformation isn't about moral restraint, but a heart that through Christ is changed from the inside out.
-
-Tonight's scripture reading comes from the book of Philippians, chapter 2, verses 1-11. If you have any encouragement from being united with Christ, if any comfort from His love, if any fellowship with the Spirit, if any tenderness and compassion, then make my joy complete by being like-minded, having the same love, being one in spirit and purpose. Do nothing out of selfish ambition or vain conceit, but in humility consider others better than yourselves.
-
-Each of you should look not only to your own interests but also to the interests of others. Your attitude should be the same as that of Christ Jesus, who, being in very nature of God, did not consider equality with God something to be grasped, but made himself nothing, taking the very nature of a servant, being made in human likeness. And being found in appearance as a man, he humbled himself and became obedient to death, even death on a cross.
-
-Therefore, God exalted him to the highest place and gave him the name that is above every name, that at the name of Jesus every knee should bow in heaven and on earth and under the earth. And every tongue confess that Jesus Christ is Lord to the glory of God the Father. This is God's Word.
+## 病症：对荣耀的空虚渴望 / The Sickness: Glory-Hunger
 
 This is a great passage on humility that you just had read. When we have talked in the last few months about justice and the poor, I've always sensed that even though it's important, it's what the Bible says, we have the cultural window or back. You know what I mean?
 
@@ -64,19 +56,11 @@ It's to grab God's status for oneself. It's wishing to be the creator, independe
 
 Leaves us empty at the center and therefore we learn to swagger. We're attacked by demons of fear and anxiety, so we bluff. We look around and whenever we see a new person, we use people as buttresses for the shaky ego that pride created every time you meet a new person, you are unconsciously wondering, how can this person contribute to my need to prove that I count?
 
-Life therefore becomes a constant battle to use people to bolster your own self. So there's the sickness, pride, which is a hunger for glory, a need for respect, a need to be assured that we're real. What would health look like then?
-
-If we didn't have this, what would health look like? And the answer is intriguing. It's all summed up in the word humility because see, keep on going.
-
-He says in verse two, I want you to be unified. Verse three, a, the first part says, and the reason you're not is because of this emptiness, this vain glory, that's what the King James Bible, which is a little better, it translates, emptiness, you know, devoid of glory. Because of your emptiness, because of your pride, therefore, he says, starting verse 3B, and humility, consider others better than yourselves.
-
-Each of you should look not only to your own interests, but also to the interests of others. Boy, that tells you a lot, but let me, let's first of all look at the word humility. What is it?
+Life therefore becomes a constant battle to use people to bolster your own self.
 
 ---
 
-如果你因与基督联合而得到鼓励，如果从祂的爱中获得安慰，如果有圣灵中的交通，有温柔和怜悯的心，那么请你们彼此心意相同，彼此相爱如同基督爱我们一样，并且为着祂舍己。在此之外，不要自以为聪明，也不要贪图虚浮的名誉；只要以谦卑相待，各人看别人比自己强。你们当以基督耶稣的心为心：他本有神的形像，不以自己与神同等为强夺的；反倒虚己，取了奴仆的形像，成为人的样式。既有人的样子，就自己卑微，存心顺服，以至于死，且死在十字架上。
-
-所以，神将他升为至高，又赐给他那超乎万名之上的名，叫一切在天上的、地上的和地底下的，因耶稣的名无不屈膝，无不口称耶稣基督为主，使荣耀归与父神。这是神的话语。### 文化背景：谦卑在当代社会中的地位 你们刚才读到的是一个关于谦卑的伟大段落。我们在过去几个月里讨论正义和穷人的时候，一直感觉到即使这些很重要，是圣经所说的，我们仍然有文化上的窗口或后视镜。
+你们刚才读到的是一个关于谦卑的伟大段落。我们在过去几个月里讨论正义和穷人的时候，一直感觉到即使这些很重要，是圣经所说的，我们仍然有文化上的窗口或后视镜。
 
 你知道我的意思吗？文化说，很好，很高兴看到基督徒们在思考这些问题。我们也对此感兴趣。所以你们有一个向后的窗口。
 
@@ -84,7 +68,7 @@ Each of you should look not only to your own interests, but also to the interest
 
 另一种伦理观逐渐兴起，社会学家称之为表达性个体主义。现在，在我们这个社会中，人们寻求救赎的方式不再是谦卑地站在上帝面前，而是通过与自己亲密接触来发现内在的美丽、力量甚至神性。这就是当今文化的态度，这完全违背了圣经对谦卑重要性的教导。让我们注意三点：这一段精彩的经文，我们可以就此展开30周的布道，但今天不会这样做。
 
-我将给你一个高层次的概览，这会告诉我们一种病症，什么是健康的状态以及如何获得治愈。### 一、病症：骄傲与对荣耀的空虚渴望 一、病症，在第二和第三节中找到。他说要心意相同，有同样的爱心，有一样的精神和目的。他描述的是一个统一的人类社群，这是我们所渴望的。
+我将给你一个高层次的概览，这会告诉我们一种病症，什么是健康的状态以及如何获得治愈。一、病症，在第二和第三节中找到。他说要心意相同，有同样的爱心，有一样的精神和目的。他描述的是一个统一的人类社群，这是我们所渴望的。
 
 我们都希望生活在没有争斗和分裂，只有爱与心灵合一的社会里。但现实却是时代广场发生了爆炸事件，政治极化加剧，战争不断。你说这实际上是在谈论教会，对，正是这一点：人的内心出了问题，严重到即使在一个像教会这样的团体中，所有人都共享相同的信仰，仍然存在不断的争斗。保罗提到这一点的原因是，在你继续阅读这封简短的信件时，你会发现教会中有几位关键人物之间存在着争议。
 
@@ -112,11 +96,19 @@ Each of you should look not only to your own interests, but also to the interest
 
 希望成为创造者，独立自主，依靠自己的资源。这是所有幻想中最荒谬的幻想，是宇宙级的骗局，是我们试图自己创造上帝的幻觉，这让我们内心空虚。这让我们内心空虚，因此我们才会摆出一副自信的样子。被恐惧和焦虑的恶魔攻击时，我们会装作无所畏惧。
 
-每次遇到新的人，我们都会不自觉地想，这个人能为我证明自己的重要性做出什么贡献吗？因此，生活变成了一种不断的努力，利用他人来增强自我。于是就有了这种病态——骄傲，这是一种渴望荣耀、需要尊重的饥渴，一种想要确认自己存在的需求。那么，健康又会是什么样子呢？
+每次遇到新的人，我们都会不自觉地想，这个人能为我证明自己的重要性做出什么贡献吗？因此，生活变成了一种不断的努力，利用他人来增强自我。于是就有了这种病态——骄傲，这是一种渴望荣耀、需要尊重的饥渴，一种想要确认自己存在的需求。
 
 ---
 
-## 二、健康状态：**真正的谦卑 如果我们没有这种心态，健康又会是**什么样子？答案令人惊讶，它可以用一个词来概括：谦卑。因为，继续看下去。他在第二节说，我希望你们能够合一。
+## 真正的谦卑是什么 / What True Humility Looks Like
+
+So there's the sickness, pride, which is a hunger for glory, a need for respect, a need to be assured that we're real. What would health look like then?
+
+If we didn't have this, what would health look like? And the answer is intriguing. It's all summed up in the word humility because see, keep on going.
+
+He says in verse two, I want you to be unified. Verse three, a, the first part says, and the reason you're not is because of this emptiness, this vain glory, that's what the King James Bible, which is a little better, it translates, emptiness, you know, devoid of glory. Because of your emptiness, because of your pride, therefore, he says, starting verse 3B, and humility, consider others better than yourselves.
+
+Each of you should look not only to your own interests, but also to the interests of others. Boy, that tells you a lot, but let me, let's first of all look at the word humility. What is it?
 
 It's a simple Greek word that means gentle, modest, deferential, gentle, modest, deferring to others. Outside of the New Testament, this Greek word, whenever it was used in any other kind of ancient Greek literature was always derocatory because in the Greco-Roman society, to be deferential and to be gentle and to be modest, was the attitude of a slave. See, that old society valued strength, and they believed that actually social stability was based on fear.
 
@@ -218,19 +210,13 @@ And yet we, that's the truth. You're always thinking about yourself, how are you
 
 So you're always thinking about yourself, why there's something wrong with your ego, just like if you're ever thinking about your elbow, there's something wrong with your elbow. We're not healthy. We're vain, glorious, we're lacking in glory.
 
-And as a result, we're not humble at all. We're filled with drivenness, scornfulness, willfulness and self-consciousness. So what's the cure?
-
-Well, I'd like to show you that this passage is giving us a top cure, it speaks broadly middle and practically too. It wasn't until fairly recently, as well as I've known this passage. This is one of the most famous passages in the Bible.
-
-If you're a theological student and you're trying to learn what does the Bible teach about Christ, you study this thing, word for word, almost letter for letter. I know I did a long time ago, and it's an amazing, sweeping, magnificent hymn. It's a hymn.
-
-Notice why it's laying on the page the way it is, looking like it's inverse because either Paul wrote this this way or else he was quoting somebody else's. But because of its lexical links, its parallelism, its rhythm, this is a hymn, this is a song. It's a hymn of praise to the deity of Jesus Christ, the greatness of who he is and what he's done.
-
-Now, here's what I want to ask, here's the first question, and this is actually the first answer to the cure here. Why would Paul do this? He's talking about something very, very practical, humility and fighting in the church.
-
-Very practical. And all of a sudden, he goes into this sweeping theological discourse, why? And here's the reason why.
+And as a result, we're not humble at all. We're filled with drivenness, scornfulness, willfulness and self-consciousness.
 
 ---
+
+那么，健康又会是什么样子呢？
+
+二、健康状态：**真正的谦卑 如果我们没有这种心态，健康又会是**什么样子？答案令人惊讶，它可以用一个词来概括：谦卑。因为，继续看下去。他在第二节说，我希望你们能够合一。
 
 第三节a部分说，而你们不能合一的原因是由于这种虚空、这种虚荣的荣耀，这是《钦定本圣经》稍微好一点的翻译，它将“虚空”译为“空洞无物”。因为你们的空洞无物，因为你们的骄傲，所以他从第三节b开始说，因此，谦卑，要以他人为重。你们每个人应当不仅关注自己的利益，也要关心别人的利益。这句话告诉你很多东西，但让我们首先来看看这个词——谦卑，它是什么意思？
 
@@ -250,7 +236,7 @@ Very practical. And all of a sudden, he goes into this sweeping theological disc
 
 我总结了他所说的四点，这四点与骄傲相对立，因此也反对谦卑。实际上，我可以从这些方面来审视自己的生活，思考自己。他说，骄傲有四个方面，因此谦卑就对立于这四个方面。幸福、虚荣、任性、自我意识。
 
-好，让我们想一想。#### 谦卑的四个方面之一：与追求成功相反 首先，谦卑与追求成功是相对的。要小心。有可能你对所追求的事物充满热情并努力工作，是因为你真正爱上了那个领域。
+好，让我们想一想。首先，谦卑与追求成功是相对的。要小心。有可能你对所追求的事物充满热情并努力工作，是因为你真正爱上了那个领域。
 
 比如你在艺术或音乐上追求卓越，或者在商业、教育或学术领域追求卓越，可能只是因为你热爱那个领域。也许，例如你喜欢跑步，并且喜欢看到别人跑，你仅仅喜爱那种运动的活力。如果你作为一名运动员追求更快的速度，而且你的竞争心是出于快乐的竞争心，那么即使你的朋友打破了记录，你也几乎会和自己打破记录一样开心。但通常情况并非如此，对吧？
 
@@ -260,17 +246,17 @@ Very practical. And all of a sudden, he goes into this sweeping theological disc
 
 你总是对自己的表现不满意…… 你没有做得很好，没有做对。你能做得更好。你是被驱使的。你不安分，但谦卑是满足于现状，接受自己的不完美。
 
-谦卑与追求成功恰恰相反。想想这个。#### 谦卑的四个方面之二：与轻蔑相反 其次，谦卑与轻蔑截然相反。顺便说一句，有时候你可能会用讽刺的语气谈论一件非常不公正的事情，也许你想通过这种方式来传达你的观点。
+谦卑与追求成功恰恰相反。想想这个。其次，谦卑与轻蔑截然相反。顺便说一句，有时候你可能会用讽刺的语气谈论一件非常不公正的事情，也许你想通过这种方式来传达你的观点。
 
 但总的来说，正如爱德华兹正确指出的那样，轻视他人、嘲笑和嘲弄总是骄傲的表现。为什么呢？因为你是在贬低别人。这就是我们使用的比喻——你在贬低别人，好让自己高人一等。
 
-相反，谦卑意味着你应当以礼貌、恩慈和友善的态度对待那些比你地位低下或与你意见相左的人。所以，一种骄傲的表现是急切，而谦卑恰恰相反。另一种骄傲的表现是轻蔑，包括嘲讽、讽刺、贬低他人等等，谦卑则与此相反。#### 谦卑的四个方面之三：与任性相反 第三点，谦卑也与任性相反。
+相反，谦卑意味着你应当以礼貌、恩慈和友善的态度对待那些比你地位低下或与你意见相左的人。所以，一种骄傲的表现是急切，而谦卑恰恰相反。另一种骄傲的表现是轻蔑，包括嘲讽、讽刺、贬低他人等等，谦卑则与此相反。第三点，谦卑也与任性相反。
 
 爱德华兹说，在教会中，精神上骄傲的人总是对自己的每一个信仰观点都坚信不疑。一个骄傲的人不能承认自己错了。骄傲的人无法接受别人的意见和纠正，他们不愿意悔改，如果悔改的话也只是在被迫的情况下才会这样做。他们不乐于学习，不开放心胸接受建议。
 
 他们不愿改变自己的想法，也不愿意倾听。所以这就是任性。因此，骄傲与急切、轻蔑、任性相反。现在让我们想一想。
 
-#### 谦卑的四个方面之四：与自我意识相反 当我们想到骄傲的人时，我们几乎总是会想到那些自以为是的人，但这并不是骄傲的唯一形式。我们会想到那些自我孤立和经常夸耀自己的人，但这也不是骄傲的唯一形式。不，绝非如此。因为最终，骄傲——谦卑的对立面——其实是不安全感。
+当我们想到骄傲的人时，我们几乎总是会想到那些自以为是的人，但这并不是骄傲的唯一形式。我们会想到那些自我孤立和经常夸耀自己的人，但这也不是骄傲的唯一形式。不，绝非如此。因为最终，骄傲——谦卑的对立面——其实是不安全感。
 
 这种对荣誉的需求、对荣耀的渴望，可以表现为自卑感，也可以表现为优越感。如果你总是自责，总是看不起自己，或者害怕赞美，害怕任何形式的关注，那是因为你同样深刻地意识到自己的存在。你同样沉浸在自我思考中。你在观察自己，并且在想：我是不是显得太自以为是了？
 
@@ -304,7 +290,19 @@ Very practical. And all of a sudden, he goes into this sweeping theological disc
 
 ---
 
-## 三、治愈之道：仰望基督的谦卑 我想通过这段经文给你们提供一个根本性的解决方案，它不仅广泛适用，而且非常实用。直到最近，我才真正理解了这段经文的重要性。这是《圣经》中最著名的段落之一。如果你是一名神学学生，试图学习圣经关于基督的教导，你会逐字逐句地研究这段经文。
+## 治愈之道：仰望基督的轨迹 / The Cure: Gazing at Christ's Trajectory
+
+So what's the cure?
+
+Well, I'd like to show you that this passage is giving us a top cure, it speaks broadly middle and practically too. It wasn't until fairly recently, as well as I've known this passage. This is one of the most famous passages in the Bible.
+
+If you're a theological student and you're trying to learn what does the Bible teach about Christ, you study this thing, word for word, almost letter for letter. I know I did a long time ago, and it's an amazing, sweeping, magnificent hymn. It's a hymn.
+
+Notice why it's laying on the page the way it is, looking like it's inverse because either Paul wrote this this way or else he was quoting somebody else's. But because of its lexical links, its parallelism, its rhythm, this is a hymn, this is a song. It's a hymn of praise to the deity of Jesus Christ, the greatness of who he is and what he's done.
+
+Now, here's what I want to ask, here's the first question, and this is actually the first answer to the cure here. Why would Paul do this? He's talking about something very, very practical, humility and fighting in the church.
+
+Very practical. And all of a sudden, he goes into this sweeping theological discourse, why? And here's the reason why.
 
 You cannot work on humility directly. It's a byproduct of something else. You can't work on it directly.
 
@@ -372,7 +370,69 @@ Jesus Christ looks at you and says, to me and in me, you are more precious than 
 
 Because you will know the way up is down. The way to be rich is to give away. The way to be happy is not to seek your own happiness, but the happiness of others.
 
-And when you say that He did that for you, that fills you up so you're not empty anymore and you'll be able to not have to think about yourself and how you go. Let me give you just one practical thing on this. I've already told you that it will sense you can't work on your humility, but you can work on your pride.
+And when you say that He did that for you, that fills you up so you're not empty anymore and you'll be able to not have to think about yourself and how you go. Let me give you just one practical thing on this.
+
+---
+
+我想通过这段经文给你们提供一个根本性的解决方案，它不仅广泛适用，而且非常实用。直到最近，我才真正理解了这段经文的重要性。这是《圣经》中最著名的段落之一。如果你是一名神学学生，试图学习圣经关于基督的教导，你会逐字逐句地研究这段经文。
+
+我以前也这样做过，这是一首令人惊叹、宏伟壮丽的赞美诗。它确实是一首赞美诗。注意为什么这段经文排版如此，看起来像是倒过来的，要么是保罗这样写的，要么他引用了别人的。但因为它的词汇联系、平行结构和节奏感，这是一首赞美诗，一首歌颂耶稣基督神性的伟大和他所做之事的赞美诗。
+
+现在我要问的第一个问题是：为什么保罗会这样做？他在谈论非常实际的事情——谦卑和教会中的争斗。这是非常实际的问题。然后他突然进入了一段宏大的神学论述，为什么呢？
+
+这里有一个原因。你无法直接培养谦卑。它是由其他事物产生的副产品。你不能直接去培养它。
+
+你知道我的意思吗？我指的是，你们已经越来越不谦卑了，不是吗？你们知道这是为什么吗？换句话说，直接培养谦卑是不可能的。
+
+我们从《螺丝在拧紧》中得到了这一点启示。**真正的谦卑并不是**想着自己，但这是我们一直在做的事情。举个例子，你脑子里现在有一套小小的评估工具，不知道能持续多久，但至少几天内你会记得：自大、好胜、任性、自我意识。下次当你看到有人表现得非常自大，或者非常任性的行为时，你会怎么做？
+
+骄傲。不是我，我不那样做。唯一可能培养谦卑的方式就是彻底失去它，你知道为什么吗？因为你无法直接培养谦卑，因为它涉及自我遗忘。
+
+你只能关注外在的表现，去摧毁它。谦卑是最害羞的美德之一。你不能与谦卑交谈而不让它消失。它就是不想存在。
+
+因此，你不能直接去培养谦卑。你必须不要试图直接去培养谦卑。那么，你应该怎么做呢？你应该看看别人。
+
+这不仅仅是神学，这也是一首圣诗。它被写来要被吟唱、诵读或歌唱。保罗在说什么？保罗说，我们要修复我们内心最需要修复的部分，就必须看到耶稣，我们必须让圣经的教义在心中燃烧，这是你赞美上帝的东西，是能激发你想象的东西。
+
+耶稣是谁，他做了什么。这是一颗燃烧着的教义之火、神学之火在你心中的体现。谦卑是你渴望更多于谦卑的一个副产品。因为如果你想要谦卑，那都是关于你自己。
+
+如果你想要谦卑，为什么你要想变得谦卑呢？我说的是，我并不想显得骄傲，我想成为正确的人，或者你想……你必须爱他、敬拜他、看见他。谦卑是你渴望更多于谦卑的一个副产品，首先渴望他。这是顶点，这是治愈的第一部分。
+
+然而，治愈的第二部分是什么呢？这不仅仅是泛泛的教义，看看它是什么，这是一个轨迹。事实上，有人说过，这段经文从第五节到第十一节实际上是一首三乐章的交响曲。第一个乐章是道成肉身，虽然他是神，但他成了人。
+
+第二个乐章是赎罪，虽然他成了人，他没有过着舒适的生活，而是上了十字架。第三个乐章是上升。他下来了，甚至更低，因此上帝大大地高举了他。现在他做了什么？
+
+这就是核心所在。在这段经文的中心位置，它说，在神的本质中，他没有将与神同等视为可以抓取的东西（英文原文为“grasped”，此处翻译为中文），而是使自己变得卑微。你是否知道这个希腊词是什么？肯西奥斯（kenosis）。
+
+肯西奥斯这个词听起来熟悉吗？是的。它说他谦卑自己，虽然他是神，却谦卑自己。这个从两千年前开始困扰神学家们的大问题是：他谦卑的是什么？
+
+经文没有明说，只是说他谦卑了。有些人认为，当然他是神，所以他谦卑的是他的神性、他的神圣性，但这不是经文的意思。它从来没有说他放弃了他的神性，而是说他开始成为仆人。他并没有舍弃他的神性，而是承担了人性，并且不仅如此，他不仅成了王，还成了仆人。
+
+这就对了。他谦卑的是他的荣耀，而不是他的神性。什么？听我说，在天堂里，如果你被带到天堂，过去或现在？
+
+你会看到耶稣作为神的荣耀显现出来，他的神圣性通过荣光、美丽和光辉表现出来，会让你震撼不已。当你看到美丽的事物，比如艺术品或瀑布或其他任何东西时，它们都是如此美丽，即使只是地球上的美丽事物，你也会不由自主地赞叹，对吧？它的荣耀让人不禁赞美，但耶稣基督却来的时候没有这些。以赛亚书53章说：“他外貌俊美，必被藐视。
+
+”他谦卑的是他的荣耀、他的美丽，那些让他受到尊敬的东西。所以他来了，孤独、贫穷，最终被打、受苦、被杀。他谦卑了荣耀，变得渺小，不再是王。他被拒绝，可以被打败，并且确实被打败了。
+
+他被拒斥，确实被拒斥。他失去了所有的荣耀，离开了他的荣耀，但他并没有停止是神，而是谦卑了他的荣耀。因此，神高举他。为什么？
+
+为什么他复活了？为什么他在天上？因为他拯救了我们。他承担了我们的惩罚，所以赎回了新人类，并引领我们走向未来。
+
+这就对了，这就是一个轨迹。什么是轨迹？大家都知道吧？上山的路是下山。
+
+真正富有的道路是舍去。统治的道路是服侍，而成为无穷快乐的道路是不寻求自己的幸福，而是寻求别人的幸福。最荣耀的事情莫过于舍弃自己的荣耀为别人。现在你看，“空虚”这个词出现了两次，看看它。
+
+你和我拼命地想要填满自己的荣耀，结果却变得空空如也。但耶稣基督拥有**真正的荣耀，祂却把自己空虚了，好让我们得以充满——充满，是**的。因为耶稣基督变得谦卑，我们在父的眼中就显得伟大；因为耶稣基督失去了所有的荣耀，我们如今得到了祂的公义和记录。这就是福音。
+
+耶稣基督承受了我们所应得的惩罚，所以当我们信靠祂时，我们就获得了祂所应得的待遇。你知道**这意味着什么吗？耶稣基督看着你，对你说：“在我和我里面，你比地底下所有的宝石都更宝贵。**”你越知道这一点并相信这一点，你就越会被抓住，赞美上帝，并歌唱耶稣为你的人生轨迹。
+
+这样，你就能在这条道路上行走。因为你会明白上山的路是下山，**真正的富有是**舍去，而幸福不是寻求自己的幸福，而是别人的幸福。当你这样说时，祂为你的付出会填满你的心灵，使你不再空虚，也不再需要思考自己和未来。让我给你一个实际的例子。
+
+---
+
+## 放下名誉的实践 / Letting Go of Reputation
+
+I've already told you that it will sense you can't work on your humility, but you can work on your pride.
 
 Here's what I remember. This King James version, the King James version of Philippians 2.7 is, he made himself of no reputation. And I remember some years ago, one of the humblest men I've ever worked with was a pastor on our staff named Dick Kaufman, he was here in the 90s.
 
@@ -408,58 +468,6 @@ Today's sermon was recorded in 2010. The sermons and talks you hear on the Gospe
 
 ---
 
-我以前也这样做过，这是一首令人惊叹、宏伟壮丽的赞美诗。它确实是一首赞美诗。注意为什么这段经文排版如此，看起来像是倒过来的，要么是保罗这样写的，要么他引用了别人的。但因为它的词汇联系、平行结构和节奏感，这是一首赞美诗，一首歌颂耶稣基督神性的伟大和他所做之事的赞美诗。
-
-现在我要问的第一个问题是：为什么保罗会这样做？他在谈论非常实际的事情——谦卑和教会中的争斗。这是非常实际的问题。然后他突然进入了一段宏大的神学论述，为什么呢？
-
-这里有一个原因。你无法直接培养谦卑。它是由其他事物产生的副产品。你不能直接去培养它。
-
-你知道我的意思吗？我指的是，你们已经越来越不谦卑了，不是吗？你们知道这是为什么吗？换句话说，直接培养谦卑是不可能的。
-
-我们从《螺丝在拧紧》中得到了这一点启示。**真正的谦卑并不是**想着自己，但这是我们一直在做的事情。举个例子，你脑子里现在有一套小小的评估工具，不知道能持续多久，但至少几天内你会记得：自大、好胜、任性、自我意识。下次当你看到有人表现得非常自大，或者非常任性的行为时，你会怎么做？
-
-骄傲。不是我，我不那样做。唯一可能培养谦卑的方式就是彻底失去它，你知道为什么吗？因为你无法直接培养谦卑，因为它涉及自我遗忘。
-
-你只能关注外在的表现，去摧毁它。谦卑是最害羞的美德之一。你不能与谦卑交谈而不让它消失。它就是不想存在。
-
-因此，你不能直接去培养谦卑。你必须不要试图直接去培养谦卑。那么，你应该怎么做呢？你应该看看别人。
-
-这不仅仅是神学，这也是一首圣诗。它被写来要被吟唱、诵读或歌唱。保罗在说什么？保罗说，我们要修复我们内心最需要修复的部分，就必须看到耶稣，我们必须让圣经的教义在心中燃烧，这是你赞美上帝的东西，是能激发你想象的东西。
-
-耶稣是谁，他做了什么。这是一颗燃烧着的教义之火、神学之火在你心中的体现。谦卑是你渴望更多于谦卑的一个副产品。因为如果你想要谦卑，那都是关于你自己。
-
-如果你想要谦卑，为什么你要想变得谦卑呢？我说的是，我并不想显得骄傲，我想成为正确的人，或者你想……你必须爱他、敬拜他、看见他。谦卑是你渴望更多于谦卑的一个副产品，首先渴望他。#### 基督的谦卑轨迹：道成肉身、十字架、升天 这是顶点，这是治愈的第一部分。
-
-然而，治愈的第二部分是什么呢？这不仅仅是泛泛的教义，看看它是什么，这是一个轨迹。事实上，有人说过，这段经文从第五节到第十一节实际上是一首三乐章的交响曲。第一个乐章是道成肉身，虽然他是神，但他成了人。
-
-第二个乐章是赎罪，虽然他成了人，他没有过着舒适的生活，而是上了十字架。第三个乐章是上升。他下来了，甚至更低，因此上帝大大地高举了他。现在他做了什么？
-
-这就是核心所在。在这段经文的中心位置，它说，在神的本质中，他没有将与神同等视为可以抓取的东西（英文原文为“grasped”，此处翻译为中文），而是使自己变得卑微。你是否知道这个希腊词是什么？肯西奥斯（kenosis）。
-
-肯西奥斯这个词听起来熟悉吗？是的。它说他谦卑自己，虽然他是神，却谦卑自己。这个从两千年前开始困扰神学家们的大问题是：他谦卑的是什么？
-
-经文没有明说，只是说他谦卑了。有些人认为，当然他是神，所以他谦卑的是他的神性、他的神圣性，但这不是经文的意思。它从来没有说他放弃了他的神性，而是说他开始成为仆人。他并没有舍弃他的神性，而是承担了人性，并且不仅如此，他不仅成了王，还成了仆人。
-
-这就对了。他谦卑的是他的荣耀，而不是他的神性。什么？听我说，在天堂里，如果你被带到天堂，过去或现在？
-
-你会看到耶稣作为神的荣耀显现出来，他的神圣性通过荣光、美丽和光辉表现出来，会让你震撼不已。当你看到美丽的事物，比如艺术品或瀑布或其他任何东西时，它们都是如此美丽，即使只是地球上的美丽事物，你也会不由自主地赞叹，对吧？它的荣耀让人不禁赞美，但耶稣基督却来的时候没有这些。以赛亚书53章说：“他外貌俊美，必被藐视。
-
-”他谦卑的是他的荣耀、他的美丽，那些让他受到尊敬的东西。所以他来了，孤独、贫穷，最终被打、受苦、被杀。他谦卑了荣耀，变得渺小，不再是王。他被拒绝，可以被打败，并且确实被打败了。
-
-他被拒斥，确实被拒斥。他失去了所有的荣耀，离开了他的荣耀，但他并没有停止是神，而是谦卑了他的荣耀。因此，神高举他。为什么？
-
-为什么他复活了？为什么他在天上？因为他拯救了我们。他承担了我们的惩罚，所以赎回了新人类，并引领我们走向未来。
-
-这就对了，这就是一个轨迹。什么是轨迹？大家都知道吧？上山的路是下山。
-
-真正富有的道路是舍去。统治的道路是服侍，而成为无穷快乐的道路是不寻求自己的幸福，而是寻求别人的幸福。最荣耀的事情莫过于舍弃自己的荣耀为别人。现在你看，“空虚”这个词出现了两次，看看它。
-
-你和我拼命地想要填满自己的荣耀，结果却变得空空如也。但耶稣基督拥有**真正的荣耀，祂却把自己空虚了，好让我们得以充满——充满，是**的。因为耶稣基督变得谦卑，我们在父的眼中就显得伟大；因为耶稣基督失去了所有的荣耀，我们如今得到了祂的公义和记录。这就是福音。
-
-耶稣基督承受了我们所应得的惩罚，所以当我们信靠祂时，我们就获得了祂所应得的待遇。你知道**这意味着什么吗？耶稣基督看着你，对你说：“在我和我里面，你比地底下所有的宝石都更宝贵。**”你越知道这一点并相信这一点，你就越会被抓住，赞美上帝，并歌唱耶稣为你的人生轨迹。
-
-这样，你就能在这条道路上行走。因为你会明白上山的路是下山，**真正的富有是**舍去，而幸福不是寻求自己的幸福，而是别人的幸福。#### 实际应用：默想基督为你舍弃的名誉 当你这样说时，祂为你的付出会填满你的心灵，使你不再空虚，也不再需要思考自己和未来。让我给你一个实际的例子。
-
 我已经告诉你，你无法直接提升自己的谦卑，但可以努力减少骄傲。我记得一件事。《钦定本》腓立比书2章7节是这样说的：“祂本有神的形像，竟将自己空虚了。”我还记得多年前，我曾与一位我们团队中最谦逊的人之一共事过，他的名字叫迪克·考夫曼牧师，在90年代他在这里工作。
 
 我一直想知道，你不能问一个谦卑的人，你的秘诀是什么？因为如果他们回答，你就得去找另一个人。这样就毁掉了他们。我还想，哦，好的。
@@ -478,7 +486,7 @@ Today's sermon was recorded in 2010. The sermons and talks you hear on the Gospe
 
 我几年前听了一个故事，讲的是一个年轻人去了英国的一个小镇，想要爬镇后边的山。大家都说那座山比看起来要高，天气也比想象中糟糕得多。但他有点过于自信了，没有带足够的装备就出发了，以为自己知道怎么应对。于是他一大早就从村子里出发，昂首挺胸地去爬山。
 
-几个小时后，他垂头丧气地回来了，连一半的路都没走到。一个老妇人看到了他回来的样子，说："小伙子，如果你是沿着你上来的路下去，你就会找到上来时的路。"这其实就是让我们谦卑自己，在上帝的大能手下屈服，祂会在适当的时候提升我们。### 结束祷告 让我们祷告。
+几个小时后，他垂头丧气地回来了，连一半的路都没走到。一个老妇人看到了他回来的样子，说："小伙子，如果你是沿着你上来的路下去，你就会找到上来时的路。"这其实就是让我们谦卑自己，在上帝的大能手下屈服，祂会在适当的时候提升我们。让我们祷告。
 
 天父，感谢祢赐给我们谦卑这一礼物，这是我们在寻求、寻找或自我检查中永远得不到的羞涩美德。但我们知道，如果我们仰望你，看到你的谦卑，看到你为我们所做的一切，然后反复思考直到这种谦卑在我们心中燃起火焰，感动到流泪，这会改变我们。我们将不再被急躁、冲动和自以为是所左右。因此，求祢让我们像祢的儿子一样，祂来不是要被人服侍，而是要服侍人，并且舍弃自己的生命作为多人的赎价。
 

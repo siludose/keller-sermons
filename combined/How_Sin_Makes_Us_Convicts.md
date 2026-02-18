@@ -4,6 +4,8 @@
 
 ---
 
+## 引言与经文诵读 / Introduction and Scripture Reading
+
 Welcome to Gospel in Life. Why is the world so broken? And why are we capable of inflicting such harm even toward those we love?
 
 People point to politics, poverty, or psychology, but none of these fully explain what we see in ourselves and in history. This month on the podcast, Tim Keller is teaching from a series exploring the question, what's wrong with us? Knowing us how the Bible's teaching on sin offers the only explanation deep enough to face the truth in all its complexity, and the only hope powerfully enough to transform us.
@@ -33,6 +35,28 @@ You need an angry God. You need in your mind and in your heart a God that gets a
 You need an angry God to live with humility and you need an angry God to know how loved you are. And if you don't believe in an angry God, a really angry God who hates sin and is going to punish it, you're impoverishing yourself. You're taking away all sorts of hope and humility and love.
 
 That's what I'm here to tell you. And you know, you say, how does that work out? Well, okay, let's go.
+
+---
+
+欢迎来到《福音人生》。罪如何使我们成为囚犯？今天，蒂姆·凯勒探讨了罪如何奴役我们，以及基督如何是我们自由的关键。现在，当我们考虑罪时，我们通常考虑坏的行为。
+
+我们考虑做的坏事。但圣经还说了一件事——罪使我们成为囚犯。罪使我们有罪感。罪使我们有内疚。
+
+罪使我们被困。现在，有一个关于这的心理学。当一个人犯了一个严重的罪时，会发生什么？他们很害怕。
+
+他们感到内疚。他们感到羞愧。他们试图隐藏它。他们开始相信谎言——他们是坏的，他们永远无法得到原谅，他们应该受到惩罚。
+
+这是一个监狱。这是精神上的监禁。现在，圣经有很多关于这个的教导。圣经说我们所有人都是有罪的。
+
+圣经说我们都被困。圣经说我们都需要被释放。保罗说："我发现了一条规律：尽管我想做好事，邪恶仍在我身上。"保罗说的是什么？
+
+他说他被他自己的罪所困。他想做对的事，但他发现自己做了他不想做的事。这是自欺欺人。这是来自内部的监狱。
+
+这是他们想要的自由，但他们无法实现它。
+
+---
+
+## 盼望需要公义的神 / Why You Need an Angry God for Hope
 
 First of all, and basically you just work right through the text on this. First of all, verses one to three tell us that you need an angry God, the biblical angry God, to live in hope. To be able to live in hope in a broken world.
 
@@ -68,7 +92,31 @@ Oh my work. That leads to intolerance and eventually the violence. What you real
 
 You have to believe that sin is in the eye of the beholder. You have to believe that sin is sort of a matter of perspective. This idea of a God of vengeance.
 
-That's going to lead to nothing but violence. Nothing but intolerance and violence. Well recently I read a book that is one of the most powerful refutations of that extremely common belief that we have to get beyond a God of vengeance if we're going to have a world of peace.
+That's going to lead to nothing but violence. Nothing but intolerance and violence.
+
+---
+
+现在，监狱有很多种。有些人因他们过去的错误而被监禁。他们犯了一个错误——也许是多年前——他们仍然无法原谅自己。
+
+他们不能继续。他们被他们的过去所困。有些人因他们的上瘾而被监禁。他们想停止，但他们不能。
+
+他们被他们的欲望所奴役。他们被他们的习惯所困。有些人因他们对他人的伤害感到内疚而被监禁。他们伤害了某人。
+
+他们知道他们做了什么。他们试图赔偿，但它从不完全足够。他们仍然有内疚。有些人因对他们的指控而被监禁，如果他们不完全的话。
+
+他们害怕上帝。他们相信上帝对他们生气。他们相信他们永远无法足够好。现在，所有这些都是监狱。
+
+所有这些都是来自罪的囚禁。但现在听听好消息。圣经说基督来释放囚犯。耶稣说："上帝的灵在我身上，因为他膏了我宣布被囚的获释。
+
+"耶稣说的是什么？耶稣说他来是为了释放被监禁的人。现在，耶稣不是在谈论监狱里的人（尽管他也关心他们）。耶稣说的是精神上被监禁的人。
+
+在罪和内疚和羞愧和恐惧中被监禁的人。耶稣说他来释放他们。现在，这如何工作？耶稣如何释放囚犯？
+
+---
+
+## 非暴力需要神的审判 / Nonviolence Requires Divine Vengeance
+
+Well recently I read a book that is one of the most powerful refutations of that extremely common belief that we have to get beyond a God of vengeance if we're going to have a world of peace.
 
 Incredible book actually. In many ways, it's a book by written by Miroslav Wolf, whose Croatian and the name of the book is exclusion and embrace. And let me read you his thesis.
 
@@ -401,39 +449,6 @@ When you do, you will also receive free articles, sermons, devotionals, and othe
 Today's sermon was recorded in 1999. The sermons and talks you hear on the gospel and life podcast were recorded between 1989 and 2017. Well, Dr.
 
 ---
-
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《福音人生》。罪如何使我们成为囚犯？今天，蒂姆·凯勒探讨了罪如何奴役我们，以及基督如何是我们自由的关键。现在，当我们考虑罪时，我们通常考虑坏的行为。
-
-我们考虑做的坏事。但圣经还说了一件事——罪使我们成为囚犯。罪使我们有罪感。罪使我们有内疚。
-
-罪使我们被困。现在，有一个关于这的心理学。当一个人犯了一个严重的罪时，会发生什么？他们很害怕。
-
-他们感到内疚。他们感到羞愧。他们试图隐藏它。他们开始相信谎言——他们是坏的，他们永远无法得到原谅，他们应该受到惩罚。
-
-这是一个监狱。这是精神上的监禁。现在，圣经有很多关于这个的教导。圣经说我们所有人都是有罪的。
-
-圣经说我们都被困。圣经说我们都需要被释放。保罗说："我发现了一条规律：尽管我想做好事，邪恶仍在我身上。"保罗说的是什么？
-
-他说他被他自己的罪所困。他想做对的事，但他发现自己做了他不想做的事。这是自欺欺人。这是来自内部的监狱。
-
-这是他们想要的自由，但他们无法实现它。现在，监狱有很多种。有些人因他们过去的错误而被监禁。他们犯了一个错误——也许是多年前——他们仍然无法原谅自己。
-
-他们不能继续。他们被他们的过去所困。有些人因他们的上瘾而被监禁。他们想停止，但他们不能。
-
-他们被他们的欲望所奴役。他们被他们的习惯所困。有些人因他们对他人的伤害感到内疚而被监禁。他们伤害了某人。
-
-他们知道他们做了什么。他们试图赔偿，但它从不完全足够。他们仍然有内疚。有些人因对他们的指控而被监禁，如果他们不完全的话。
-
-他们害怕上帝。他们相信上帝对他们生气。他们相信他们永远无法足够好。现在，所有这些都是监狱。
-
-所有这些都是来自罪的囚禁。但现在听听好消息。圣经说基督来释放囚犯。耶稣说："上帝的灵在我身上，因为他膏了我宣布被囚的获释。
-
-"耶稣说的是什么？耶稣说他来是为了释放被监禁的人。现在，耶稣不是在谈论监狱里的人（尽管他也关心他们）。耶稣说的是精神上被监禁的人。
-
-在罪和内疚和羞愧和恐惧中被监禁的人。耶稣说他来释放他们。现在，这如何工作？耶稣如何释放囚犯？
 
 首先，耶稣为我们的罪而死。耶稣承担了我们罪的惩罚。耶稣支付了我们所欠的债务。现在，这意味着什么？
 

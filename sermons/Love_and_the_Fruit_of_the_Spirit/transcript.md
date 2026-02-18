@@ -2,6 +2,8 @@
 
 ## English Transcript
 
+### Introduction and Scripture Reading
+
 Welcome to Gospel in Life. Many of us try to change through sheer willpower, conquering bad habits or forcing better behavior, only to find ourselves snapping back to old patterns. In today's message, Tim Keller is exploring the fruit of the Spirit, showing how real transformation isn't about moral restraint, but a heart that through Christ is changed from the inside out.
 
 The Scripture reading for today is taken from the Book of 1 Corinthians chapter 13, verses 1 through 13. If I speak in the tongues of men and of angels but have not love, I am only a resounding gong or a clanging symbol. If I have the gift of prophecy and can fathom all mysteries and all knowledge, and if I have a faith that can move mountains but have not love, I am nothing.
@@ -15,6 +17,8 @@ When I was a child, I talked like a child, I thought like a child, I reasoned li
 Now I know in part, then I shall know fully, even as I am fully known. And now these three remain, faith, hope and love. But the greatest of these is love.
 
 This is the word of the Lord. Now when you hear that read, you immediately look for the bridesmaids, the flower girl. And you know even though it is a great passage for a wedding, especially the center of that text when it describes love, you could not have a better guide for how to conduct a marriage than that.
+
+### The Rubber Ball Problem: Why Change Is So Hard
 
 So it is fine to do that, but I want you to know right now Paul did not write this for weddings. He wrote this about change. So almost all of us, almost all of us, have parts of our lives we really want to see changed.
 
@@ -43,6 +47,8 @@ A supernaturally changed heart is, first of all, not the same as a busy life in 
 But then lastly, a supernaturally changed life is to meet love as a power and as a person. So, that's what we're going to learn. Supernaturally changed our heart.
 
 It's not the same as a busy active life. It's not the same as the morally committed life. It's meeting love as a power and a person, first.
+
+### A Changed Heart Is Not a Busy Life of Service
 
 Verse 1 and 2. Paul makes a list of things that really are abilities, their talents, their gifts. If I speak in a tongues of men and of angels, or if I have the gift of prophecy, if I can fathom all mysteries and all knowledge, and if I have a faith that moves mountains, let's go down that list.
 
@@ -112,6 +118,8 @@ People need help. But don't you dare, Paul says, look at that and say, God's wit
 
 So the first thing we see here is a supernaturally changed heart, though it will always lead to a life of service. We got to remember that you must not identify with a life of service because you can have a life of service without having a supernaturally changed heart, that's 0.1, 0.2. Let's move on to chapter 3.
 
+### A Changed Heart Is Not a Morally Committed Life
+
 The second thing we learn here is you mustn't mistake a supernaturally changed heart for a morally committed heart, a life. So it says in verse 3, now he's moving on, and if I give all I possess to the poor and surrender my body to the flames but have not loved, I gain nothing. Now this is very interesting.
 
 These are not talents, are they? He's moved away from the talent and gift list, and now he's moved into what the Greek philosophers would call a virtue list, a list of virtues. And Aristotle has them, they all had them, you know, prudence and self-control and justice and wisdom, and so, and Paul gives us a kind of mini-list and it's quite powerful, a list of virtues.
@@ -141,6 +149,8 @@ The Psalms can profoundly shape the way you approach God, even Jesus relied on t
 We'll send you Tim and Kathy Kellers devotional is our thanks for your gift to help gospel and life share the love of Jesus with more people. Request your copy today at gospelandlife.com slash give that's gospelandlife.com slash give. Now here's Dr.
 
 Kellers with the rest of today's teaching. There's the gossip, there's the backbiting, there's the envy, there's the rudeness, there's the boasting, there's the bragging, there's the critical spirits, there's the impatience, there's the abrasiveness, the self-pitting, the self-absorption, the vanity, the anxiety, the insecurity, it's all there. All underneath all of the morality, yeah, they're moral and underneath all the service, yeah, they're very active and Paul says that's absolutely deadly and he say, well, how can that be?
+
+### Fear and Pride: How We Teach Morality
 
 Well, let's let me give you what I still think is the best way to understand this. Let's think about, let's do a case study, let's think about how we actually teach children to be honest and not to lie. How do we do that?
 
@@ -190,6 +200,8 @@ We squeeze that little rubber ball through fear and pride, but it doesn't really
 
 It doesn't change. It doesn't destroy it. It doesn't want to stay through its heart.
 
+### The Self-Centeredness Beneath Moral Restraint
+
 And that's the reason why you see in the short run, people being moral, but having all of these underlying tell-tale signs, the unkindness, the impatience, the grumpiness, the crabbyness, you know, they're always being hurt. They're always having your feeling hurt. Your ego is always being hurt.
 
 See, that's the tell-tale sign underneath the broad morality, but at some point, even the broad morality breaks through for as many of us, many of us. So many people, the good, I mean, you know, why, for example, why is it that so many high-level public officials do the most ridiculous things fall to scandal and blow their entire careers up? It happens all the time every year, a couple, right?
@@ -211,6 +223,8 @@ Why do you think Jesus Christ said, unless your righteousness exceeds that of th
 There's a kind of morality. It's morally restrained. You've got to go way deeper than that.
 
 So how do we? 0.3. Get to verses 4 to 7 and we see really what a supernaturally changed heart is.
+
+### Meeting Love as Power and Person
 
 You have to meet love as both a power and a person. Now here's what I mean by that. It's actually stronger in the Greek than it comes across in English, but what's so striking about verses 4 to 7 is that Paul does not say, I want you to be patient.
 
@@ -256,6 +270,8 @@ If he's just laying in front of me an example of a perfectly loving person, I do
 
 I don't want it. Let's tear it out. But I don't think Paul is.
 
+### Jesus Christ: The Person Behind the Love
+
 For Paul to personify love, and then to imagine that he's not got a particular person in mind is to not know Paul at all. And here's what I want you to consider. When Paul wrote, love suffers long.
 
 How could he not have been thinking about the one who said, my God, my God, why has thou forsaken me? There's infinite suffering. And when it says out of love, and when it says, love does not keep a record of wrongs, how could he not be thinking about the one who said, father forgive them?
@@ -289,6 +305,8 @@ We know that because Jesus Christ took hell for us, even hell couldn't push him 
 You can look at verses four to seven as an abstract person who perfectly loves you. And that will never change your heart. It'll only crush you under guilt.
 
 It'll just say, I'm going to have to really try hard if I'm going to be like this. Or you could see Jesus Christ being all of that things in the ultimate example of it on the cross loving doing all that for you. Not doing all that just as an example, but doing all that for you in your place as your savior.
+
+### The Gospel Destroys Fear and Pride
 
 And when you see that, what will that do? Do you believe that? Do you embrace that?
 

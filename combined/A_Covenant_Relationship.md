@@ -4,6 +4,8 @@
 
 ---
 
+## 引言与经文宣读 / Introduction and Scripture Reading
+
 Welcome to Gospel and Life. How do we share what it means to truly know Jesus? Not just as a historical figure or moral teacher, but as Savior and King.
 
 This month Tim Keller explores what the Bible shows us about being public with our faith and sharing the hope we have in Christ. Our scripture comes from Deuteronomy 29-23. Moses summoned all the Israelites and said to them, your eyes have seen all that the Lord did in Egypt to Pharaoh to all his officials and all to all in his land.
@@ -16,7 +18,25 @@ To confirm you this day as his people that he may be your God as he promised you
 
 You saw among them their detestable images and idols of wood and stone, of silver and gold. Make sure there is no man or woman clan or tribe among you today whose hearts turn away from the Lord our God to go and worship the gods of those nations. Make sure there is no root among you that produces such bitter poison.
 
-This is the word of the Lord. We've been saying that Deuteronomy is a series of sermons that Moses preached just before he died. And if the last thing practically that Moses said because here we are at almost at the end of the end before he died was you need to be in a covenant relationship with God.
+This is the word of the Lord.
+
+---
+
+欢迎来到《福音与生活》。我们如何才能分享真正认识耶稣的含义？不仅仅是作为一个历史人物或道德教师，而是作为救主和王。本月，提摩太·凯勒为我们探讨圣经所揭示的关于公开分享信仰和传播我们在基督里所拥有的盼望的内容。
+
+我们的经文来自申命记 29：23。摩西召集所有以色列人对他们说，你们亲眼看见了耶和华在埃及向法老和他的众仆人、向他全国所行的一切大事。你们亲眼看过那大的试验和神迹奇事，但到今天，耶和华还没有给你们聪慧的心、能看的眼睛、能听的耳朵。你们要谨守这约的言语，如此才能在一切所做的事上亨通。
+
+你们今日都站在耶和华你们的神面前，你们的族长、首领、长老、官员，以及以色列的众人，连你们的妇女、孩子和你们营中居住的外邦人都在其中。就是砍你们的木头、提你们的水的人也都在其中。你们都站在这里，为要与耶和华你们的神立约。这是耶和华你们的神今日与你们所立的约，并用誓言印证，使你们今日成为他的子民，他也成为你们的神，正如他向你们列祖亚伯拉罕、以撒、雅各所应许的一样。
+
+我所立的这约和誓言，不仅与你们立，也与今日不在我们这里站在耶和华我们神面前的人立。你们知道我们曾怎样住在埃及地，也知道我们如何经过各民族之地。你们看过他们中间的可憎之物，就是用木头、石头、银子、金子制造的偶像。惟愿你们中间男、女、宗族、支派，今日不至有人的心转离耶和华我们的神，去事奉那些民族的神。
+
+惟愿你们中间没有生出苦菜和茵陈的根。这是耶和华的话。
+
+---
+
+## 圣约的独特性 / The Uniqueness of the Covenant
+
+We've been saying that Deuteronomy is a series of sermons that Moses preached just before he died. And if the last thing practically that Moses said because here we are at almost at the end of the end before he died was you need to be in a covenant relationship with God.
 
 If Moses thought it was that important that it would be almost the last thing he says, then it would be who of us to figure out what that is. What's a covenant relationship with God? If we read the passage with that question in mind, we'll learn three things.
 
@@ -36,7 +56,31 @@ See, sealing with an oath to confirm and there you have it. What's a covenant? A
 
 It's a stunning blend. The covenant is a stunning blend of law and love. It's stunning because it's a personal relationship made more loving and intimate because it's legal through voluntary, mutual, binding promises and vows to be loving and to be faithful, no matter what the circumstances.
 
-That's a covenant. Now, modern society doesn't really have a category for this, because modern society makes everything be ordered around the experiencing individual self and the happiness and fulfillment of the individual self. In modern society, your individual happiness and fulfillment and rights is the absolute and everything else is a means to an end.
+That's a covenant.
+
+---
+
+我们一直在说申命记是摩西在临终前所讲的一系列讲道。如果摩西在去世前最后实际说的最后一件事，因为我们快到他去世前的结尾了，就是你需要与神建立圣约关系，那么我们如果想弄清楚那是什么，就应该重视它。
+
+什么是与神的圣约关系？如果我们带着这个问题来读这段经文，我们会学到三件事。圣约的独特性、围绕圣约的奥秘，以及圣约的主人公。独特性、奥秘和圣约的主人公。
+
+首先，独特性。有人常会说，也许已经有人在想，难道你想不出比圣约更不陈旧的词吗？你没有比圣约更现代的词吗？答案是否定的。
+
+没有更现代的词，因为现代社会和文化实际上已经不再有这个概念了。如果你想理解什么是圣约，请看第 12 节开头和第 13 节。你们都站在这里，为要与耶和华你们的神立约。这是耶和华你们的神今日与你们所立的约，用誓言印证使你们今日成为他的子民。
+
+现在请注意两点。一方面，请注意爱和亲密的语言、个人所有格代词的使用。例如，你看，它说，我们是他的子民，不只是一个子民。他是我们的神，不只是神。
+
+每当你听到使用个人所有格代词时，你就知道它讲的是一种亲密关系。所以，如果你偶然听到某个你甚至不认识的人谈论"我的约翰"或"我的苏西"，你会认为那个人是在谈论一个孩子、配偶或某个非常亲近的人，某个非常亲密的人。所以首先，当你看到圣约时，你看到的是爱和亲密的语言。其次，然而，你看到的是法律的语言。
+
+看，用誓言印证、确认，就在那里。什么是圣约？圣约是一种关系，但它是一种比纯粹法律关系更加爱和亲密的关系，但又比纯粹个人关系更具约束力、更持久和更可问责的关系。这是一个惊人的融合。
+
+圣约是法律和爱的惊人融合。它很惊人，因为它是通过自愿、相互的、具有约束力的承诺和誓言来建立的个人关系，无论如何都要爱和忠实。那就是圣约。
+
+---
+
+## 圣约与消费者关系 / Covenant vs. Consumer Relationships
+
+Now, modern society doesn't really have a category for this, because modern society makes everything be ordered around the experiencing individual self and the happiness and fulfillment of the individual self. In modern society, your individual happiness and fulfillment and rights is the absolute and everything else is a means to an end.
 
 All other institutions, all other relationships. So in modern society, relationships more and more start like this. Two people look at each other and they say, I will be what I should be as long as and to the degree that you are what you should be.
 
@@ -64,6 +108,34 @@ You have covenant relationships. And in the middle, you have various kinds of re
 
 Some are not so much. But here's my point. Here's the point.
 
+---
+
+现代社会并没有真正有这个概念的类别，因为现代社会使一切都围绕经历个体自我及个体自我的幸福和实现而有序运作。
+
+在现代社会中，你个人的幸福、实现和权利是绝对的，其他一切都是实现这些的手段。所有其他机构、所有其他关系。所以在现代社会中，关系越来越以这样的方式开始。两个人相互看着说，只要你是你应该是的样子，我就会是我应该是的样子；在你是你应该是的样子的程度内，我就会是我应该是的样子。
+
+如果你不是，我就出去。但在圣约中，两个人相互看着说，无论你是否是你应该是的样子，我都会是我应该是的样子。无论你是否做了你应该做的事，我都会是我应该是的样子。因此，进入圣约是可怕的。
+
+并且仅当圣约中的两个人都这样说时，它才有效。在圣约关系中，两者都必须说，无论你是否是你应该是的样子，我都会是我应该是的样子。现在，如果只有一个人说这样的话，而另一个人没有，那么你得到的就是剥削甚至虐待。但如果你真的进入了一个圣约关系，其中两方都说，你比我更重要。
+
+这段关系比我的需要更重要。我会在满足你的需要之前承诺满足你的需要。即使它目前不能满足我的需要，我也会致力于这段关系。我把我的独立给你。
+
+我作为爱的礼物把我的部分自由给你。如果一方和另一方都说这样的话。如果两个人都说，我不是为了我的需要，我是为了你的需要。我会为你牺牲。
+
+如果两个人都说这样的话，这是一个远比消费者关系（其中每一方都说，只要你满足我的需要，我就会参与其中）更令人满足、更深刻、更能改变生活、更欢乐的关系。现在，我不想给你留下所有关系都应该是圣约关系的印象。你应该有消费者关系。例如，我认识我的杂货店老板。
+
+我的杂货店老板认识我。杂货店老板，我想，我会去杂货店吗？他们认识我。我认识他们，说，嗨，嗨。
+
+但如果我发现一家更近、食物更好、价格更低的杂货店，我就会离开。我就会离开那里，因为这是一种消费者关系，而不是圣约关系。所以我们许多关系应该像这样。在频谱的一端，它们是这样的。
+
+在另一端，你有婚姻。父母与孩子之间的关系。你有圣约关系。在中间，你有各种各样的关系。
+
+一些朋友，最亲近的朋友更具有圣约性。有些则不然。但这是我的观点。这是重点。
+
+---
+
+## 与神关系的唯一方式 / The Only Way to Relate to God
+
 If the most profound, most joyful, most life-changing, most deep and glorious relationships are covenantal relationships, then your relationship with God has got to be through and through a covenantal relationship. That has to be. Now, here's the problem.
 
 Modern people, as I said, they can't have trouble mixing law and love together. And what they say is, oh, I'm spiritual, but I'm not religious. Sociologists for years, and I've been finding modern people like to say, I'm spiritual, but not religious, and what does that mean?
@@ -76,7 +148,25 @@ I don't want to give up my right to determine what is right or wrong for me. In 
 
 Every time he relates to somebody, Adam, Abraham, Isaac, Jacob, David, Moses, it's always covenantal. And so that's point one. The uniqueness, a category-busting thing is a covenantal relationship, a mixture of law and love that creates the most profound, fulfilling, life-changing relationships, and above all, the only way to relate to God.
 
-That's the first point. The second point, however, the second thing we learned here is there's a mystery surrounding this covenantal relationship. Now, what do I mean?
+That's the first point.
+
+---
+
+如果最深刻、最欢乐、最能改变生活的、最深刻和最光荣的关系是圣约关系，那么你与神的关系必须始终是圣约关系。那必须是。现在，这里有个问题。正如我所说，现代人很难将法律和爱混在一起。
+
+他们说的是，哦，我是属灵的，但不是宗教的。社会学家多年来一直发现现代人喜欢说，我是属灵的，但不是宗教的，那是什么意思呢？这就是意思。我相信神。
+
+我想与神有关系，但我不想去一个机构。我不想去教堂或犹太教堂。我不想让人告诉我必须相信什么。我不想放弃我的自由。
+
+我不想放弃我自己确定什么对我是正确或错误的权利。换句话说，每个人都在说的是，我想与神有个人关系，但不是圣约关系。但圣经说，这是不可能的，神只以圣约的方式建立关系。每当他与某人建立关系时，亚当、亚伯拉罕、以撒、雅各、大卫、摩西，这总是圣约性的。
+
+所以这是第一点。独特性，一个突破性的东西是圣约关系，法律和爱的融合，创造了最深刻、最充实、最能改变生活的关系，尤其是与神建立关系的唯一方式。这是第一点。
+
+---
+
+## 圣约的奥秘 / The Mystery of the Covenant
+
+The second point, however, the second thing we learned here is there's a mystery surrounding this covenantal relationship. Now, what do I mean?
 
 All covenants have terms or conditions, because all contracts have terms and conditions. A covenant is more than a contract, but not less. All contracts have terms or conditions, and if you meet the terms or conditions, there are rewards or blessings.
 
@@ -128,192 +218,9 @@ It's our thanks for your gift and provides a way you can do a small act to share
 
 Again, that's Gospel and Life.com-slash-give. Now, here's Dr. Keller with the remainder of today's teaching.
 
-There's a conditional rank addition. Now listen. The problem is that the Bible over and over and over again seems to give contradictory answers.
-
-And this is so pervasive and it's so apparently irreconcilable that almost every one of us tends to come down on one side of the other instead of following the biblical balance. What do I mean by that? Most people either fall into one or the other.
-
-Most people either read the Bible in a liberal way. And that is they say, yes, you need to obey. Yes, you should obey the Ten Commandments.
-
-Yes, you should be good. But in the end God loves everybody and will accept everybody. Or you can come down on a conservative side.
-
-And you can say, well, yes, God is very loving. But in the end, you've got to be good or he won't love you. Everybody comes down on one or the other.
-
-Everybody says law is the reality and love is secondary. In other words, basically the promises and blessings of God are conditional. Or they say, no, love is more real than law.
-
-Love is the important thing. The law is secondary and therefore they believe that the blessings of God are basically unconditional. And so everybody, because they don't understand how to resolve this tension at the heart of the covenant, tends to slide toward relativism or moralism, toward being a sadducee or being a Pharisee, toward basically feeling like, I pretty much can live the way I want to, ultimately, because God's going to love me anyway, or feeling guilt-ridden and condemned because you're never living up.
-
-But the Bible doesn't resolve it all through the Hebrew scriptures, all through the Old Testament. And there's one place where God actually says, in Judges 2, verse 1, I said, I would never break my covenant with you. And then two verses later he says, I also said, I will not bless you if you disobey me.
-
-Michael Wilcock, who is a commentator, writing a comment here on the book of Judges, puts it like this. It's almost as if God is saying, I have sworn to bless you, and I also have sworn not to bless a disobedient people. What is this you have done to me?
-
-And by what fearful means do you think I am to solve this situation? Well, how do you resolve it? How do you resolve it?
-
-The answer is in the second half of verse 13, because in the second half of verse 13 it says that he may be your God as he promised you and as he swore to your father's Abraham, Isaac, and Jacob. Now, where did God take the covenant oath? Where did God take the oath?
-
-And where did he take the oath to Abraham? It's in Genesis 15. And if you understand what happens in Genesis 15, you are at the very heart of what the Bible is all about.
-
-In Genesis 15, God has said to Abraham, I will bless you. But Abraham says, how do I know? How can I be sure?
-
-So God says, well here's what I want you to do. I want you to kill some animals and to cut the animals into pieces and arrange the pieces in two rows with an aisle so you can walk through them. Now you and I are utterly confused by that, but Abraham wasn't.
-
-Because in those days when a great Lord wanted to make a covenant with a peon or a peasant or a lesser vassal or servant, that's how it was done. Animals were slain, the pieces were arranged, and when the servant took the oath of loyalty to the Lord, the servant did so as he was walking between the pieces. Why?
-
-He was acting out the curse of the covenant. He was saying, I swear loyalty to you, O Lord, and if I do not keep my promise, may I be cut into pieces like this. So Abraham figured if he was arranging a situation for a covenant ceremony, and so he cut the pieces up and he expected that he would be called to walk through because the Lord's never walked through the pieces.
-
-So he waited, and he waited. And then all of a sudden Genesis 15 tells us, incredible darkness came down. It was the darkness of judgment, and in the midst of the darkness was God.
-
-He appeared as a smoking fiery pillar just like at Mount Sinai later on. And he passed through the pieces as he promised to bless Abraham. Now Abraham was startled, and almost every commentator who's ever tried to come to grips with Genesis 15 is startled, because what that means is God is not just saying, I will bless you, but he's promising to die if he doesn't bless him.
-
-He's promising to be torn to pieces if he doesn't bless Abraham. Well, that's amazing. Sure, it's amazing, but that's not all.
-
-Abraham had two shocks. The first shock was that God went through the pieces, but the second shock was that Abraham was never called to go through the pieces himself. The ceremony ended, and we're told in chapter 15, verse 18, and therefore God made a covenant with Abraham, but this was unheard of.
-
-Unheard of. It was amazing for the Lord to come and walk through the pieces, but for the servant not even to make the oath? Do you know what that meant?
-
-Abraham knew what it meant, though he didn't see how it could be. It meant God was making the promise for both of them, and he was taking the curse of the covenant on for both of them. And what he was doing was he was saying, not only will I be torn to pieces if I don't keep my promise.
-
-I'll be torn to pieces if you don't. Oh, Abraham, Abraham, God is saying, and to all of us, oh, world, I will bless you no matter what. Even if it means that my immortality must become mortal.
-
-Even if my glory must be drowned in darkness, even if I have to literally be torn to pieces, and he was. Because centuries later, darkness came down on Mount Calvary, thick darkness, and the midst of the darkness, there was God in the person of Jesus Christ, and he was literally being torn to pieces, nails, spears, thorns. Why?
-
-He was taking the covenant curse. And it's Paul, who says, Christ redeemed us from the curse of the law by becoming a curse for us. He redeemed us in order that the blessing given to Abraham might come to us all through Jesus Christ.
-
-You know what that means? This is the answer to all the riddles. Paul says in Romans 4, this is how God can be both just and justifier of those who believe.
-
-I mean, this is the ultimate blend of law and love. How so? Don't you see?
-
-Class? Are the blessings of God conditional or unconditional? Yes.
-
-Yes, why? Because on the cross, Jesus Christ absolutely fulfilled the conditions of the law so that God could love you absolutely unconditionally. With his perfect life, Jesus Christ completely fulfilled the terms of the covenant, verse 9, and he earned the blessing.
-
-But with his sacrificial death, he completely fulfilled the curse of the covenant. And that leaves the blessing for you and me, and anyone who lifts the empty hands of faith and asks for it. Jesus Christ fulfilled the conditions of the covenant so that we could be received unconditionally.
-
-And that is the reason why when my wife and I, 33 years ago, Kathy and I walked out of a class in Old Testament covenant theology, 33 years ago this month. And for the first time that was explained to us, Jesus' perfect life earned the blessing, his sacrificial death, took the curse, that leaves the blessing for you. That's what God Paul is saying in Genesis in Galatians 3.
-
-When we walked out, we looked at each other and we said, I think I finally understand the gospel. We said it to each other. Do you?
-
-And if you do, let me just quickly apply this. If you understand this finally, number one, it will lead you into paradoxical obedience. What do I mean by paradoxical obedience?
-
-Until you grasp the covenant, until you grasp covenant theology, until you grasp the gospel. I said, you have a tendency to either look at the law as something that is you've got obey or God's going to get you. So you either look at the blessings of God as conditional.
-
-So you're always feeling like I'm not living up. You always feel kind of a sense of condemnation. Or you basically believe God just loves everybody unconditionally.
-
-And you feel like the law is a good thing, but you don't take it all that seriously. But when you understand that Jesus Christ fulfilled the conditions at radical, infinite cost to himself, so that we could be loved unconditionally. Now, when I look at the law of God, first of all, the law of God is the conditions of the covenant.
-
-And I say, I've got to take those things seriously, really seriously, because Jesus died to fulfill this. This is important. And so with all my might, I try to obey.
-
-With every fiber of my being, I try to obey the will and will of God in terms of the covenant. But when I fail, and I will fail, and I do fail, I know there's no condemnation for those who are in Christ Jesus. Because my obedience is a way of saying thank you to God.
-
-And it's a way of becoming like God, but it's not a way of earning my way into God. And therefore, if you understand the gospel, there's this fascinating balance in your attitude toward the law. You resist sin like crazy, and you never have a sense of condemnation and despair when you fall into it.
-
-Huh? Isn't that amazing? And no one else has that kind of balance.
-
-So first of all, it leads to paradoxical obedience. Secondly, it leads to absolute trust. It's scary to get married, you know why?
-
-Because two people say, I'm going to give everything for you. How do you know? How do they know?
-
-How do they know about you? How do you know about you? See, when two people come together, you say, I'm going to sacrifice for you.
-
-I'm going to give my life for you. I'm going to do everything for you. And you're not really sure whether the other person will do it.
-
-You're not even sure if you will do it. It's kind of scary to get married. That's another sermon.
-
-But when Jesus Christ calls you into a covenant relationship, you know what He's saying? I want to marry you. I want you to come into a legally binding, intimate love relationship with me.
-
-I want to marry you, but you don't have to be uncertain because I've already taken the plunge of love. I've already gone to the mat. I've already died for you.
-
-Oh, trust him. What more could anyone do than that? Thirdly, covenant theology not only gives you paradoxical obedience and absolute trust, it also leads to church membership.
-
-Oh yeah, you know why? Because once you understand the gospel, accountability is not this horrible thing. In fact, you also understand accountability is good for you.
-
-And therefore, throughout the history of the Bible, you'll see that people who get into a covenant relationship with each other are also in a covenant relationship with God, are also in a covenant relationship with others who have that covenant relationship with God. They are accountable to other believers. They don't just come to church like a consumer, but they covenant and they say, I'm accountable.
-
-I support. I'm responsible here. In other words, they join the churches.
-
-They don't just come. Do you understand the gospel? That's one of the implications.
-
-Paradoxical obedience, absolute trust, church membership, and getting serious, finally, about God. You see, modern spirituality gives you a wispy God who's kind of anything you want Him to be, but covenant theology gives you a crunchy God. A God that's real, a God that bites back.
-
-C. S. Lewis puts it like this.
-
-Quote, an impersonal God, well and good. A subject of God of beauty, truth and goodness inside our own heads. Better still.
-
-A formless life force, surging through everyone, a vast power which we can all tap. Best of all. But a living God, pulling at the other end of the cord, approaching at infinite speed, the hunter, the covenant lord, the husband, that is quite another matter.
-
-There comes a moment when people who have been dabbling in religion suddenly draw back. Supposing you really find Him, we never meant it to come to that. We're still supposing He found you.
-
-If there is a God, you are in a sense alone with Him. You cannot put Him off with speculations about your neighbor's hypocrisy or memories of what you have read in books. What will all that chatter in hearsay count when the anesthetic fog, we call the real world, fades away, and the divine presence in which you have always stood, becomes palpable, immediate and unavoidable.
-
-I invite you into a serious relationship with a covenant God. Let's pray. Our Father, give us a deep understanding of the gospel.
-
-So our lives can really be changed, buy it and through it. We thank You for giving us Your Son. And therefore, we now, in turn, give You ourselves.
-
-We pray this in Jesus' name. Amen. Thanks for listening to Tim Keller on the Gospel and Life podcast.
-
-If you'd like to see more people encouraged by the Gospel Center teaching and resources of this ministry, we invite you to consider becoming a Gospel and Life monthly partner. Your partnership allows us to reach people all over the world with the transformative power of Christ's love and forgiveness. To learn more about how you can become a Gospel and Life monthly partner, just visit gospelandlife.com slash partner.
-
-That website again is gospelandlife.com slash partner. Today's sermon was recorded in 2007. The sermons and talks you hear on the Gospel and Life podcast were recorded between 1989 and 2017, while Dr.
-
-Keller was senior pastor at Redeemer Presbyterian Church.
-
 ---
 
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《福音与生活》。我们如何才能分享真正认识耶稣的含义？不仅仅是作为一个历史人物或道德教师，而是作为救主和王。本月，提摩太·凯勒为我们探讨圣经所揭示的关于公开分享信仰和传播我们在基督里所拥有的盼望的内容。
-
-我们的经文来自申命记 29：23。摩西召集所有以色列人对他们说，你们亲眼看见了耶和华在埃及向法老和他的众仆人、向他全国所行的一切大事。你们亲眼看过那大的试验和神迹奇事，但到今天，耶和华还没有给你们聪慧的心、能看的眼睛、能听的耳朵。你们要谨守这约的言语，如此才能在一切所做的事上亨通。
-
-你们今日都站在耶和华你们的神面前，你们的族长、首领、长老、官员，以及以色列的众人，连你们的妇女、孩子和你们营中居住的外邦人都在其中。就是砍你们的木头、提你们的水的人也都在其中。你们都站在这里，为要与耶和华你们的神立约。这是耶和华你们的神今日与你们所立的约，并用誓言印证，使你们今日成为他的子民，他也成为你们的神，正如他向你们列祖亚伯拉罕、以撒、雅各所应许的一样。
-
-我所立的这约和誓言，不仅与你们立，也与今日不在我们这里站在耶和华我们神面前的人立。你们知道我们曾怎样住在埃及地，也知道我们如何经过各民族之地。你们看过他们中间的可憎之物，就是用木头、石头、银子、金子制造的偶像。惟愿你们中间男、女、宗族、支派，今日不至有人的心转离耶和华我们的神，去事奉那些民族的神。
-
-惟愿你们中间没有生出苦菜和茵陈的根。这是耶和华的话。我们一直在说申命记是摩西在临终前所讲的一系列讲道。如果摩西在去世前最后实际说的最后一件事，因为我们快到他去世前的结尾了，就是你需要与神建立圣约关系，那么我们如果想弄清楚那是什么，就应该重视它。
-
-什么是与神的圣约关系？如果我们带着这个问题来读这段经文，我们会学到三件事。圣约的独特性、围绕圣约的奥秘，以及圣约的主人公。独特性、奥秘和圣约的主人公。
-
-首先，独特性。有人常会说，也许已经有人在想，难道你想不出比圣约更不陈旧的词吗？你没有比圣约更现代的词吗？答案是否定的。
-
-没有更现代的词，因为现代社会和文化实际上已经不再有这个概念了。如果你想理解什么是圣约，请看第 12 节开头和第 13 节。你们都站在这里，为要与耶和华你们的神立约。这是耶和华你们的神今日与你们所立的约，用誓言印证使你们今日成为他的子民。
-
-现在请注意两点。一方面，请注意爱和亲密的语言、个人所有格代词的使用。例如，你看，它说，我们是他的子民，不只是一个子民。他是我们的神，不只是神。
-
-每当你听到使用个人所有格代词时，你就知道它讲的是一种亲密关系。所以，如果你偶然听到某个你甚至不认识的人谈论"我的约翰"或"我的苏西"，你会认为那个人是在谈论一个孩子、配偶或某个非常亲近的人，某个非常亲密的人。所以首先，当你看到圣约时，你看到的是爱和亲密的语言。其次，然而，你看到的是法律的语言。
-
-看，用誓言印证、确认，就在那里。什么是圣约？圣约是一种关系，但它是一种比纯粹法律关系更加爱和亲密的关系，但又比纯粹个人关系更具约束力、更持久和更可问责的关系。这是一个惊人的融合。
-
-圣约是法律和爱的惊人融合。它很惊人，因为它是通过自愿、相互的、具有约束力的承诺和誓言来建立的个人关系，无论如何都要爱和忠实。那就是圣约。现代社会并没有真正有这个概念的类别，因为现代社会使一切都围绕经历个体自我及个体自我的幸福和实现而有序运作。
-
-在现代社会中，你个人的幸福、实现和权利是绝对的，其他一切都是实现这些的手段。所有其他机构、所有其他关系。所以在现代社会中，关系越来越以这样的方式开始。两个人相互看着说，只要你是你应该是的样子，我就会是我应该是的样子；在你是你应该是的样子的程度内，我就会是我应该是的样子。
-
-如果你不是，我就出去。但在圣约中，两个人相互看着说，无论你是否是你应该是的样子，我都会是我应该是的样子。无论你是否做了你应该做的事，我都会是我应该是的样子。因此，进入圣约是可怕的。
-
-并且仅当圣约中的两个人都这样说时，它才有效。在圣约关系中，两者都必须说，无论你是否是你应该是的样子，我都会是我应该是的样子。现在，如果只有一个人说这样的话，而另一个人没有，那么你得到的就是剥削甚至虐待。但如果你真的进入了一个圣约关系，其中两方都说，你比我更重要。
-
-这段关系比我的需要更重要。我会在满足你的需要之前承诺满足你的需要。即使它目前不能满足我的需要，我也会致力于这段关系。我把我的独立给你。
-
-我作为爱的礼物把我的部分自由给你。如果一方和另一方都说这样的话。如果两个人都说，我不是为了我的需要，我是为了你的需要。我会为你牺牲。
-
-如果两个人都说这样的话，这是一个远比消费者关系（其中每一方都说，只要你满足我的需要，我就会参与其中）更令人满足、更深刻、更能改变生活、更欢乐的关系。现在，我不想给你留下所有关系都应该是圣约关系的印象。你应该有消费者关系。例如，我认识我的杂货店老板。
-
-我的杂货店老板认识我。杂货店老板，我想，我会去杂货店吗？他们认识我。我认识他们，说，嗨，嗨。
-
-但如果我发现一家更近、食物更好、价格更低的杂货店，我就会离开。我就会离开那里，因为这是一种消费者关系，而不是圣约关系。所以我们许多关系应该像这样。在频谱的一端，它们是这样的。
-
-在另一端，你有婚姻。父母与孩子之间的关系。你有圣约关系。在中间，你有各种各样的关系。
-
-一些朋友，最亲近的朋友更具有圣约性。有些则不然。但这是我的观点。这是重点。
-
-如果最深刻、最欢乐、最能改变生活的、最深刻和最光荣的关系是圣约关系，那么你与神的关系必须始终是圣约关系。那必须是。现在，这里有个问题。正如我所说，现代人很难将法律和爱混在一起。
-
-他们说的是，哦，我是属灵的，但不是宗教的。社会学家多年来一直发现现代人喜欢说，我是属灵的，但不是宗教的，那是什么意思呢？这就是意思。我相信神。
-
-我想与神有关系，但我不想去一个机构。我不想去教堂或犹太教堂。我不想让人告诉我必须相信什么。我不想放弃我的自由。
-
-我不想放弃我自己确定什么对我是正确或错误的权利。换句话说，每个人都在说的是，我想与神有个人关系，但不是圣约关系。但圣经说，这是不可能的，神只以圣约的方式建立关系。每当他与某人建立关系时，亚当、亚伯拉罕、以撒、雅各、大卫、摩西，这总是圣约性的。
-
-所以这是第一点。独特性，一个突破性的东西是圣约关系，法律和爱的融合，创造了最深刻、最充实、最能改变生活的关系，尤其是与神建立关系的唯一方式。这是第一点。然而，第二点，第二件我们在这里学到的事情是围绕这个圣约关系有一个奥秘。
+然而，第二点，第二件我们在这里学到的事情是围绕这个圣约关系有一个奥秘。
 
 现在，我的意思是什么？所有圣约都有条款或条件，因为所有合同都有条款和条件。圣约不只是一份合同，而且不少于一份合同。所有合同都有条款或条件，如果你满足条款或条件，就会有奖励或祝福。
 
@@ -353,6 +260,32 @@ Keller was senior pastor at Redeemer Presbyterian Church.
 
 这是一个强大的资源，探讨基督教如何在今天的世界中在情感、文化和理性上都有意义。这是我们对你的礼物的感谢，并提供了一种方式，你可以采取一个小行动，通过与朋友一起读这本书、把一本赠送给同事或把两本都传给正在探索基督教信仰的人来分享福音。这是开始或继续福音对话的一个简单方式。要请求你的两份《理解神的意义》，只需前往 gospelandlife.com-slash-give.再次，那是 gospelandlife.com-slash-give.现在，这是凯勒博士对今天教学内容的继续。
 
+---
+
+## 祝福是有条件还是无条件的？ / Are God's Blessings Conditional or Unconditional?
+
+There's a conditional rank addition. Now listen. The problem is that the Bible over and over and over again seems to give contradictory answers.
+
+And this is so pervasive and it's so apparently irreconcilable that almost every one of us tends to come down on one side of the other instead of following the biblical balance. What do I mean by that? Most people either fall into one or the other.
+
+Most people either read the Bible in a liberal way. And that is they say, yes, you need to obey. Yes, you should obey the Ten Commandments.
+
+Yes, you should be good. But in the end God loves everybody and will accept everybody. Or you can come down on a conservative side.
+
+And you can say, well, yes, God is very loving. But in the end, you've got to be good or he won't love you. Everybody comes down on one or the other.
+
+Everybody says law is the reality and love is secondary. In other words, basically the promises and blessings of God are conditional. Or they say, no, love is more real than law.
+
+Love is the important thing. The law is secondary and therefore they believe that the blessings of God are basically unconditional. And so everybody, because they don't understand how to resolve this tension at the heart of the covenant, tends to slide toward relativism or moralism, toward being a sadducee or being a Pharisee, toward basically feeling like, I pretty much can live the way I want to, ultimately, because God's going to love me anyway, or feeling guilt-ridden and condemned because you're never living up.
+
+But the Bible doesn't resolve it all through the Hebrew scriptures, all through the Old Testament. And there's one place where God actually says, in Judges 2, verse 1, I said, I would never break my covenant with you. And then two verses later he says, I also said, I will not bless you if you disobey me.
+
+Michael Wilcock, who is a commentator, writing a comment here on the book of Judges, puts it like this. It's almost as if God is saying, I have sworn to bless you, and I also have sworn not to bless a disobedient people. What is this you have done to me?
+
+And by what fearful means do you think I am to solve this situation? Well, how do you resolve it? How do you resolve it?
+
+---
+
 有一个有条件排名的补充。现在听我说。问题是圣经一次又一次又一次似乎给出矛盾的答案。这太普遍了，它看起来是如此无法调和，以至于我们几乎每一个人都倾向于走向一方或另一方，而不是遵循圣经的平衡。
 
 我的意思是什么？大多数人要么掉进一个要么掉进另一个。大多数人要么以自由主义的方式读圣经。也就是说，他们说，是的，你需要顺从。
@@ -367,7 +300,45 @@ Keller was senior pastor at Redeemer Presbyterian Church.
 
 迈克尔·威尔考克是一位评论者，在这里为士师记这本书写评论，他是这样说的。这几乎就像神在说，我已经发誓要祝福你们，我也已经发誓不会祝福一个违背我的子民。你对我做了什么？你认为我可以通过什么可怕的方式来解决这个局面？
 
-好吧，你如何解决？你如何解决？答案在第 13 节的后半部分，因为在第 13 节的后半部分，它说使你们今日成为他的子民，他也成为你们的神，正如他向你们列祖亚伯拉罕、以撒、雅各所应许的一样。现在，神在哪里发了圣约的誓？
+好吧，你如何解决？你如何解决？
+
+---
+
+## 圣约的主角：创世记十五章 / The Hero of the Covenant: Genesis 15
+
+The answer is in the second half of verse 13, because in the second half of verse 13 it says that he may be your God as he promised you and as he swore to your father's Abraham, Isaac, and Jacob. Now, where did God take the covenant oath? Where did God take the oath?
+
+And where did he take the oath to Abraham? It's in Genesis 15. And if you understand what happens in Genesis 15, you are at the very heart of what the Bible is all about.
+
+In Genesis 15, God has said to Abraham, I will bless you. But Abraham says, how do I know? How can I be sure?
+
+So God says, well here's what I want you to do. I want you to kill some animals and to cut the animals into pieces and arrange the pieces in two rows with an aisle so you can walk through them. Now you and I are utterly confused by that, but Abraham wasn't.
+
+Because in those days when a great Lord wanted to make a covenant with a peon or a peasant or a lesser vassal or servant, that's how it was done. Animals were slain, the pieces were arranged, and when the servant took the oath of loyalty to the Lord, the servant did so as he was walking between the pieces. Why?
+
+He was acting out the curse of the covenant. He was saying, I swear loyalty to you, O Lord, and if I do not keep my promise, may I be cut into pieces like this. So Abraham figured if he was arranging a situation for a covenant ceremony, and so he cut the pieces up and he expected that he would be called to walk through because the Lord's never walked through the pieces.
+
+So he waited, and he waited. And then all of a sudden Genesis 15 tells us, incredible darkness came down. It was the darkness of judgment, and in the midst of the darkness was God.
+
+He appeared as a smoking fiery pillar just like at Mount Sinai later on. And he passed through the pieces as he promised to bless Abraham. Now Abraham was startled, and almost every commentator who's ever tried to come to grips with Genesis 15 is startled, because what that means is God is not just saying, I will bless you, but he's promising to die if he doesn't bless him.
+
+He's promising to be torn to pieces if he doesn't bless Abraham. Well, that's amazing. Sure, it's amazing, but that's not all.
+
+Abraham had two shocks. The first shock was that God went through the pieces, but the second shock was that Abraham was never called to go through the pieces himself. The ceremony ended, and we're told in chapter 15, verse 18, and therefore God made a covenant with Abraham, but this was unheard of.
+
+Unheard of. It was amazing for the Lord to come and walk through the pieces, but for the servant not even to make the oath? Do you know what that meant?
+
+Abraham knew what it meant, though he didn't see how it could be. It meant God was making the promise for both of them, and he was taking the curse of the covenant on for both of them. And what he was doing was he was saying, not only will I be torn to pieces if I don't keep my promise.
+
+I'll be torn to pieces if you don't. Oh, Abraham, Abraham, God is saying, and to all of us, oh, world, I will bless you no matter what. Even if it means that my immortality must become mortal.
+
+Even if my glory must be drowned in darkness, even if I have to literally be torn to pieces, and he was. Because centuries later, darkness came down on Mount Calvary, thick darkness, and the midst of the darkness, there was God in the person of Jesus Christ, and he was literally being torn to pieces, nails, spears, thorns. Why?
+
+He was taking the covenant curse.
+
+---
+
+答案在第 13 节的后半部分，因为在第 13 节的后半部分，它说使你们今日成为他的子民，他也成为你们的神，正如他向你们列祖亚伯拉罕、以撒、雅各所应许的一样。现在，神在哪里发了圣约的誓？
 
 神在哪里发誓？他在哪里向亚伯拉罕发誓？那是在创世记 15。如果你理解创世记 15 中发生的事情，你就处在圣经的最核心。
 
@@ -389,6 +360,28 @@ Keller was senior pastor at Redeemer Presbyterian Church.
 
 即使**这意味着我的不死亡必须变成凡人。**即使我的荣耀必须被黑暗淹没，即使我必须字面被撕成碎片，而他被撕成了碎片。为什么？他在承担圣约的诅咒。
 
+---
+
+## 基督在十字架上成全圣约 / Christ Fulfills the Covenant on the Cross
+
+And it's Paul, who says, Christ redeemed us from the curse of the law by becoming a curse for us. He redeemed us in order that the blessing given to Abraham might come to us all through Jesus Christ.
+
+You know what that means? This is the answer to all the riddles. Paul says in Romans 4, this is how God can be both just and justifier of those who believe.
+
+I mean, this is the ultimate blend of law and love. How so? Don't you see?
+
+Class? Are the blessings of God conditional or unconditional? Yes.
+
+Yes, why? Because on the cross, Jesus Christ absolutely fulfilled the conditions of the law so that God could love you absolutely unconditionally. With his perfect life, Jesus Christ completely fulfilled the terms of the covenant, verse 9, and he earned the blessing.
+
+But with his sacrificial death, he completely fulfilled the curse of the covenant. And that leaves the blessing for you and me, and anyone who lifts the empty hands of faith and asks for it. Jesus Christ fulfilled the conditions of the covenant so that we could be received unconditionally.
+
+And that is the reason why when my wife and I, 33 years ago, Kathy and I walked out of a class in Old Testament covenant theology, 33 years ago this month. And for the first time that was explained to us, Jesus' perfect life earned the blessing, his sacrificial death, took the curse, that leaves the blessing for you. That's what God Paul is saying in Genesis in Galatians 3.
+
+When we walked out, we looked at each other and we said, I think I finally understand the gospel. We said it to each other. Do you?
+
+---
+
 正是保罗说的，基督用他成为诅咒的方式从律法的诅咒中救赎了我们。他救赎我们，为了使给予亚伯拉罕的祝福可能通过耶稣基督降临在我们所有人身上。你知道那意味着什么吗？这是对所有谜语的答案。
 
 保罗在罗马书 4 中说，这是神怎样既可以是公义的，又可以是信靠他的人的称义者。我的意思是，这是法律和爱的最终融合。怎样？难道你看不出来吗？
@@ -400,6 +393,44 @@ Keller was senior pastor at Redeemer Presbyterian Church.
 耶稣基督满足了圣约的条件，所以我们可以无条件地被接受。这就是为什么 33 年前我妻子和我，凯西和我走出了一个旧约圣约神学的课，33 年前这个月。对我们来说，这是第一次被解释，耶稣的完美生命赚得了祝福，他救赎性的死扛上了诅咒，那为你留下了祝福。那是神保罗在创世记加拉太书 3 中所说的。
 
 当我们走出来时，我们相互看着，我们说，我想我终于理解了福音。我们互相这样说。你呢？如果你理解了，那么让我快速应用这个。
+
+---
+
+## 应用：悖论式顺服与绝对信靠 / Application: Paradoxical Obedience and Absolute Trust
+
+And if you do, let me just quickly apply this. If you understand this finally, number one, it will lead you into paradoxical obedience. What do I mean by paradoxical obedience?
+
+Until you grasp the covenant, until you grasp covenant theology, until you grasp the gospel. I said, you have a tendency to either look at the law as something that is you've got obey or God's going to get you. So you either look at the blessings of God as conditional.
+
+So you're always feeling like I'm not living up. You always feel kind of a sense of condemnation. Or you basically believe God just loves everybody unconditionally.
+
+And you feel like the law is a good thing, but you don't take it all that seriously. But when you understand that Jesus Christ fulfilled the conditions at radical, infinite cost to himself, so that we could be loved unconditionally. Now, when I look at the law of God, first of all, the law of God is the conditions of the covenant.
+
+And I say, I've got to take those things seriously, really seriously, because Jesus died to fulfill this. This is important. And so with all my might, I try to obey.
+
+With every fiber of my being, I try to obey the will and will of God in terms of the covenant. But when I fail, and I will fail, and I do fail, I know there's no condemnation for those who are in Christ Jesus. Because my obedience is a way of saying thank you to God.
+
+And it's a way of becoming like God, but it's not a way of earning my way into God. And therefore, if you understand the gospel, there's this fascinating balance in your attitude toward the law. You resist sin like crazy, and you never have a sense of condemnation and despair when you fall into it.
+
+Huh? Isn't that amazing? And no one else has that kind of balance.
+
+So first of all, it leads to paradoxical obedience. Secondly, it leads to absolute trust. It's scary to get married, you know why?
+
+Because two people say, I'm going to give everything for you. How do you know? How do they know?
+
+How do they know about you? How do you know about you? See, when two people come together, you say, I'm going to sacrifice for you.
+
+I'm going to give my life for you. I'm going to do everything for you. And you're not really sure whether the other person will do it.
+
+You're not even sure if you will do it. It's kind of scary to get married. That's another sermon.
+
+But when Jesus Christ calls you into a covenant relationship, you know what He's saying? I want to marry you. I want you to come into a legally binding, intimate love relationship with me.
+
+I want to marry you, but you don't have to be uncertain because I've already taken the plunge of love. I've already gone to the mat. I've already died for you.
+
+Oh, trust him. What more could anyone do than that?
+
+---
 
 如果你最后理解了这个，第一，它会将你带入悖论式的顺从。我说悖论式顺从是什么意思？直到你掌握了圣约，直到你掌握了圣约神学，直到你掌握了福音。我说，你有倾向要么把律法看作你必须顺从或神会抓住你的东西。
 
@@ -423,7 +454,49 @@ Keller was senior pastor at Redeemer Presbyterian Church.
 
 我想与你进入一个具有法律约束力的、亲密的爱情关系。我想与你结婚，但你不必不确定，因为我已经跳进了爱的深渊。我已经去到了底线。我已经为你死了。
 
-哦，相信他。还有谁能做比那更多的呢？第三，圣约神学不仅给予你悖论式的顺从和绝对信任，它也导致教会成员。哦，是的，你知道为什么吗？
+哦，相信他。还有谁能做比那更多的呢？
+
+---
+
+## 教会委身与面对永生神 / Church Membership and Encountering the Living God
+
+Thirdly, covenant theology not only gives you paradoxical obedience and absolute trust, it also leads to church membership.
+
+Oh yeah, you know why? Because once you understand the gospel, accountability is not this horrible thing. In fact, you also understand accountability is good for you.
+
+And therefore, throughout the history of the Bible, you'll see that people who get into a covenant relationship with each other are also in a covenant relationship with God, are also in a covenant relationship with others who have that covenant relationship with God. They are accountable to other believers. They don't just come to church like a consumer, but they covenant and they say, I'm accountable.
+
+I support. I'm responsible here. In other words, they join the churches.
+
+They don't just come. Do you understand the gospel? That's one of the implications.
+
+Paradoxical obedience, absolute trust, church membership, and getting serious, finally, about God. You see, modern spirituality gives you a wispy God who's kind of anything you want Him to be, but covenant theology gives you a crunchy God. A God that's real, a God that bites back.
+
+C. S. Lewis puts it like this.
+
+Quote, an impersonal God, well and good. A subject of God of beauty, truth and goodness inside our own heads. Better still.
+
+A formless life force, surging through everyone, a vast power which we can all tap. Best of all. But a living God, pulling at the other end of the cord, approaching at infinite speed, the hunter, the covenant lord, the husband, that is quite another matter.
+
+There comes a moment when people who have been dabbling in religion suddenly draw back. Supposing you really find Him, we never meant it to come to that. We're still supposing He found you.
+
+If there is a God, you are in a sense alone with Him. You cannot put Him off with speculations about your neighbor's hypocrisy or memories of what you have read in books. What will all that chatter in hearsay count when the anesthetic fog, we call the real world, fades away, and the divine presence in which you have always stood, becomes palpable, immediate and unavoidable.
+
+I invite you into a serious relationship with a covenant God. Let's pray. Our Father, give us a deep understanding of the gospel.
+
+So our lives can really be changed, buy it and through it. We thank You for giving us Your Son. And therefore, we now, in turn, give You ourselves.
+
+We pray this in Jesus' name. Amen. Thanks for listening to Tim Keller on the Gospel and Life podcast.
+
+If you'd like to see more people encouraged by the Gospel Center teaching and resources of this ministry, we invite you to consider becoming a Gospel and Life monthly partner. Your partnership allows us to reach people all over the world with the transformative power of Christ's love and forgiveness. To learn more about how you can become a Gospel and Life monthly partner, just visit gospelandlife.com slash partner.
+
+That website again is gospelandlife.com slash partner. Today's sermon was recorded in 2007. The sermons and talks you hear on the Gospel and Life podcast were recorded between 1989 and 2017, while Dr.
+
+Keller was senior pastor at Redeemer Presbyterian Church.
+
+---
+
+第三，圣约神学不仅给予你悖论式的顺从和绝对信任，它也导致教会成员。哦，是的，你知道为什么吗？
 
 因为一旦你理解了福音，问责制就不是这个可怕的东西。实际上，你也理解问责制对你有好处。因此，在整个圣经历史中，你会看到进入彼此圣约关系的人，也与神处于圣约关系中，也与拥有与神的圣约关系的其他人处于圣约关系中。他们对其他信徒负责。
 

@@ -40,7 +40,11 @@ I will praise God's name in song and glorify him with thanksgiving. This will pl
 
 The Lord hears the needy and does not despise his captive people. Let heaven and earth praise him, the seas and all that move in them, for God will save Zion and rebuild the cities of Judah. Then people will settle there and possess it.
 
-The children of his servants will inherit it and those who love his name will dwell there. This is God's Word. Now, as we approach Christmas, if you come to a church, you are going to hear people asking the question, why did Jesus come and reflect on it?
+The children of his servants will inherit it and those who love his name will dwell there. This is God's Word.
+
+### The Prayer Diary of the Son of God
+
+Now, as we approach Christmas, if you come to a church, you are going to hear people asking the question, why did Jesus come and reflect on it?
 
 Why did Jesus come? Now, we have been looking at the Psalms of the Old Testament all fall. My question, of course, to you would be, why would we look one more time at the Psalms to find out anything about Jesus?
 
@@ -55,6 +59,8 @@ If you've ever had a friend who's going through tremendous suffering, imagine yo
 Well, that's what you've got here. You've got the prayer diary of the Son of God and an expression in the first person of his anguish and his sufferings for us. Now, what we learned from it is much, but we only have time today, as we prepare to go to the Lord's table, to look at three things that we learned from the Psalm, from his prayer diary, about what he came to do.
 
 He came, first of all, to be a servant, second of all, to be hated and thirdly to be exchanged, to be a servant, to be hated to be exchanged. The first point is the longest, the second point is the shortest, the third point is the most important. First of all, he came to be a servant.
+
+### He Came to Sink
 
 You know, you notice in verse 17, he says, why have you hidden your face from your servant? And in the very beginning of the paragraph, or the very beginning of the Psalm, he says, I sink. Save me, O Lord, for the waters have come up to my neck.
 
@@ -71,6 +77,8 @@ And what justifies that language is this, this very thing. Philippians 2, Psalm 
 Jesus actually took two huge steps down. That's what it means to be a servant, to go down. He goes, we're told, from heaven to earth.
 
 It says, though he was equal with God, he didn't hold on to that equality, but was found in the form of a servant, he became a human being. And you know, when you think of the incarnation, God becoming incarnate, in the flesh, God becoming human being, you've got to get out of your mind. The Christmas cards with little sweet baby Jesus asleep on the hay, it looks like an ivory soap commercial.
+
+### The Violence of the Incarnation
 
 I know you have to understand and you do understand it when you read Psalm 69. You have to understand the violence of the incarnation. The incarnation was an act of violence against Jesus.
 
@@ -96,11 +104,15 @@ He can't change himself. The violence of the incarnation, he sank. He came to si
 
 And he didn't just—Philippines II doesn't just tell us there's one step down. He took two steps. He didn't just come from heaven to earth.
 
+### From Cradle to Cross
+
 But once he got here, he went from the cradle to the cross. His role, his job here on earth, was not to become the head of a great political party and sweep into power. His job was to be tortured and to be killed.
 
 The one who knit us together in our mother's womb was deconstructed on the cross and he was torn limb from limb. He sunk. You know, Jesus Christ is the most blatant and the most blunt and the greatest contradiction to the world's understanding of greatness that there is.
 
 The world's understanding is promote yourself, advance your cause at the expense of other people. A crew, the wealth and power. Look out for number one.
+
+### The Way Up Is Down
 
 And Jesus, ascended by descending the way up, he taught us is the way down. The way to power, he taught us is to serve. The way to rule is to submit.
 
@@ -117,6 +129,8 @@ You will not go up unless you go down. Well, let me put it as stark as possible.
 I know who would like to say, yes, I make mistakes, I'm not perfect, but can you say to other people and to God that I am a helpless sinner, that I should be cast off, that I'm acting, even though I've been created by God, I act as if on my own creator, and even though God is my king, I act as if on my own king, I deserve to be cut off. I am a helpless sinner, I need a savior and a new master. Can you say that?
 
 Now, this is New York City, I know there's people out there who think that that is a most primitive thing, the most primitive kind of religion. How regressive you say, of course it's regressive, it's a step down. And if you feel that that's too primitive, and if you couldn't say that, then you're not a servant yet, and your intellectual pride is keeping you from going down and therefore from coming up.
+
+### Going Down in Living Standards
 
 I'm going to give you another example, to be a Christian, you go down to repentance constantly. To be a Christian also, you go down in your living standards, let me get real practical about this. The Bible says, look at Jesus, though he was rich, he became poor, that through his poverty might become rich.
 
@@ -138,7 +152,11 @@ I work my fingers to the bone around this church and what thanks do I get. If th
 
 Lose your recognition and I'll give you another kind of honor. Lose your obsession with staying in control and I'll give you another kind of security. Lose your life and you'll find it.
 
-He came to sink and Christians are people who know that the way down is up and the way to go up is to go down. Secondly, he came to be hated. Now, remember, as I mentioned to you, he quotes in the New Testament, he quotes this verse.
+He came to sink and Christians are people who know that the way down is up and the way to go up is to go down.
+
+### He Came to Be Hated Without Cause
+
+Secondly, he came to be hated. Now, remember, as I mentioned to you, he quotes in the New Testament, he quotes this verse.
 
 He doesn't quote the first couple of verses though. It's obvious that he's looking at all of this and he's thinking of himself. This is his language, this is his heart, but he quotes verse 4 where it says, those who hate me without reason out in number the hairs of my head, many of the enemies without cause.
 
@@ -160,7 +178,11 @@ If those people start coming in, it's going to sink down, you're going to ruin m
 
 What do I do? All I can tell you is not what these people did, but I can tell you is this, normal servanthood, normal, moral lives will bring you hatred without cause. Normal human living, normal moral behavior, normal Christian living is going to show up the racism in the neighborhood, it's going to show up the dishonesty at work, it's going to show up the gossip at the office, it's going to show up the promiscuity of the party and you will be hated with that cause, are you or you just blend into your surroundings?
 
-Does anybody hate you without cause? Then you're not following Jesus because servants sink and servants are hated with that cause. Number three, and the most important, Jesus Christ did not simply come to be a servant and come to be hated in a sense, that's the general gist of what it means to say he came as a servant, but he came very specifically to be exchanged.
+Does anybody hate you without cause? Then you're not following Jesus because servants sink and servants are hated with that cause.
+
+### He Came to Be Exchanged
+
+Number three, and the most important, Jesus Christ did not simply come to be a servant and come to be hated in a sense, that's the general gist of what it means to say he came as a servant, but he came very specifically to be exchanged.
 
 They put it to this way, in verse nine, now David, the guy who writes this song is very perplexed. He can't see what we can see, he can't read his own experience through Jesus. In verse nine, he says, Zeal for your house consumes me and the insults of those who insult you fall on me.
 

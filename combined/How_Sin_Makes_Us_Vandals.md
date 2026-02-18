@@ -4,21 +4,7 @@
 
 ---
 
-## 为什么这会被认为是人类脱离上帝后的研究案例？为什么不更糟糕一些？为什么不更残忍一些？### 为什么不更像书的最后一部分呢？
-
-Welcome to Gospel in Life. Some people say the fundamental problem of the world is poverty. Others say it's bad systems, poor education, or biology, but what if none of these can fully explain the brokenness we see, both in the headlines and in our own hearts?
-
-In today's teaching, Tim Keller looks at how the Bible's teaching on sin gives us a deeply honest and yet incredibly hopeful view of the world. Turn to a part of your bulletin where you have the passage on which the Scripture is based, and we're starting this week a new series, and it's on sin and there's nothing more fundamentally relevant and practical than to understand the answer to the fundamental human question, what's wrong with us? If you're trying to raise a family or run a corporation or if you have political or community involvement and if anything you do in this life, you need to have a working theory of an answer to that question, what's wrong with us?
-
-Why the selfishness, the cruelty, the corruption, the crime, the racism, the injustice? Why? Where does it come from?
-
-Now the Bible's answer is ancient and it's profound and that is sin in the human heart. One of the reasons why it's so widely rejected, I believe, is actually because what's not understood is that the biblical understanding and doctrine of sin is multidimensional. All of us understand or remember, I think they understand what the Bible says about sin.
-
-We say yes, we know what the Bible says about sin. Sin is breaking God's law and therefore we're guilty and condemned, yes, I know what the Bible says, but that's only one. In fact, that's the last of the aspects of sin that we're going to look at in this series.
-
-I think one of the reasons why sin as an answer to the reason to the problems of our life is tends to be widely overlooked by people is because we don't understand the multidimensionality than how nuanced, how rich, see, how multi-perspectival the biblical teaching on sin is. We're going to look at the first of those dimensions today and we're going to read a passage of scripture that I can almost proudly say, it's very possible and very likely that even if you've gone to church all of your life, you've never heard anybody so stupid as to try to preach a sermon on this text. This text is almost never preached on, I've never preached on, it's almost never studied.
-
-It's the end of the book of Judges and one of the reasons why nobody knows what to do with it, why it's there and so but nobody ever tries to speak about it is because it is so inexplicably boring. Judges 17 versus 1 to 13, it's just the beginning of a story and I'll tell you how it ends. You don't need to know.
+## 米迦、妈妈和利未人 / Micah, Mom, and the Levite
 
 Now a man named Micah from the hill country of Ephraim said to his mother, you know the 1100 chequels of silver that were taken from you and about which I heard you order a curse? I have that silver with me. I took it.
 
@@ -70,7 +56,63 @@ And this right away actually shows us some things that are very, very surprising
 
 Look, real briefly, because we're going to the Lord's table today, and we're going to have a series. Look, real briefly, let me show you. This tells us what sin does to us, what sin does to God, and how we can be cured of it.
 
-What sin does to us, what sin does to God, and how we can be cured of it. And every one of them is surprising. The first one, what sin does to us.
+What sin does to us, what sin does to God, and how we can be cured of it.
+
+---
+
+从前有一个名叫米迦的人住在以法莲山地，他对母亲说：“你知道那些一千一百舍客勒银子吗？就是有人从你那里偷走，并且你还咒诅了那个人？
+
+”“我有那银子。”他母亲回答，“主必赐福与我的儿子。” 然后她把银子还给了米迦。米迦的母亲说：“我要将这银子归给耶和华，为我儿子铸造一个雕刻的偶像和铸成的偶像。
+
+我把它还给你，耶和华见证吧。”于是米迦把银子还给他母亲，她拿了一千舍客勒银子交给匠人，他用这些银子做了雕像和神像，放在米迦的家中。米迦有一个圣所，并且制作了一些偶像，立他的一个儿子为祭司。那时以色列没有王，各人都按着自己的心意而行。
+
+有一个年轻的利未人从伯利恒犹大支派中出来，在犹大家族中住了一段时间后，他离开那城寻找其他地方居住。当他经过以法莲山地米迦的家时，米迦问他：“你从哪里来？” 哦，我是伯利恒和犹大的利未人，他问我说。他说：“我要找一个住的地方。
+
+”米迦对他说：“你同我住在一块儿吧！作我的父与祭司，我就每年给你十舍客勒银子、衣服和食物。”于是那利未人就同意同米迦住在一块儿了；那青年人在他家里就像自己的儿子一样。米迦便安置了那个利未人为他的祭司，在他家里住了下来。
+
+米迦说：“现在我知道耶和华待我好，因为这利未人成了我的祭司。”现在让我告诉你们这里发生了什么事。人们常常忽略这一段或觉得它很困惑的原因是这样的：到目前为止，《士师记》中的所有内容都非常有趣。《士师记》记载的是以色列人在摩西和约书亚带领下从埃及进入迦南地之后的历史，前16章中有一系列引人入胜的故事，因为人们一次又一次地陷入罪恶之中，而当他们犯罪时，很快就会被外邦人奴役。
+
+然后上帝会一次次地差派士师来拯救他们。你不要以为士师就是法官或坐在法庭上的那个人。士师实际上是一个救赎者，一个拯救者，他会带领人们远离罪恶回到上帝面前，并从军事压迫中解救他们。这总是非常迷人。
+
+我非常戏剧化地描述了一些最著名的人物：我们有基甸在这里，我们有得示在这里，我们也有士师记中的参孙，看到这些拯救总是令人激动和兴奋。但是当你读到第17章到第21章时，你会发现最后五章的内容非常难以理解，因为它们似乎什么都没有。这里没有士师，也没有任何拯救发生，上帝几乎不出现。最引人注目的是，这里有两件事情。
+
+在第17章和第18章中，我们读到了一半；而在第19章到第21章，另一半内容也在等待着你们。我们已经读过了前一部分，那么在这里我们看到了什么呢？首先，如果要给这个故事起个标题，那标题肯定不会太吸引人，因为这并不是一个有趣的故事，而是一些琐碎的人做了一些愚蠢、奇怪的事情。我可以用“米迦、妈妈和利未人”来命名它。
+
+在这一系列人物中，我们先看到的是米迦欺骗了他的母亲。当他的母亲得知这件事后，他咒骂了那个强盗（无论他是谁），说：“我知道是我干的，我抢了我的母亲，当时我还挺害怕。” 他既不算是个好人也不算是个坏人——你很难想象一个会抢自己母亲的人能有多好，但又不得不承认，为了把钱还给母亲，他确实有点胆小。接着他说：“妈妈，你咒骂了我，我是不是应该有点儿害怕呢？
+
+”于是我们看到米迦欺骗了他的母亲，然后他的母亲又欺骗了上帝——当她激动地说到儿子回来了，并且说要把所有的钱都献给耶和华时，她说：“我太高兴了，我的儿子回来了，他把所有的东西都还给了我。” 他说：“我郑重起誓，我把银子全还给了母亲。”但当她真正行动起来时，她只用了200舍客勒，并用这些银子做了两个偶像，放在她儿子的“神殿”里，供他崇拜耶和华。这完全违背了上帝在摩西五经中所说的任何地方都不能做偶像、不能立偶像的规定。
+
+接着我们看到米迦欺骗了他的母亲，然后他的母亲又欺骗了上帝，之后利未人出现了。那么，作者想要表达什么观点呢？显然，米迦和他的母亲决定要建立自己的神殿。要知道，在那个时代，有一个圣所，一个地方是上帝说的：“在那里敬拜我。
+
+” 那个地方就是示罗。在那会幕中，有一个祭司的胸牌，是神与人沟通的媒介。祭司需要佩戴它，并且上面有宝石，透过这些宝石，神向人们说话。祭司必须来自利未支派，他们属于利未人。
+
+那里还有一个圣所，人们可以去祈祷和敬拜。但是米迦和他的母亲想要有自己的圣所，有自己的崇拜场所。于是他们让米迦的儿子，母亲的孙子，成为祭司。直到后来来了一个利未人，米迦说：“现在我可以有一个真正的利未人了，就像摩西的律法中所说的。
+
+” 于是他问：“你愿意以这样的工资工作吗？” 利未人回答：“当然可以。” 就这样，米迦心想：现在我终于有了一个真正的利未人，有了祭司，拥有一切我想要的东西。然而，在第十八章，故事在这里结束，一群男人——但支派的人——来找他。
+
+他们说：“你跟我来吧，我们会给你更多的报酬。” 并且还带着那些价值不菲的偶像。米迦跑出来喊道：“你们偷了我的祭司，偷了我的偶像，你们在干什么？” 我会说：“回家去，否则我可能会伤害你们。
+
+” 于是他们离开了。这就是故事的结局。然后，在第十九章到第二十一章中，书末部分完全出乎意料。经历了这么多乏味的人做着琐碎的事，我们突然面对的是一个女人被轮奸的故事，这导致了以色列各部落之间的内战，并且整个城镇和村庄都被彻底摧毁，连婴儿也不放过。
+
+如此令人震惊的情节，却没有任何法官、救赎或任何东西来解释这一切。从一方面来说，这是糟糕的叙事技巧。当我提到糟糕的叙事时，并不是说我认为这个故事是虚构的，而是说这个事件被选中出现在这段历史时期的原因是什么？为什么选这段呢？
+
+当我说这是一段糟糕的故事时，首先，在一个好故事里，你必须有一个角色，一个你能够产生共鸣的人物，一个你关心的角色。否则，它就是一个糟糕的叙事。而这里没有一个人是你会关心的，他们都很平庸，既不特别好也不特别坏。他们很浅薄，毫无趣味性，无聊透顶，毫无原则可言。
+
+他们什么都没有坚持。不仅如此，故事中还应该有一些危机，对吧？这些危机最终能够得到解决。但这里的危机只是因为他们太浅薄、无趣、无聊和没有原则才产生的，为什么这段话会在这里出现？
+
+而且为什么会出现在这样一个糟糕的故事之后呢？渐渐地，我开始意识到这一点，并且其他人也有同样的看法。我不是唯一一个知道或理解这一点的人，请注意。这里没有法官，不是吗？
+
+这很有趣。整本书的其他部分都在讲述上帝的救赎，而作者向我们展示的东西，也就是上帝向我们展示的东西，就是我们在没有救赎、没有祂的情况下是什么样子，也就是我们的自然状态。换句话说，这段话揭示了罪的本质。它立刻就告诉我们一些非常令人惊讶的事情。
+
+如果你生活在这样的社会里，你对圣经关于罪和邪恶的教导有一些固有的看法。而这段话恰恰与这些看法相反。请稍作简要回顾一下，因为我们今天要去领主的晚餐，并且将有一系列的内容。请稍作简要回顾，让我来展示给你看。
+
+这段话告诉我们罪对我们、对上帝做了什么，以及我们如何能够治愈它。罪对我们做了什么，对上帝做了什么，以及我们如何能够治愈它。
+
+---
+
+## 平庸之恶 / The Banality of Evil
+
+And every one of them is surprising. The first one, what sin does to us.
 
 What do you think sin really does to you in its advanced stages? What does sin really do to the human heart? What does it do to the character?
 
@@ -120,7 +162,51 @@ Why are people so uninteresting when they just simply talk? They're not part of 
 
 It's sleepless, unsmiling concentration on the self. That's the essence of sin. And the first thing we see here is that what sin really does is not make you bad before it makes you boring.
 
-That's the primary thing, incessant autobiography. But that's the first surprising thing. But the second surprising thing is, like, in a way more seminal.
+That's the primary thing, incessant autobiography.
+
+---
+
+每一个点都非常令人惊讶。第一个点，罪对我们做了什么。
+
+你觉得在罪的晚期阶段，罪真正对你做了什么？罪对人类的心灵做了什么？它又怎样影响了你的品格呢？大多数人都认为自己是普通的人。
+
+当然，我们都会犯错，毕竟人非圣贤，孰能无过。但当我们想到那些极其邪恶、真正达到恶的顶峰的人时，我们会想到邪恶天才。我们会想到电影中的反派角色，他们迷人而机智，但又极其邪恶。圣经却说并非如此。
+
+汉娜·阿兰特在旁听纳粹刽子手阿道夫·希姆莱的审判时，被她所看到的一切震惊了。她在一篇文章中提出了“平庸之恶”的概念，这篇文章引起了很大的争议。这个词语的意思基本上是普通的、常见的。她观察这个人后说：“任何人都能做这样的事，他应该是个怪物。
+
+”但她见到他后意识到，这并不是一个怪物。首先，她发现他是一个无聊的小人物，说话老套，缺乏洞察力，几乎没有幽默感。他对重要性有绝对的渴望，希望被喜欢，并且能够不去思考不愉快的事情。她在文章中写道：“他不是怪物，他和其他人一样。
+
+”他很无趣、肤浅、乏味和空洞。人们对此非常不满，说：“你不能这么说，任何人都能做这样的事，这个人不可能像我们一样。”汉娜·阿兰特说得对又不对，至少根据圣经来说是这样。因为她认为希姆莱之所以如此平庸和肤浅，才导致他做了邪恶的事。
+
+但圣经却说，是邪恶让你变得平庸。人类心中最先进、最突出、最具特征的有效罪恶，并不是让我们变坏，而是让人变得无趣。C.S.刘易斯说得最好了，当然我这里也有一些他的名言帮助我准备这次讲道。他说：“我真正不满的是文学作品中最为有害的形象之一，那就是《浮士德》中的梅菲斯特。
+
+” 讽刺而文明的靡非斯特强化了邪恶是解放的幻象。但地狱的真实标志是一个人永无止息、面无笑容地专注于自我。你必须理解，地狱是一个每个人都在不断关注自己尊严和进步的地方，在那里每个人都怀有怨言，每个人都生活在嫉妒和自视甚高的死板严肃中。在《失乐园》中，路易斯以讽刺的态度赞赏撒旦主义者，并让人投票支持一个充满谎言、宣传和无休止的自我叙述的世界。
+
+几乎每一天，我们都不可避免地向那个方向迈出一小步。在我们每个人心中，罪恶是一种曾经被宠爱和赞美、利用他人生活的存在。它特别希望独处。它想远离任何比它更好、更强或更高的东西。
+
+任何让它感到渺小但不受阻碍的事物，罪恶都会利用整个宇宙来实现。现在，让我们看看路易斯说了什么。至少部分地，汉娜·阿恩特也看到了这一点。这就是我们被告知的真相。
+
+为什么这会被认为是人类脱离上帝后的研究案例？为什么不更糟糕一些？为什么不更残忍一些？为什么不更像书的最后一部分呢？
+
+这是关于什么呢？答案就是路易斯所说的。最高级的罪恶使你变得无聊，因为你总是只关心自己的表现、外貌以及外界如何影响你。总有无休止的自我叙述。
+
+你永远无法摆脱自己。你总是自怜自艾。而最奇怪的是，你会说，哦，这不像杰克·尼科尔森在《蝙蝠侠》中扮演的小丑。毕竟，有邪恶存在。
+
+不，罪恶使你变得平庸。最高级的罪恶让你觉得，没有什么比总是担心自己外貌更无聊的事情了。罪恶使你成为那些非常无趣、没有原则、肤浅而无聊的人。这真是很有趣。
+
+在《纽约时报杂志》今天的文化区专栏中，有一篇文章谈到了独角戏的惊人流行。你看过吗？这些人只是站上去讲自己的故事，讲自己的生活，讲一切。几乎每个人都明白一个公开的秘密：尽管这种现象持续存在，但大多数人的独角戏其实非常无聊。
+
+这些独角戏告诉了我们太多关于别人的故事，而这些是你根本不想知道的。人们为什么在简单交谈时会变得如此无趣？他们不参与故事，只是说：“这是我的感受。”“这是我脑子里的想法。
+
+” 这是一种对自我的无眠、无笑的专注。这就是罪的本质。在这里，我们首先看到的是：罪不会让你变坏，它会让你变得无聊。这是一切罪的第一大特征——不断的自我叙述。
+
+但更令人惊讶的是第二点，即罪如何影响你对待上帝的态度。当罪毁掉你时，问题在于你的自我认知早已基于对上帝的认知。你对自己的理解总是建立在对上帝的理解之上。你对自己情感的表达也总是基于对你所感知到的上帝的情感。
+
+---
+
+## 将上帝缩小为我们的模样 / Whittling God Down to Our Size
+
+But that's the first surprising thing. But the second surprising thing is, like, in a way more seminal.
 
 It's in the Bible when sin ruins you. It's because already your attitude toward yourself is always based on your attitude toward God. Your understanding of yourself is always based on your understanding of God.
 
@@ -268,57 +354,9 @@ And what He's saying is, don't imagine me to be what you want me to be but worsh
 
 But you know what? When I study, when I just study His holiness, when I just study His majesty, when I just study His wisdom, I don't feel, I'm not getting greater, I'm not getting bigger. It just starts to crush me and it'll crush you.
 
-This thing that has on saying to Lucy, I don't sense that dynamic at all, it just makes me feel worse and worse and worse. It's like, oh my word, this is God but I'm going to have to just put up with it. But the answer is this, in verse 6, it says, the reason for all this was there was no king.
-
-Do you see that? It says, the reason all this idiotic, idiocy, the reason all this smallness in those days Israel had no king. Now what is the author saying?
-
-He says, there's no savior. We need something better than these judges. We need a king.
-
-But when you get to the king, even the best king, David, we see that he needed a savior. And what we're being pointed to is simply this. Why is it that God said no image?
-
-Why is it that Israel was the only religion on the face of the earth at that time? It's the first religion, almost invented it. That if you went into this temple, you went into the holy of Holies, into the inner sanctum, and you even went to the ark of the covenant, which is the throne of God.
-
-There was the cherubim, the angels, facing inward, and right where you expect to see an image, something palpable, something you could grab hold on, something accessible, right? We're physical beings, we have, we have, we taste touch here, see smell, we have senses and we want to see something, we want to feel something. And right there, there's nothing.
-
-God says, don't you, they're putting an image there. My throne is empty. Can you say how my word is that it?
-
-We have to put up with an abstract invisible God, a God we can't touch, God we can't see here, or smell, and God says, no, no, no, no, don't you dare put an image there, but not because there never will be one. In Colossians chapter 1, verse 15, we read something amazing, he is the image, Jesus Christ, is the image of the invisible God, for by him all created, all things were created, whether the thrones or powers or rulers or authorities. Now here's what God is saying, God is saying, I understand why you want an image.
-
-I understand why you want something you can grab hold on, and I will give you something. I will supply the image, don't you supply the image because any image you try to make me, make of me, to make me something you can relate to will only make me tinier and smaller and it will make you smaller. But I will give you the true image, a living image, the Lord Jesus Christ, and he will so reveal my glory that on the one hand he will be someone you finally can relate to a human being a person, someone who loves and who weeps and who embraces, finally someone who is successful but somebody who actually makes me in your mind greater than you could imagine.
-
-Not smaller but greater, why? Because this great God, you know, before whom we are nothing but specks, we are nothing but specks of dust, we are nothing but paramecium, we are nothing but amoebas. No other image could possibly have told us what this image does and that is he came to die for us, he died for the paramecium, he died for the amoebas.
-
-When you have a God that is so big that he could become small, you got a bigger God than you could have imagined. No other religion has such a God, no other religion admits that God is so big he could have become small. Only when you have a God like that, only when you admit that Jesus Christ is the image of God that he died for me, that is what finally shows me a greatness beyond anything I would know otherwise but it is not a greatness that crushes me.
-
-Now I want to live for him. Now I don't say, now God has got to be good to me because I am obeying all the rules because Jesus is my goodness. He is the thing.
-
-I would want more than that, he is my meaning in life now. You see God can't be bought but we can. The bigger he gets, the bigger we will get.
-
-Let's pray. Father, we know that one of the reasons for the Lord's supper is it is something physical. It is something we can put in our hands and it reminds us that you have put Jesus Christ on the earth to be our image, image of you, our way of understanding your greatness.
-
-It is only as we receive him, as we remember what he has done, that you finally take in our minds your proper proportions and when that happens we will be so free. We pray, Lord, that you will make yourself real to us and your proper proportions as we take the Lord's supper as we take the bread and the cup. Be yourself in our eyes, be yourself in our hearts, be yourself so we can finally be ourselves.
-
-What you have made us to be in Jesus' name we pray, amen. Thanks for listening to Tim Keller on the Gospel Unlife Podcast. If you would like to see more people encouraged by the Gospel-centered teaching and resources of this ministry, we invite you to consider becoming a Gospel Unlife monthly partner.
-
-Your partnership allows us to reach people all over the world with the life-giving power of Christ's love. To learn more, just visit gospelunlife.com-slash-partner. That website again is gospelunlife.com-slash-partner.
-
-Today's sermon was recorded in 1999. The sermons and talks you hear on the Gospel Unlife Podcast were recorded between 1989 and 2017, while Dr.
+This thing that has on saying to Lucy, I don't sense that dynamic at all, it just makes me feel worse and worse and worse. It's like, oh my word, this is God but I'm going to have to just put up with it.
 
 ---
-
-这是关于什么呢？答案就是路易斯所说的。### 最高级的罪恶使你变得无聊，因为你总是只关心自己的表现、外貌以及外界如何影响你。总有无休止的自我叙述。
-
-你永远无法摆脱自己。### 你总是自怜自艾。而最奇怪的是，你会说，哦，这不像杰克·尼科尔森在《蝙蝠侠》中扮演的小丑。### 毕竟，有邪恶存在。
-
-不，罪恶使你变得平庸。### 最高级的罪恶让你觉得，没有什么比总是担心自己外貌更无聊的事情了。罪恶使你成为那些非常无趣、没有原则、肤浅而无聊的人。这真是很有趣。
-
-在《纽约时报杂志》今天的文化区专栏中，有一篇文章谈到了独角戏的惊人流行。你看过吗？这些人只是站上去讲自己的故事，讲自己的生活，讲一切。几乎每个人都明白一个公开的秘密：尽管这种现象持续存在，但大多数人的独角戏其实非常无聊。
-
-这些独角戏告诉了我们太多关于别人的故事，而这些是你根本不想知道的。人们为什么在简单交谈时会变得如此无趣？他们不参与故事，只是说：“这是我的感受。”“这是我脑子里的想法。
-
-” 这是一种对自我的无眠、无笑的专注。这就是罪的本质。在这里，我们首先看到的是：罪不会让你变坏，它会让你变得无聊。这是一切罪的第一大特征——不断的自我叙述。
-
-但更令人惊讶的是第二点，即罪如何影响你对待上帝的态度。当罪毁掉你时，问题在于你的自我认知早已基于对上帝的认知。你对自己的理解总是建立在对上帝的理解之上。你对自己情感的表达也总是基于对你所感知到的上帝的情感。
 
 这里有一个更加惊人的发现：它告诉我们，罪是如何引导我们看待上帝的。那么，罪会让我们如何对待上帝？人们通常认为，更严重的罪行会让你成为一个无神论者。但这不是罪的本质。
 
@@ -416,7 +454,51 @@ Today's sermon was recorded in 1999. The sermons and talks you hear on the Gospe
 
 那么这又意味着什么呢？只接受祂所说的。但是你知道吗？当我研究祂的圣洁，研究祂的伟大，研究祂的智慧时，并没有觉得自己的内心变得更大或更高尚。
 
-这些只会让我感到越来越渺小，也会让你感到如此。当我说给露西听的时候，我完全感觉不到那种动态，反而感到越来越糟糕。就像啊，天哪，这是神，但我也只能接受它了。但是答案在第六节中，那里说：“因为没有王，所以这一切都发生了。
+这些只会让我感到越来越渺小，也会让你感到如此。当我说给露西听的时候，我完全感觉不到那种动态，反而感到越来越糟糕。就像啊，天哪，这是神，但我也只能接受它了。
+
+---
+
+## 真正的形象：耶稣基督 / The True Image: Jesus Christ
+
+But the answer is this, in verse 6, it says, the reason for all this was there was no king.
+
+Do you see that? It says, the reason all this idiotic, idiocy, the reason all this smallness in those days Israel had no king. Now what is the author saying?
+
+He says, there's no savior. We need something better than these judges. We need a king.
+
+But when you get to the king, even the best king, David, we see that he needed a savior. And what we're being pointed to is simply this. Why is it that God said no image?
+
+Why is it that Israel was the only religion on the face of the earth at that time? It's the first religion, almost invented it. That if you went into this temple, you went into the holy of Holies, into the inner sanctum, and you even went to the ark of the covenant, which is the throne of God.
+
+There was the cherubim, the angels, facing inward, and right where you expect to see an image, something palpable, something you could grab hold on, something accessible, right? We're physical beings, we have, we have, we taste touch here, see smell, we have senses and we want to see something, we want to feel something. And right there, there's nothing.
+
+God says, don't you, they're putting an image there. My throne is empty. Can you say how my word is that it?
+
+We have to put up with an abstract invisible God, a God we can't touch, God we can't see here, or smell, and God says, no, no, no, no, don't you dare put an image there, but not because there never will be one. In Colossians chapter 1, verse 15, we read something amazing, he is the image, Jesus Christ, is the image of the invisible God, for by him all created, all things were created, whether the thrones or powers or rulers or authorities. Now here's what God is saying, God is saying, I understand why you want an image.
+
+I understand why you want something you can grab hold on, and I will give you something. I will supply the image, don't you supply the image because any image you try to make me, make of me, to make me something you can relate to will only make me tinier and smaller and it will make you smaller. But I will give you the true image, a living image, the Lord Jesus Christ, and he will so reveal my glory that on the one hand he will be someone you finally can relate to a human being a person, someone who loves and who weeps and who embraces, finally someone who is successful but somebody who actually makes me in your mind greater than you could imagine.
+
+Not smaller but greater, why? Because this great God, you know, before whom we are nothing but specks, we are nothing but specks of dust, we are nothing but paramecium, we are nothing but amoebas. No other image could possibly have told us what this image does and that is he came to die for us, he died for the paramecium, he died for the amoebas.
+
+When you have a God that is so big that he could become small, you got a bigger God than you could have imagined. No other religion has such a God, no other religion admits that God is so big he could have become small. Only when you have a God like that, only when you admit that Jesus Christ is the image of God that he died for me, that is what finally shows me a greatness beyond anything I would know otherwise but it is not a greatness that crushes me.
+
+Now I want to live for him. Now I don't say, now God has got to be good to me because I am obeying all the rules because Jesus is my goodness. He is the thing.
+
+I would want more than that, he is my meaning in life now. You see God can't be bought but we can. The bigger he gets, the bigger we will get.
+
+Let's pray. Father, we know that one of the reasons for the Lord's supper is it is something physical. It is something we can put in our hands and it reminds us that you have put Jesus Christ on the earth to be our image, image of you, our way of understanding your greatness.
+
+It is only as we receive him, as we remember what he has done, that you finally take in our minds your proper proportions and when that happens we will be so free. We pray, Lord, that you will make yourself real to us and your proper proportions as we take the Lord's supper as we take the bread and the cup. Be yourself in our eyes, be yourself in our hearts, be yourself so we can finally be ourselves.
+
+What you have made us to be in Jesus' name we pray, amen. Thanks for listening to Tim Keller on the Gospel Unlife Podcast. If you would like to see more people encouraged by the Gospel-centered teaching and resources of this ministry, we invite you to consider becoming a Gospel Unlife monthly partner.
+
+Your partnership allows us to reach people all over the world with the life-giving power of Christ's love. To learn more, just visit gospelunlife.com-slash-partner. That website again is gospelunlife.com-slash-partner.
+
+Today's sermon was recorded in 1999. The sermons and talks you hear on the Gospel Unlife Podcast were recorded between 1989 and 2017, while Dr.
+
+---
+
+但是答案在第六节中，那里说："因为没有王，所以这一切都发生了。
 
 ” 你看出来了吗？这里说的是，由于以色列当时没有国王，才导致了一切的愚昧和渺小。那么作者在这里想说什么呢？他说，没有救主。
 

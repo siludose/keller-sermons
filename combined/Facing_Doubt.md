@@ -4,21 +4,7 @@
 
 ---
 
-Welcome to Gospel and Life! How comfortable are you when it comes to being open about your faith? This month on the podcast, Tim Keller looks at what the Bible says about having a public faith.
-
-He shows us what it looks like to be open about our faith in a pluralistic society, in a way that creates civility and peace and meaningful dialogue with our neighbors. The Scripture reading is from Psalm chapter 73 verses 1 through 3 and 12 through 26. Surely God is good to Israel, to those who are pure in heart, but as for me, my feet had almost slipped, I had nearly lost my foothold.
-
-For I envied the arrogant when I saw the prosperity of the wicked. This is what the wicked are like, always free of care, they go on a massing wealth. Surely in vain I have kept my heart pure and have washed my hands and innocence.
-
-All day long I have been afflicted and every morning brings new punishments. If I had spoken out like that, I would have betrayed your children. When I tried to understand all this, it troubled me deeply till I entered the sanctuary of God, then I understood their final destiny.
-
-Surely you placed them on slippery ground, you cast them down to ruin. How suddenly are they destroyed, completely swept away by terrors. They are like a dream when one wakes, when you arise Lord, you will despise them as fantasies.
-
-When my heart was greed and my spirit imbitered, I was senseless and ignorant, I was a brute beast before you, yet I am always with you. You hold me by my right hand, you guide me with your counsel, and afterward you will take me into glory. Whom have I in heaven but you, and earth has nothing I desire besides you.
-
-My flesh and my heart may fail, but God is the strength of my heart and my portion forever. This is God's word. So, we are in a series called public faith, sharing the hope that is within.
-
-We live in a society, Western society, that does not encourage people to be public about their faith, their religious beliefs. We are told that it is a private thing we should not be talking about, but it is ironic because our culture actually encourages us to be absolutely open and public about everything else, everything else, including sexuality, because it is who we are. But there is nothing more fundamental to who you are than your religious beliefs than your deepest faith beliefs, and therefore the challenge before us as a society is how can we be honest about who we are, which means how can we be public about our faith beliefs, and yet do so in such a way that is respectful and supports the peace.
+## 疑虑是什么？ / What Is Doubt?
 
 So we all have to learn that, and one of the things we are doing in this series is talking about that. Now, if we are going to become a mature society in which we are able to talk about faith, we also have to be able to know how to talk about doubt. We don't get much help here from either religious people or secular people.
 
@@ -76,7 +62,27 @@ And yet, Jesus doesn't just simply see on the one hand, Jesus doesn't say, how d
 
 And see, this is where Jesus shows us, the Bible shows us an attitude toward doubt that neither religious people nor secular people have. It's not nearly as bad as religious people say it is and it's not nearly as good as secular people say. He says, look, don't acquiesce in your doubt.
 
-Let the doubt drive you to something else, but at the same time, Jesus doesn't squalch the doubts at all. So there's some important understanding about doubt and the vertigo and the disequilibrium that it brings, but also the positive can be. Secondly, what causes this man's doubt?
+Let the doubt drive you to something else, but at the same time, Jesus doesn't squalch the doubts at all.
+
+---
+
+许多聪慧的人、诚实的人甚至许多基督徒都有疑虑。今天，蒂姆·凯勒探讨圣经对信心和怀疑的看法，以及我们如何面对我们可能有的疑虑。首先，我想说疑虑不是罪。有很多关于信心的讲道似乎说疑虑是罪。
+
+如果你怀疑，如果你有问题，如果你不是100%确定你的信仰，那么你就有问题。但这不是圣经所说的。圣经充满了有疑虑的人。《旧约》中的约伯有关于他为什么遭受的疑虑。
+
+《约翰福音》中的托马斯对耶稣的复活有疑虑。门徒对耶稣的能力有疑虑。甚至耶稣，在十字架上，呼喊说："我的上帝，我的上帝，为什么离弃我？"这看起来像疑虑。
+
+这看起来像绝望。所以疑虑不是罪。疑虑是人的。疑虑是诚实的。
+
+疑虑是合理的。现在，这不是说我们应该停留在怀疑中。这不是说我们不应该寻求答案。但这是说，如果你有疑虑，如果你有关于信仰的问题，这没关系。
+
+这不意味着你是一个坏的基督徒。这不意味着你不相信。**这意味着你是一个思考的人。**
+
+---
+
+## 疑虑的成因 / What Causes Doubt?
+
+So there's some important understanding about doubt and the vertigo and the disequilibrium that it brings, but also the positive can be. Secondly, what causes this man's doubt?
 
 Now there's two things he points out. First of all, he says, I saw something, secondly, he says, I experienced something. What did he see?
 
@@ -155,6 +161,40 @@ That's why here at Gospel and Life, August is Go and Share Month. Throughout Aug
 It's a powerful resource that explores how Christianity makes emotional, cultural, and rational sense in today's world. It's our thanks for your gift, and provides a way you can do a small act to share the gospel, by reading the book with a friend, giving one to a coworker, or passing on both copies to people who are exploring the Christian faith. It's a simple way to start a gospel conversation, or continue it.
 
 To request your two copies of making sense of God, simply go to gospelandlife.com slash give. Again, that's gospelandlife.com slash give. Now, here's Dr.
+
+---
+
+所以首先，让我们对自己的怀疑诚实。
+
+让我们问问自己："我怀疑什么？我对什么有问题？" 有些人怀疑上帝的存在。他们说："我看不到上帝。
+
+我看不到任何证据表明上帝存在。" 有些人怀疑基督教的真理。他们说："有这么多其他宗教。为什么基督教是真的？
+
+" 有些人怀疑上帝的爱。他们说："如果上帝爱我，为什么我会遭受？为什么会有痛苦？为什么会有邪恶？
+
+" 有些人怀疑上帝的权力。他们说："如果上帝全能，为什么他不停止邪恶？为什么他不回答我的祈祷？" 现在，这些都是有效的问题。
+
+这些都是许多人问过的问题。这些都是我们可以思考的。但在我们审视答案之前，让我对你说一件事。我想对你说，信心不是缺乏怀疑。
+
+信心是尽管有疑虑而信仰。想象你在一个悬崖上。悬崖下面有一个安全网。现在，你可以看到网。
+
+你可以测试网。你可以有关于网是否会抓住你的疑虑。但如果你真的跳，那是信心。信心是尽管你的恐惧和怀疑而走那一步。
+
+这就是基督教中的信心。基督教中的信心不是盲目的。基督教中的信心有理由。但基督教中的信心也是一个决定。
+
+这是一个选择。现在，让我们看看圣经对其中一些疑虑的回答。首先，关于上帝的存在。圣经没有说上帝的存在的证明。
+
+圣经以这样一个事实开头："起初，上帝创造天地。"圣经假设上帝存在。但这不是说没有对上帝存在的理由。看看宇宙。
+
+看看秩序。看看复杂性。看看美丽。现在，你可以看着这一切并说"这是来自大爆炸和随机进化。
+
+"但你也可以看着它并说"这看起来像是由有智慧的人创造的。"两种观点都涉及一定程度的信仰。一个是相信无神论。另一个是相信上帝。
+
+所以问题不是"是否有上帝存在的证据"。问题是"你如何解释证据？"
+
+---
+
+## 疑虑如何转化？ / What Transforms Doubt?
 
 Keller with the remainder of today's teaching. So on the one hand, your doubts are not just from thinking, but on the other hand, you still have to think. If you're going to process the doubts, all right, so how does he process the doubts?
 
@@ -262,7 +302,33 @@ He says, I saw a gap between the possible and the proved. How was I to cross it?
 
 So, he was shrinking back, but then he said, here's what he said, but then I realized, oh my God, there was a gap behind me, yes, I would have to leap, you know, there would have to be a leap of faith to accepting Jesus Christ, because I couldn't prove that Christ was God, but by God, I had no proof that he was not. This was not to be born. I could not reject Jesus without great faith.
 
-And once I realized that, once I realized I would take faith for me to jump over the gap behind me, I'd flung myself over the gap in front of me toward Jesus. Now, here's the last thing, and this is extremely interesting and important. The man expands his view, he doesn't just experience, he doesn't just think.
+And once I realized that, once I realized I would take faith for me to jump over the gap behind me, I'd flung myself over the gap in front of me toward Jesus.
+
+---
+
+其次，关于痛苦和邪恶。这是最难的问题。
+
+如果上帝爱我们，为什么他允许痛苦？为什么会有邪恶？现在，圣经对此没有简单的答案。但圣经确实说了一些事情。
+
+首先，圣经说上帝允许痛苦，但上帝不创造邪恶。邪恶来自于人类的自由意志。上帝给了人类自由选择。有些人选择做坏事。
+
+这导致了痛苦。其次，圣经说即使在痛苦中，上帝也与我们在一起。耶稣受了苦。耶稣在十字架上被折磨。
+
+所以上帝理解痛苦。上帝不是远离痛苦的。上帝进入痛苦。第三，圣经说上帝使用痛苦来改变我们。
+
+圣经说："苦难生忍耐。"痛苦可以让我们更强大。痛苦可以让我们更有同情心。痛苦可以让我们更接近上帝。
+
+现在，这不是说痛苦是好的。这不是说我们应该为痛苦感到高兴。但这是说，甚至痛苦也可以被上帝用来完成他的目的。第四，圣经说最终，上帝将把一切都放在正确的地方。
+
+有一天，会有新天新地。会有不再痛苦。会有不再死亡。会有不再邪恶。
+
+但在那之前，我们必须忍受这个世界上的痛苦。这很困难。但这就是上帝给我们的希望。
+
+---
+
+## 拓宽对上帝的认识 / An Enlarged View of God
+
+Now, here's the last thing, and this is extremely interesting and important. The man expands his view, he doesn't just experience, he doesn't just think.
 
 He expands his view of God. Thomas Kuhn wrote a book called The Structure Scientific Revolutions, very, very famous book, and he was, what he tried to say was that all of us have paradigms, we have ways of thinking about life, and we have doubts when the paradigm receives some data, it can't account for. And when it can't account for it, then there's a paradigm shift, which means you experienced out, but then you expand the paradigm so it can explain the data that you couldn't understand.
 
@@ -324,64 +390,7 @@ We believe God uses small acts to do great things and we're inviting you to do s
 
 ---
 
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《福音人生》。你有疑虑吗？关于信仰，关于上帝，关于基督教？如果你说"是"，那么你并不孤单。
-
-许多聪慧的人、诚实的人甚至许多基督徒都有疑虑。今天，蒂姆·凯勒探讨圣经对信心和怀疑的看法，以及我们如何面对我们可能有的疑虑。首先，我想说疑虑不是罪。有很多关于信心的讲道似乎说疑虑是罪。
-
-如果你怀疑，如果你有问题，如果你不是100%确定你的信仰，那么你就有问题。但这不是圣经所说的。圣经充满了有疑虑的人。《旧约》中的约伯有关于他为什么遭受的疑虑。
-
-《约翰福音》中的托马斯对耶稣的复活有疑虑。门徒对耶稣的能力有疑虑。甚至耶稣，在十字架上，呼喊说："我的上帝，我的上帝，为什么离弃我？"这看起来像疑虑。
-
-这看起来像绝望。所以疑虑不是罪。疑虑是人的。疑虑是诚实的。
-
-疑虑是合理的。现在，这不是说我们应该停留在怀疑中。这不是说我们不应该寻求答案。但这是说，如果你有疑虑，如果你有关于信仰的问题，这没关系。
-
-这不意味着你是一个坏的基督徒。这不意味着你不相信。**这意味着你是一个思考的人。**所以首先，让我们对自己的怀疑诚实。
-
-让我们问问自己："我怀疑什么？我对什么有问题？" 有些人怀疑上帝的存在。他们说："我看不到上帝。
-
-我看不到任何证据表明上帝存在。" 有些人怀疑基督教的真理。他们说："有这么多其他宗教。为什么基督教是真的？
-
-" 有些人怀疑上帝的爱。他们说："如果上帝爱我，为什么我会遭受？为什么会有痛苦？为什么会有邪恶？
-
-" 有些人怀疑上帝的权力。他们说："如果上帝全能，为什么他不停止邪恶？为什么他不回答我的祈祷？" 现在，这些都是有效的问题。
-
-这些都是许多人问过的问题。这些都是我们可以思考的。但在我们审视答案之前，让我对你说一件事。我想对你说，信心不是缺乏怀疑。
-
-信心是尽管有疑虑而信仰。想象你在一个悬崖上。悬崖下面有一个安全网。现在，你可以看到网。
-
-你可以测试网。你可以有关于网是否会抓住你的疑虑。但如果你真的跳，那是信心。信心是尽管你的恐惧和怀疑而走那一步。
-
-这就是基督教中的信心。基督教中的信心不是盲目的。基督教中的信心有理由。但基督教中的信心也是一个决定。
-
-这是一个选择。现在，让我们看看圣经对其中一些疑虑的回答。首先，关于上帝的存在。圣经没有说上帝的存在的证明。
-
-圣经以这样一个事实开头："起初，上帝创造天地。"圣经假设上帝存在。但这不是说没有对上帝存在的理由。看看宇宙。
-
-看看秩序。看看复杂性。看看美丽。现在，你可以看着这一切并说"这是来自大爆炸和随机进化。
-
-"但你也可以看着它并说"这看起来像是由有智慧的人创造的。"两种观点都涉及一定程度的信仰。一个是相信无神论。另一个是相信上帝。
-
-所以问题不是"是否有上帝存在的证据"。问题是"你如何解释证据？" 其次，关于痛苦和邪恶。这是最难的问题。
-
-如果上帝爱我们，为什么他允许痛苦？为什么会有邪恶？现在，圣经对此没有简单的答案。但圣经确实说了一些事情。
-
-首先，圣经说上帝允许痛苦，但上帝不创造邪恶。邪恶来自于人类的自由意志。上帝给了人类自由选择。有些人选择做坏事。
-
-这导致了痛苦。其次，圣经说即使在痛苦中，上帝也与我们在一起。耶稣受了苦。耶稣在十字架上被折磨。
-
-所以上帝理解痛苦。上帝不是远离痛苦的。上帝进入痛苦。第三，圣经说上帝使用痛苦来改变我们。
-
-圣经说："苦难生忍耐。"痛苦可以让我们更强大。痛苦可以让我们更有同情心。痛苦可以让我们更接近上帝。
-
-现在，这不是说痛苦是好的。这不是说我们应该为痛苦感到高兴。但这是说，甚至痛苦也可以被上帝用来完成他的目的。第四，圣经说最终，上帝将把一切都放在正确的地方。
-
-有一天，会有新天新地。会有不再痛苦。会有不再死亡。会有不再邪恶。
-
-但在那之前，我们必须忍受这个世界上的痛苦。这很困难。但这就是上帝给我们的希望。现在，最后，我想说这个。
+现在，最后，我想说这个。
 
 有很多关于信仰的教导似乎说："只相信。不要问问题。不要有疑虑。" 但我认为这是错误的。
 

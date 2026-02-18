@@ -4,71 +4,7 @@
 
 ---
 
-Welcome to Gospel and Life. When someone you know is contemplating life's deepest questions, who am I? What's wrong with the world?
-
-What can truly make me whole? Jesus doesn't just give us answers. He gives us Himself.
-
-In this month's podcast, Tim Keller looks at how we can share the hope we have in Christ as the answer to a person's search for meaning and purpose. As you may know, August is Goen's share month at Gospel and Life, and we've curated a wide range of free resources to help you take simple steps to share the Gospel with someone God has put in your life. You can access these resources at gospelandlife.com slash share.
-
-We believe God uses small acts to do great things, and we're inviting you to do simple, small acts to go and share the Gospel this month because the Gospel changes everything. This Scripture reading is taken from Romans chapter 2, verses 12 through 29. All who sin apart from the law will also perish apart from the law, and all who sin under the law will be judged by the law.
-
-For it is not those who hear the law who are righteous in God's sight, but it is those who obey the law who will be declared righteous. Indeed, when Gentiles who do not have the law, do by nature things required by the law, they are law from themselves. Even though they do not have the law, they show that the requirements of the law are written on their hearts.
-
-Their conscience is also bearing witness, and their thoughts sometimes accusing them and at other times even defending them. This will take place on the day when God judges people's secrets through Jesus Christ as my Gospel declares. Now you, if you call yourself a Jew, if you rely on the law and boast in God, if you know his will and approve of what is superior because you are instructed by the law, if you are convinced that you are a guide for the blind, a light for those who are in the dark, an instructor of the foolish, a teacher of little children, because you have in the law the embodiment of knowledge and truth.
-
-You then, who teach others, do you not teach yourself? You who preach against stealing, do you steal? You who say that people should not commit adultery, do you commit adultery?
-
-You who abhor idols, do you rob temples? You who boast in the law, do you dishonor God by breaking the law? As it is written, God's name is blasphemed among the Gentiles because of you.
-
-Circumcision has value if you observe the law, but if you break the law, you have become as though you had not been circumcised. So then, if those who are not circumcised keep the law's requirements, will they not be regarded as though they were circumcised? The one who is not circumcised physically and yet obeys the law will condemn you who, even though you have the written code and circumcision, are a law-breaker.
-
-A person is not a Jew who is one only outwardly nor is circumcision merely outward and physical. No, a person is a Jew who is one inwardly and circumcision is circumcision of the heart by the spirit, not by the written code. Such a person's praise is not from other people, but from God.
-
-This is the word of the Lord. Now, we're in a series called Public Faith, Sharing Hope That's Within, and it's about the fact that all of us in a pluralistic society, an open pluralistic society, as we want to have in our country. We need to find ways of sharing our deep faith beliefs with each other, being honest about who we are, in other words, but to do so in such a way that's respectful and that promotes peace.
-
-Now, the objection to what I just said goes like this. The objection says, no, no, no, no, look, not all people have faith beliefs, not all people are religious, and those of you who are religious should keep your beliefs private. Otherwise, we're just going to fight.
-
-So not all of us are religious, some of you do have religious beliefs fine, but keep it private. Otherwise, we're just going to fight. That statement is both untrue and unfair, and I think I can show you why just by asking you a question.
-
-Do you believe in human rights? Do you believe that all people have human rights, that all people have equal dignity, and no one should have their human rights violated and taken away from them? Do you believe that?
-
-If you live in New York or most places in Western society, you believe, yes, of course I believe in human rights, okay. How would you prove that human rights exist scientifically? You can't.
-
-No one has ever dissected a human right in a laboratory. There's no way to prove such a thing. There's no empirical evidence for it, by the way.
-
-The idea that every human being has equal dignity, there's no evidence scientifically that all human beings are equal. There's almost nothing that we're equal in. Also Aristotle, and a whole lot of people never believed that everyone had equal human rights.
-
-In fact, probably half the human race today doesn't believe everybody's equal human rights. So, if you believe in human rights, do you realize what that is? It's a belief.
-
-It's a belief. And it's essentially the same as a religious belief, even though you don't call it a religious belief, because it's a belief about human nature and about what life is about, and it's not something you can prove, and it's not self-evident to everybody, so it's a belief. And you see how unfair it is to say, those of you who call your beliefs religious, you have to keep them private, and those of us who don't, we can do anything we want with them.
-
-It's just completely unfair. But now we're still back to where we said we were, which is a question. How do we avoid just not shouting at each other?
-
-This is the right standard for right and wrong. No, this is the standard for right and wrong, and we just yell at each other. But maybe one of the ways we can calm each other down, and maybe make for more civil conversation, is to ask this more fundamental question, where do you get your moral convictions about what is right and wrong, like human rights?
-
-Where do you get your moral convictions? What do you base them on? How do you determine what is right and wrong?
-
-And the reason that's a great question is it slows everybody down, because actually we all have very strong moral convictions about what we think is right and wrong. But as soon as you say, well, why do you believe that? On what basis do you believe that?
-
-Where do you get that? Right away, we're not as quick to know what to say. And so it makes us stop and think and talk, and therefore we suddenly have a better conversation, a better public conversation.
-
-Now I would say that there's almost no place I know that has a more interesting and ingenious and creative answer to the question, where do you get your moral beliefs? Then Romans chapter 2. And here I st.
-
-Paul, this last part of Romans chapter 2, is going to tell us three things. The first paragraph, which is 12 to 16, there, Paul is telling us, no one can succeed in being a relativist. The second paragraph, verses 17 to 24, there, Paul's thesis is, but on the other hand, no one really can succeed in being a moralist.
-
-And then the last part of the passage is where Paul says, therefore, this is our only hope. No one can succeed in being a relativist. No one can really succeed in being a moralist.
-
-And therefore this is our only hope. Let's look at these three things. First of all, no one can succeed in being a relativist.
-
-Now, verse 12, all who sin apart from the law will also perish apart from the law, and all who sin under the law will be judged by the law. Now who is he talking about? He's talking about the law.
-
-He means by the law, the moral law of God that's revealed in the Bible in the scriptures. Of course, at the time, Paul was talking about the Old Testament, but in the scriptures. And he was saying, some people have that.
-
-That is to say, they believe it. They believe that the moral law of God is revealed in the Bible, and they accept it, and they embrace it, and they take it. But there's other people who don't have it.
-
-That is they either have never heard of it, they never read the Bible, they didn't even know about it, or they don't accept it. Now in that day, most of the people who believed that the Bible was where the revealed moral law was were Jews, but not all, of course not. There were Gentiles who believed that too, but there were mainly Jews, so what Paul was trying to say is some people accept the moral law of God is revealed in the Bible, some people who did not.
-
-That's the people who have the law and people who don't. So what does he say about them? He says three things, one of which is interesting, one of which is startling, and one of which is radical and controversial.
+## 天然的道德认知 / Natural Moral Knowledge
 
 It's in verse 1415. Indeed, when Gentiles who do not have the law, due by nature things required by the law, there are law for themselves, even though they do not have the law, they show that the requirements of the law are written on their hearts. Their conscience is also bearing witness, and their thoughts sometimes accusing them in other times, even defending them.
 
@@ -140,6 +76,58 @@ And see, in the view of evolution or naturalism, it's a subjective belief, and y
 
 The point is that the reason we all believe that torture for fun is wrong is because all the people who did feel that torture for fun was okay, they died out. And the reason you have the hair color you have is because of evolution, and the reason you have the moral feeling that torture for fun is wrong is also because of evolution, and they come from the same, your hair color, and that moral feeling come from the same place, and they are in the same category. They're only subjective.
 
+---
+
+那就有律法的人和没有律法的人。所以他怎么说他们呢？他说了三件事，其中一件很有趣，一件很惊人，还有一件很激进且有争议。这在第14节到第15节。
+
+确实，外邦人没有律法，但因着本性行出律法所要求的事，他们自己就有律法，虽然没有律法，但他们的心里显明律法的要求。他们的良心也在作见证，有时叫他们羞愧，有时也替他们辩护。现在他要说的是什么。这里有趣的一点是：所有脱离律法的人在审判日也会脱离律法而灭亡；所有受律法约束的人则会因着律法被审判。
+
+外邦人没有律法，但他们的心里仍然知道一些道德规范，所以他们会根据这些标准接受审判。这很有趣。我说过这是有趣的，对吧？好的。
+
+其次，他说了另一件更惊人的事。即使你没有把圣经作为你的道德标准，他也暗中提到这一点。在第12节的开头，你在审判日仍然会灭亡。因为所有脱离律法的人最终都会灭亡。
+
+为什么呢？因为在你们的心里，仍然有一些关于道德律的知识，你们会被根据这些知识来审判。当我年轻的时候，帮助我理解这个道理的一个比喻，是我在一本弗兰西斯·施韦策写的书中读到的，他谈论罗马书第2章时用了这样一个比喻，虽然有点夸张，但很好地传达了这个思想。有些弟兄姊妹可能之前听过我引用过这段话，因为它对我很有帮助。
+
+他说，当圣经说神不会用任何标准来审判你，而这个标准是你自己已经知道的时，这就像这样：他这样说，当你出生的时候，神会在你的脖子上系一个看不见的录音机。当然，它是看不见的，你既感觉不到也听不见。它所做的就是记录下你说给其他人的话，告诉他们应该怎么做。它只是录下了你的道德标准。
+
+所以每当你说你应该这样做或你应该那样做时，它就在录你的道德标准。因此，在审判日那天，你会出现在审判日面前，而你已经很生气了，因为你不知道会有这一天，于是你就站在那里。这就像这样。这就像是……有点儿夸张，但它传达了这个意思。
+
+这就是旧约应该说的内容。所以你在那里。我要检查一下审判日。但他说：“嘿，嘿，嘿，别急。
+
+”“我是个公平的人。”“我只是根据你的标准来评判你。” 于是他把那个看不见的录音机从你的脖子上取下来。“我不知道它在那里。
+
+”“不，它是看不见的。” 然后他把它放下说，“我只是根据你的标准来评判你，你自己播放吧。”看看保罗在说什么，以及你内心知道的事情。我希望没有人会站得住脚。
+
+世界上没有一个人，历史上也没有任何人能在审判日那天通过这个标准。没有人能。没有人曾经达到过他们自己强加给别人的道德标准。所以第一点是神非常公平，他是全地的审判者。
+
+这就是保罗的意思，但这是非常公平的。他不会用任何你之前没有设定的标准来评判你。但是另一方面，没有人能通过审判日。然后他说了一些非常激进和有争议的话。
+
+当他说“注意”时，他不只是说那些没有上帝律法的人有他们自己的道德标准。他是这样说的：事实上，外邦人即使没有律法，在本性上也行出了律法所要求的事。什么是律法？那就是这里所说的。
+
+而且请注意，它并没有说那些不信圣经的人内心和良心中都知道圣经中的所有内容。那会是荒谬的。有很多人从未读过圣经，对圣经一无所知。但圣经确实说了，在他们内心深处、在他们的良心中，有一些上帝道德律法的内容，因为所有人都是由上帝创造的。
+
+在最深层、最深层、最深层，每个人都有某种程度上理解上帝道德律法的知识，并且知道这种道德背后有神性。每个人都在按照这个观念生活着。因此，从某种意义上说，没有人真正是相对主义者。这非常非常有争议。
+
+但让我花一点时间来给你提供一些证据。我一直觉得有趣的是，在我多年来研究过的一些非常高智商、聪明和思想深刻的知识分子或教授们的归信经历中——他们一开始是怀疑论者、无神论者或不可知论者，后来却皈依了基督教。当我去研究这些人的经历时，我发现很少有人通过仔细审视上帝存在的论证或复活的证据而归信基督说：“啊，我看到这些证据表明这是真的。” 他们并不是这样看待问题的。
+
+通常情况下，他们会像这样归信：通常我所见到的是，他们意识到自己的道德观念和直觉非常强烈地认为上帝的存在，并且只是没有诚实面对这一点。于是他们开始认识到，在他们的道德观念和直觉中，实际上已经感受到了上帝的存在，他们本能地意识到了上帝的存在，但不愿承认，现在却愿意承认了。这就是他们成为基督徒的方式。这真是令人惊讶的事情，你可能会问：这是怎么发生的呢？
+
+让我给你举三个例子，其中一个不是转变的例子。事实上，我要给你们讲的是一本哲学书的小结，所以请耐心听一下。即使你觉得有点难理解，也很有趣。但如果你觉得难以理解，请立即给我举例说明，帮助你更好地理解。
+
+最近，一位非信徒、自称无神论者或不可知论者的汤姆·内格尔（Tom Nagel），纽约大学的哲学教授，写了一本书，引起了轩然大波，因为这本书论证得非常精彩。让我读一下书名吧，书名叫《心灵与宇宙》，但关键在于副标题。准备好了吗？副标题是：“为什么物质主义、新达尔文论自然观几乎肯定是错误的。
+
+”让我给你讲讲核心内容。他书中有一章叫“价值”，他说的是进化物质主义。顺便说一句，他对进化本身并没有反对，他所说的进化物质主义是指你只是一个身体，你的所有特质都是通过自然选择而来的。某个祖先具有的特征有助于生存，因此这种特征被传递给了你。
+
+所以你只是一个身体，你的一切都严格是自然选择的结果，它帮助你生存下来。这就是进化的物质主义。他说，在这种解释中，**这意味着你所有的道德感觉只是主观的感觉。**例如，他提出：在这一观点下，为什么我们大家都认为为了娱乐而折磨别人是错误的？
+
+关于折磨有很多争论，但关键在于，难道我们大家不都相信为了娱乐而折磨别人是极其错误的吗？如果你真的找到有人不这么认为，我们会觉得他们非常病态。他们可以扭曲它。所以我们都知道虐待取乐是不对的，为什么我们会这么认为呢？
+
+而且请注意，在进化论或自然主义的观点下，这是一种主观信念，你之所以相信这一点，是因为你的祖先感觉如此，并且这种感觉帮助了他们的生存。那些喜欢虐待取乐的人没有存活下来，可能是因为他们互相残杀而死去。我们不知道具体原因，但这正是问题的关键：是什么机制导致了这一切？关键在于，我们所有人都认为虐待取乐是不对的，是因为那些觉得虐待取乐可以接受的人已经灭绝了。
+
+---
+
+## 主观性的反驳 / The Subjectivity Objection
+
 All your moral feelings are subjectively, you feel those things are wrong subjectively because they helped your ancestors survive, not because they are actually, objectively, universally, and really wrong. They're subjectively wrong because you feel it, but not because they're actually and objectively and universally and really wrong, but just subjective. Now, what happens, though, suppose?
 
 It turns out that there's a tribe we've discovered in some remote part of the world that their evolution operate in a very different way. First of all, their hair color is white from the minute they're born, and the pigment of their skin is half red and half yellow, very different. But they also find torture for fun great, they love it, you know, it's a fun.
@@ -210,6 +198,60 @@ He says, do you not commit adultery? Then he says, you who abhor idols, do you r
 
 He's writing to Jews in Rome, right? He's saying, well, you know, you Jews in Rome should stop at night going in robbing temples and getting the idols and bringing them home. Jews didn't do that.
 
+---
+
+你的头发颜色是由进化决定的，同样，你对虐待取乐感到不道德的感觉也是由进化决定的，它们都源自同一个地方——就像你的头发颜色和道德感觉一样，属于同一类别。这些都是主观的。所有你的道德感觉都是主观的，你觉得这些事情是错的，是因为它们帮助了你的祖先生存下来，并不是因为它们实际上、客观上、普遍地、真正地就是错的。它们只是因为你感到它们是错的而被认为是错的，而不是因为它们本身实际、客观、普遍和真正地就是错的，而是主观上的错误。
+
+那么接下来会发生什么呢？事实上，我们发现了一个生活在世界某个偏远地区的部落，他们的进化方式非常不同。首先，他们出生时头发就是白色的，皮肤一半红色一半黄色，非常不同。但他们也觉得虐待取乐很有趣，非常喜欢它。
+
+现在他们开始向外扩张，你会对他们有什么看法呢？你可能会说：“好吧，我知道他们无法控制自己的头发颜色之类的事情，但虐待取乐是不对的。”那么为什么不对呢？你觉得不对是因为你的进化，而他们觉得可以接受是因为他们的进化。
+
+为什么你应该因为他们的头发颜色和虐待取乐的习惯而有所不同呢？以下是汤姆·纳格尔（Tom Nagel）的观点：没有人会相信折磨取乐只是主观上不对。我们认为它实际上是、客观地和普遍地不对，无论他们是否这么认为。因此，如果进化无神论是真的，那么价值现实主义——即事物实际上和真正是不对的这一理念——就不可能为真；但既然我们知道有些事情确实是不对的，那么进化无神论也就不可能为真。
+
+明白了吗？看看这有多简单？你可能会说这只是个障眼法。让我给你举两个个人的例子。
+
+W.H. 奥登（W.H. Auden），历史上一位伟大的诗人，20世纪的伟大作家之一，W.H. 奥登像他那个时代的大多数英国知识分子一样，放弃了任何宗教信仰，抛弃了基督教信仰，成为无神论者或不可知论者。然后二战爆发了，他的无神论信念陷入了混乱之中。二战结束后，奥登从另一个角度重新审视了他的信仰，并最终皈依了基督教，这令他的许多同行感到震惊。但他解释了原因。
+
+让我这样来设置背景：他一直相信，在二战之前，基本上所有有理性、开明的文化人都会相信人权、自由、民主和为所有人提供正义。但突然间，纳粹主义在德国被接受了，并且德国作为一个文化先进、教育发达的社会，与英国一样科学、艺术和音乐等各方面都首屈一指。你知道的，他们并没有因为接受了一种不认为所有人都有人权、所有人都应得到公正的哲学而变得落后。奥登就是用这种方式来解释他所经历的变化。
+
+引用：“如果我确信那些受过高等教育的纳粹是错的，而我们这些受过高等教育的英国人是对的，那么是什么赋予了我们的价值观合法性，并使他们的价值观无效？现在那些因邪恶化身和希特勒作恶而痛哭向天的英国知识分子没有地方可以哭泣，因为自由思想的趋势一直是削弱对绝对真理的信任。相反，它试图让理性成为裁判。” 问题在于，要么我们服侍那无条件的绝对，要么就会有一个希特勒式的怪物用基于理性的铁规来做坏事。
+
+我们总是说福音改变了这一切，并且相信确实如此。这也是为什么在这里，在“生命中的福音”，八月是分享之月。整个八月，我们邀请成千上万的听众迈出一小步，向上帝为你安排的人分享福音。如果您在这个月对“生命中的福音”有所捐赠，我们将赠送您两本《理解神》（Making Sense of God）一书，这是由提姆·凯勒所著的一份强有力的资源，探讨了在当今世界中基督教如何在情感、文化和理性方面都站得住脚。
+
+这不仅是感谢您的礼物，也是一种方式，让您可以通过与朋友共读这本书，送给同事一本，或者将两本分发给正在探索基督教信仰的人来开始或继续福音对话。这是一个简单的方式来分享福音。要请求获得两本《理解神》，请访问 gospelinlife.com/slash-give。再次强调，gospelinlife.com/slash-give。
+
+现在，请听戴尔博士接下来的讲道。因此，他意识到这一点：没有上帝，我们是可以解释道德感觉的。社会建构或进化生物学可以说明你有这种道德感觉，但没有上帝就无法相信道德义务。你听到了吗？
+
+道德感觉是指我主观上觉得这样。而道德义务则是无论你是否愿意，你都必须这样做。如果没有任何上帝，那么道德义务就是虚幻的，但我深知道德义务并非虚幻，因此必定存在一个上帝。他一直过着这样的生活，但不愿承认这一点。
+
+你看？罗马书2章。看看时间，再给你举一个例子。最近不是转化故事，而是几年前在《高等教育纪事报》上读到的一篇文章。
+
+一位女性文化人类学家，在东北部一所大学工作，是一位备受尊敬的学者。她在研究某些非洲社会时发现，那里的妇女受到极大的压迫，有包办婚姻、女性割礼等事情，这让她非常不安。但她是一名文化人类学家，并接受了道德感觉存在但没有道德义务的观点。她的理解是，作为一名怀疑论且世俗的人，她认为你的道德感觉要么是由于文化构建在你身上，要么是因为生物学。
+
+因此，当她在非洲时，有时会反对那些社会中权威人士对待女性的方式，而这些人回应说：不要把你们白人的西方个人主义人权观念强加于我们，你怎么敢认为你们的文化和价值观是对的，而我们的就是错的？对我们来说正确的事情就是正确的。这让她非常愤怒，因为她意识到自己根本无法反驳。没有答案，对吧？
+
+她没有任何基础来支持托马斯·内格尔所说的“价值现实主义”。她也没有任何基础来说某事是真正、客观、普遍或绝对的错误。所以你可以这么说：我主观觉得有些事情不对，但我无法基于任何理由说某事实际上、客观上、普遍地或者真实地是错的。但你知道她在整篇文章结尾怎么说吗？
+
+她说：“最终，尽管我没有基础，我还是不可避免地相信女性平权是普遍正确的。” 看来，她其实离承认保罗的观点很近了，但她就是不肯走那一步。问题是，如果你的前提是没有上帝，因此没有道德义务，这导致你得出一个你知道不真实的结论——即在非洲压迫女性真的没什么不对，那你为什么不改变你的前提呢？为什么不停下来重新思考？
+
+所以你看，真正成为一个相对主义者是不可能的。另一方面，在第二段中，我给你们的时间较少，因为我们已经讨论过一些内容，并且接下来还会继续讨论。现在转向那些自称是犹太人的人：如果你依赖律法，保罗转而对那些说他们绝对相信《圣经》，接受《圣经》并根据《圣经》生活的人都进行了批评。我们可以称这些人是道德主义者，而不是相对主义者。
+
+他们相信道德，并基于道德生活，他们会说要尊崇上帝、遵守他的法律。但别忘了保罗已经说过的话：你们在审判日也不会比相对主义者更有希望，只是更一致而已，这恐怕不会给你们带来多少安慰。那么为什么成为道德主义者也是不可能成功的呢？答案就在21节到23节中，基本上是这样的：你教导别人时，你自己不也该这么做吗？
+
+你谴责偷窃时，自己却在偷窃吗？你说人们不应通奸，但自己却去通奸了吗？你厌恶偶像，却抢夺庙宇吗？你们自夸有律法，却不约束自己，反而羞辱神，违背律法吗？
+
+现在，如果你仔细看，他给你提供了两个理由：无论道德家还是相对主义者，在审判日都无法站立。为什么呢？一是虚伪，二是拜偶像。虚伪我们都知道。
+
+事实上，如果这里标准很高，而没有人能达到这些标准，保罗就举了一些显而易见的虚伪例子。比如说，我不知道任何一个基督教教会里，每个人都说自己不会通奸，但仍然有人会通奸；或者每个人都说不会偷窃、不会作假证，但实际上却有偷盗、撒谎和贪污的现象。所以他在一方面指出，首先，就是虚伪的问题。事实上，我们谁也没有做到。
+
+但是还有拜偶像的问题。现在这个有点隐晦，其实是个谜团，除非你问注释家这指的是什么，他们通常都说同样的意思。注意，这里他是在对犹太人说话。记得从第17节开始，他说：“你们自称为犹太人，靠律法为荣。
+
+” 接着说：“你们中间有人不淫乱吗？”然后又说：“你们厌恶偶像，难道抢夺庙宇吗？”这一直是个谜团，因为似乎没有证据表明犹太人在罗马会抢劫庙宇。他写信给罗马的犹太人，对吧？
+
+---
+
+## 真假义行 / True and False Righteousness
+
 So he's speaking metaphorically. If he's obviously not speaking literally, and metaphorically, as we often point out, the Bible says, it's one thing to say, I believe in God, I'm living for God, when actually you're living for money, or you're living for power, or you're living for status. And at this point, I think what Paul is trying to show us is what I would call the terrible inwardness of the law.
 
 Terrible? Yes. When Jesus in the Sermon on the Mount expounds the law, he shows the terrible inwardness of it.
@@ -279,6 +321,58 @@ And there's always this kind of inward churn and a lack of rest and a lack of pe
 What is the solution? The solution's a new heart. And how do you get a new heart?
 
 Circumcision of heart. It can only happen obviously by not relying on the law. Well, what do you rely on?
+
+---
+
+他说：“你们这些在罗马的犹太人啊，晚上不要去抢夺庙宇，把偶像带回家。”犹太人不会这么做。所以他在比喻。如果他显然不是字面上的意思，而是比喻的话，《圣经》说，一个人可以说自己相信神、为神而活，但实际上却为了钱、权力或地位活着——到了这一点，我认为保罗想让我们看到的是律法的可怕内在性。
+
+可怕吗？是的。当耶稣在登山宝训中阐述律法时，他就展示了律法的这种内在性。你知道他怎么说的，你们听过别人说，不要杀人，但我给你们说的是，不要怀恨在心。
+
+你们听过别人说，不要通奸，但我给你们说的是，不要有淫念。你们听过别人说，不要偷窃，但我给你们说的是，不要嫉妒，也不要吝啬。你们听过别人说，不要犯奸淫罪，但我给你们说的是，要绝对忠贞和忠诚。耶稣在这里展示的，其实是律法禁止的行为背后所蕴含的精神。
+
+比如，杀人是从怀恨在心开始的，这种怨恨被不断滋长、培养，最终才变成了杀人。那么，圣经说“不要杀人”，其实是在告诉我们，要用全心去爱人，而不是怀恨在心。当圣经说“不要偷窃”时，意思是你要从不嫉妒，并且要极其慷慨大方。当圣经说“不要犯奸淫罪”时，意思是要绝对忠贞和忠诚。
+
+而当耶稣讲登山宝训的时候，你就会发现，天啊，没有人能达到这个标准。然而我们却希望别人能达到这样的标准。有一件事我忘了具体的名字了，有个女士曾在某个英语培训班上教过英语。不，她是在某所公立大学里教英语的。
+
+她是信徒，但那是一所公立学校，有一次她的班上读了登山宝训。大多数学生之前都没读过这段经文，甚至有些人连它是什么都不知道。有趣的是，他们写了一些回应论文，大部分人都非常讨厌这段话，完全讨厌。我记得一篇文章中提到，大多数人说，我不喜欢登山宝训，因为它让我感到很内疚。
+
+你知道为什么吗？有人还说，我不喜欢登山宝训，因为没有人能做到这一点。但这里有一个讽刺的地方：你希望生活在这样一个地方吗——在那里人们总是优先考虑你的需求，而不是自己的；一个完全诚实透明、从不隐瞒任何事情，并且始终信守承诺的地方？看看，我们希望生活在按照登山宝训行事的社会里，但自己却不希望被那标准约束，因为我们觉得，这太可怕了。
+
+我并不喜欢登山宝训，它让我感觉非常糟糕。大卫·马丁·罗德斯在他的关于登山宝训的讲道中说，真正读过登山宝训的人不会说它是多么美好。他们会说，上帝救了我脱离登山宝训。因为你看，我们希望别人这样行事，但自己却不希望自己被约束。
+
+这就是虚伪，而它将在最后的日子受到谴责。它将在最后的日子受到谴责。那么我们的指望在哪里呢？有指望吗？
+
+哦，天哪。如果真的没有神的审判者，如果没有上帝，那世界还有什么指望？有什么指望能纠正所有的不公和那些可怕的事情？我们有什么基础去尝试纠正这些事情呢？
+
+如果没有审判者，如果没有神的审判者，那世界还有什么指望？但如果有一个神的审判者，那我、你和其他人又有什么指望呢？嗯，我们陷入了困境。感谢上帝给了我们0.3。
+
+因为0.3带我们到了最后，而在最后有一段非常奇怪的讨论，对我们大多数人来说很陌生，那就是割礼，但其中的核心核心就在第28节：“不是外邦人只是在外表上是犹太人；也不是只在肉体上受过割礼的人就是犹太人。真正作犹太人的，才是内在上是犹太人，并且心和灵都经过神的割礼。” 他说的意思是唯一的指望是一个新心。心上的割礼意味着重生，意味着一个新心，一个内在的新心。
+
+那么这怎么运作呢？为什么？他在说什么？首先，让我们谈谈割礼。
+
+这一整段话都是关于割礼的。在旧约中，割礼是表明与神立约关系的正确礼仪。对于以色列人来说，这是他们展示自己与神有立约关系的方式。割礼是他们与神的关系的标志。
+
+他们遵守神的律法，并顺服祂。所以当一个家庭中的所有男性都接受了割礼时，这就意味着他们受神的律法约束，并且在顺从神、跟随神。但这里有一个问题。什么问题呢？
+
+问题出在第17节。你们这些自称为犹太人的，如果依靠律法自夸，在神面前自鸣得意，然后他接着谈到所有的问题。现在，这里的关键在于“律法依赖”。请注意，并不是说遵守律法有错。
+
+这很好。但什么是“律法依赖”呢？它与遵守律法不同。“律法依赖”会让你自夸：我与神有关系。
+
+为什么？因为我是个好人。我是个正直的人。我不做坏事，不做那件事。
+
+我做这些事和那些事，所以我是个好人。你看，“律法依赖”会深深地影响你的心灵。你知道为什么吗？你会在优越感和自卑感之间摇摆不定。
+
+一方面，内心深处我们知道像读过登山宝训的学生一样，我们知道自己没有做到最好，没有达到应有的标准。我们知道自己不是应该成为的样子。所以当你“律法依赖”，当你宣称自己遵守神的律法，并试图以这种方式保持道德时，你就会知道神会赐福给你，带你进入天堂。如果你像这样“律法依赖”，一方面你会一直挣扎在自卑、内疚和羞愧中，非常敏感于批评，总是觉得自己有点失败；另一方面有时你会感到非常优越因为你做到了这些事和那些事，这会让你变得自义，并且陷入循环。
+
+你在优越感与自卑感之间摇摆不定。总会有这种波动。它不会让你成为一个好人。而且内心总是这样翻腾不安，得不到安宁和平安，反反复复。
+
+你看，你需要一些东西。你需要内心中没有的东西。那解决方案是什么？答案是一个新心。
+
+那么怎么得到一个新心呢？就是心灵的割礼。显然只能通过不依靠律法来实现。那你依靠什么呢？
+
+---
+
+## 问题的核心 / The Heart of the Matter
 
 Here's what you rely on. Why was circumcision used as a sign? Anybody know?
 
@@ -351,195 +445,6 @@ We pray in Jesus' name, amen. Again, it's all at gospelandlife.com. You can also
 Today's sermon was recorded in 2013. The sermons and talks you hear on the gospel and life podcast were recorded between 1989 and 2017, while Dr.
 
 ---
-
-**讲员**: 提摩太·凯勒 (Tim Keller)
-
-
-欢迎来到《福音与生命》。当有人在思考人生的 deepest questions 时，我是谁？世界出了什么问题？真正能让我完整的是什么呢？
-
-耶稣不只是给我们答案，他更给了我们他自己。在这个月的播客中，Tim Keller 将探讨我们如何分享我们在基督里的盼望作为人生意义和目的的答案。你可能已经知道，八月份是Goen 的分享月，在《福音与生命》中，我们精心准备了多种免费资源，帮助你采取简单的步骤向身边的人分享福音。你可以通过 gospelandlife.com/share 访问这些资源。
-
-我们认为上帝用小行动成就大事，并邀请你在本月做一些简单的小事去分享福音，因为福音改变了一切。这段经文来自罗马书第2章12至29节： “凡不按律法行事的，就受律法所管治；无论是外邦人，是犹太人，都必在上帝面前受审判。原来写律法刻在他们心上的，他们的良心也给他们作见证，并且彼此责备，彼此劝诫。” 你们这行律法的人，无论你坐东边、西边，都要遵行律法上所记的一切话，好使你们按律法无过可指摘。
-
-因为外邦人虽然没有律法，若顺着本性而行那些律法所要求的，他们虽然不听律法，自己就是自己的律法了。这就是他们心里显出律法的证据；他们的良心也作见证，并且彼此责备，或彼此辩解。这定罪或辩护的事，在那日子要作为审判，照着我所传的福音。现在你们这些自称为犹太人、倚靠律法、夸耀在上帝面前的人啊，你们若施行律法的要求，又从心里遵守律法上所记载的义行，你们就应当如此行。
-
-你们既然教导别人，岂不教导自己吗？你们既然禁止偷窃，岂还偷窃吗？你们既然说人不可奸淫，岂还奸淫吗？你厌恶偶像，却抢夺庙宇吗？
-
-你以律法为荣，却不遵守律法，使神的名在外邦人中被亵渎吗？割礼若守律法就有益处；不然，就变成未受割礼了。既然那些未受割礼的人顺从律法的要求，他们岂不也当被视为受割礼了吗？那未受割礼而行律法要求的，将要审判你们这些虽受割礼却违背律法的人。
-
-不是外貌上的犹太人就是犹太人；也不是肉身上的割礼才是割礼。**真正的是**犹太人是里面作成的；**真正的割礼也是**心里的割礼，在灵里而不是在肉体上。这样的人，称赞他的不是属血气的人，而是神。这是主的话。
-
-现在我们有一系列的信息叫做“公共信仰”，分享内心之中的希望，并且这正是我们在一个多元化的社会中所需要的——一个开放而多元的社会，这是我们国家所追求的。**我们需要找到与他人分享我们的深层信仰的方式，在彼此之间诚实地表达自己，但同时也要尊重对方并促进和平。**但是有人反对我说：“不，不，不，不！看哪，不是所有人都有信仰，也不是所有人的宗教信仰都一样，你们这些有宗教信仰的人最好把信仰保持私密。
-
-否则我们只会互相争斗。” 所以并不是所有的人都有宗教信仰，你们中有些人确实有宗教信仰，但请把它保持私密。否则我们会互相争斗。这种说法是不真实的，也是不公平的，我认为我可以通过一个问题来向你说明为什么。
-
-你相信人权吗？你相信所有人的尊严都是平等的，并且没有人的人权可以被剥夺和侵犯吗？你相信这一点吗？如果你住在纽约或者西方社会的大多数地方，你当然相信人权。
-
-那么你怎么能科学地证明人权的存在呢？你不能。没有人曾在实验室里解剖过“人权”。没有办法证明这种东西。
-
-顺便说一句，也没有实证证据支持这一点。每个人都有平等尊严的想法，没有任何科学研究能够证明所有人类都是平等的。我们几乎在任何方面都没有平等之处。亚里士多德和他的许多人都不相信每个人都享有同等的人权。
-
-实际上，今天可能有一半的人类并不相信人人享有平等的人权。所以，如果你相信人权，你是否意识到这一点？这是一种信仰。这是一种信仰。
-
-甚至尽管你不称之为宗教信仰，因为它关乎人性和生活的本质，而这些都是无法证明的，并不是每个人都能自明的东西，所以它是一种信仰。你看这种说法是多么不公平：你们中那些称自己的信仰为宗教的人必须将它们保持私密，而我们这些不这样称呼的人却可以随心所欲地使用它们。这完全是不公平的。但我们还是回到了我们最初所说的那个问题上，即如何避免只是互相喊叫？
-
-这是正确的是非标准。不是，这是是非标准，我们只是互相喊叫。但也许有一种方式可以帮助我们冷静下来，并可能促进更加文明的对话，那就是提出一个更根本的问题：你的道德信念——比如人权——是从哪里来的？你从哪里获得你的道德信念？
-
-你是基于什么来形成这些信念的？你怎么确定什么是正确和错误的？这个问题之所以伟大是因为它让每个人慢下来。实际上我们都有非常强烈的关于什么是正确和错误的道德信念。
-
-但一旦你说，好吧，为什么你这么认为？你凭什么相信这一点？从哪里得到的？我们一开始往往不知道该说什么。
-
-这让我们停下来思考和讨论，因此我们突然有了更好的对话，更好的公共对话。现在我要说，在我所知道的地方，几乎没有一个地方能提供如此有趣、巧妙且富有创造力的答案来回答“你的道德信念是从哪里来的？”这个问题。那就是罗马书第二章。
-
-而在这部分，保罗将告诉我们三件事。第一段，即12至16节，保罗告诉我们，没有人能够成功地成为相对主义者。第二段，17至24节，保罗的论点是，另一方面，也没有人真正能成功地成为道德家。然后在这一段的最后一部分，保罗说，因此，这就是我们的唯一希望。
-
-没有人能够成功地成为相对主义者。没有人真正能成功地成为道德家。因此，这就是我们的唯一希望。让我们看看这三件事。
-
-首先，没有人能够成功地成为相对主义者。现在来看第12节：“凡没有律法犯了罪的，也必不按律法灭亡；凡在律法以下犯了罪的，也必按律法受审判。”那么他在说什么呢？他指的是“律法”。
-
-这里的“律法”是指上帝在圣经中启示的道德律。当然，在保罗的时代，他是指旧约，但在圣经中。他说的是，有些人有这个信仰。也就是说，他们相信上帝的道德律在圣经中被启示，并且他们接受它、拥抱它并采纳它。
-
-但还有另一些人没有这个。换句话说，他们要么从未听说过，未曾读过圣经，甚至不知道它的存在，或者他们不接受它。当时，在那些相信圣经是启示道德律的地方，大多是犹太人，当然不是全部。也有外邦人也这样认为，但主要是犹太人，所以保罗试图表达的是，有些人接受了上帝的道德律在圣经中被启示，而另一些人没有接受。
-
-那就有律法的人和没有律法的人。所以他怎么说他们呢？他说了三件事，其中一件很有趣，一件很惊人，还有一件很激进且有争议。这在第14节到第15节。
-
-确实，外邦人没有律法，但因着本性行出律法所要求的事，他们自己就有律法，虽然没有律法，但他们的心里显明律法的要求。他们的良心也在作见证，有时叫他们羞愧，有时也替他们辩护。现在他要说的是什么。这里有趣的一点是：所有脱离律法的人在审判日也会脱离律法而灭亡；所有受律法约束的人则会因着律法被审判。
-
-外邦人没有律法，但他们的心里仍然知道一些道德规范，所以他们会根据这些标准接受审判。这很有趣。我说过这是有趣的，对吧？好的。
-
-其次，他说了另一件更惊人的事。即使你没有把圣经作为你的道德标准，他也暗中提到这一点。在第12节的开头，你在审判日仍然会灭亡。因为所有脱离律法的人最终都会灭亡。
-
-为什么呢？因为在你们的心里，仍然有一些关于道德律的知识，你们会被根据这些知识来审判。当我年轻的时候，帮助我理解这个道理的一个比喻，是我在一本弗兰西斯·施韦策写的书中读到的，他谈论罗马书第2章时用了这样一个比喻，虽然有点夸张，但很好地传达了这个思想。有些弟兄姊妹可能之前听过我引用过这段话，因为它对我很有帮助。
-
-他说，当圣经说神不会用任何标准来审判你，而这个标准是你自己已经知道的时，这就像这样：他这样说，当你出生的时候，神会在你的脖子上系一个看不见的录音机。当然，它是看不见的，你既感觉不到也听不见。它所做的就是记录下你说给其他人的话，告诉他们应该怎么做。它只是录下了你的道德标准。
-
-所以每当你说你应该这样做或你应该那样做时，它就在录你的道德标准。因此，在审判日那天，你会出现在审判日面前，而你已经很生气了，因为你不知道会有这一天，于是你就站在那里。这就像这样。这就像是……有点儿夸张，但它传达了这个意思。
-
-这就是旧约应该说的内容。所以你在那里。我要检查一下审判日。但他说：“嘿，嘿，嘿，别急。
-
-”“我是个公平的人。”“我只是根据你的标准来评判你。” 于是他把那个看不见的录音机从你的脖子上取下来。“我不知道它在那里。
-
-”“不，它是看不见的。” 然后他把它放下说，“我只是根据你的标准来评判你，你自己播放吧。”看看保罗在说什么，以及你内心知道的事情。我希望没有人会站得住脚。
-
-世界上没有一个人，历史上也没有任何人能在审判日那天通过这个标准。没有人能。没有人曾经达到过他们自己强加给别人的道德标准。所以第一点是神非常公平，他是全地的审判者。
-
-这就是保罗的意思，但这是非常公平的。他不会用任何你之前没有设定的标准来评判你。但是另一方面，没有人能通过审判日。然后他说了一些非常激进和有争议的话。
-
-当他说“注意”时，他不只是说那些没有上帝律法的人有他们自己的道德标准。他是这样说的：事实上，外邦人即使没有律法，在本性上也行出了律法所要求的事。什么是律法？那就是这里所说的。
-
-而且请注意，它并没有说那些不信圣经的人内心和良心中都知道圣经中的所有内容。那会是荒谬的。有很多人从未读过圣经，对圣经一无所知。但圣经确实说了，在他们内心深处、在他们的良心中，有一些上帝道德律法的内容，因为所有人都是由上帝创造的。
-
-在最深层、最深层、最深层，每个人都有某种程度上理解上帝道德律法的知识，并且知道这种道德背后有神性。每个人都在按照这个观念生活着。因此，从某种意义上说，没有人真正是相对主义者。这非常非常有争议。
-
-但让我花一点时间来给你提供一些证据。我一直觉得有趣的是，在我多年来研究过的一些非常高智商、聪明和思想深刻的知识分子或教授们的归信经历中——他们一开始是怀疑论者、无神论者或不可知论者，后来却皈依了基督教。当我去研究这些人的经历时，我发现很少有人通过仔细审视上帝存在的论证或复活的证据而归信基督说：“啊，我看到这些证据表明这是真的。” 他们并不是这样看待问题的。
-
-通常情况下，他们会像这样归信：通常我所见到的是，他们意识到自己的道德观念和直觉非常强烈地认为上帝的存在，并且只是没有诚实面对这一点。于是他们开始认识到，在他们的道德观念和直觉中，实际上已经感受到了上帝的存在，他们本能地意识到了上帝的存在，但不愿承认，现在却愿意承认了。这就是他们成为基督徒的方式。这真是令人惊讶的事情，你可能会问：这是怎么发生的呢？
-
-让我给你举三个例子，其中一个不是转变的例子。事实上，我要给你们讲的是一本哲学书的小结，所以请耐心听一下。即使你觉得有点难理解，也很有趣。但如果你觉得难以理解，请立即给我举例说明，帮助你更好地理解。
-
-最近，一位非信徒、自称无神论者或不可知论者的汤姆·内格尔（Tom Nagel），纽约大学的哲学教授，写了一本书，引起了轩然大波，因为这本书论证得非常精彩。让我读一下书名吧，书名叫《心灵与宇宙》，但关键在于副标题。准备好了吗？副标题是：“为什么物质主义、新达尔文论自然观几乎肯定是错误的。
-
-”让我给你讲讲核心内容。他书中有一章叫“价值”，他说的是进化物质主义。顺便说一句，他对进化本身并没有反对，他所说的进化物质主义是指你只是一个身体，你的所有特质都是通过自然选择而来的。某个祖先具有的特征有助于生存，因此这种特征被传递给了你。
-
-所以你只是一个身体，你的一切都严格是自然选择的结果，它帮助你生存下来。这就是进化的物质主义。他说，在这种解释中，**这意味着你所有的道德感觉只是主观的感觉。**例如，他提出：在这一观点下，为什么我们大家都认为为了娱乐而折磨别人是错误的？
-
-关于折磨有很多争论，但关键在于，难道我们大家不都相信为了娱乐而折磨别人是极其错误的吗？如果你真的找到有人不这么认为，我们会觉得他们非常病态。他们可以扭曲它。所以我们都知道虐待取乐是不对的，为什么我们会这么认为呢？
-
-而且请注意，在进化论或自然主义的观点下，这是一种主观信念，你之所以相信这一点，是因为你的祖先感觉如此，并且这种感觉帮助了他们的生存。那些喜欢虐待取乐的人没有存活下来，可能是因为他们互相残杀而死去。我们不知道具体原因，但这正是问题的关键：是什么机制导致了这一切？关键在于，我们所有人都认为虐待取乐是不对的，是因为那些觉得虐待取乐可以接受的人已经灭绝了。
-
-你的头发颜色是由进化决定的，同样，你对虐待取乐感到不道德的感觉也是由进化决定的，它们都源自同一个地方——就像你的头发颜色和道德感觉一样，属于同一类别。这些都是主观的。所有你的道德感觉都是主观的，你觉得这些事情是错的，是因为它们帮助了你的祖先生存下来，并不是因为它们实际上、客观上、普遍地、真正地就是错的。它们只是因为你感到它们是错的而被认为是错的，而不是因为它们本身实际、客观、普遍和真正地就是错的，而是主观上的错误。
-
-那么接下来会发生什么呢？事实上，我们发现了一个生活在世界某个偏远地区的部落，他们的进化方式非常不同。首先，他们出生时头发就是白色的，皮肤一半红色一半黄色，非常不同。但他们也觉得虐待取乐很有趣，非常喜欢它。
-
-现在他们开始向外扩张，你会对他们有什么看法呢？你可能会说：“好吧，我知道他们无法控制自己的头发颜色之类的事情，但虐待取乐是不对的。”那么为什么不对呢？你觉得不对是因为你的进化，而他们觉得可以接受是因为他们的进化。
-
-为什么你应该因为他们的头发颜色和虐待取乐的习惯而有所不同呢？以下是汤姆·纳格尔（Tom Nagel）的观点：没有人会相信折磨取乐只是主观上不对。我们认为它实际上是、客观地和普遍地不对，无论他们是否这么认为。因此，如果进化无神论是真的，那么价值现实主义——即事物实际上和真正是不对的这一理念——就不可能为真；但既然我们知道有些事情确实是不对的，那么进化无神论也就不可能为真。
-
-明白了吗？看看这有多简单？你可能会说这只是个障眼法。让我给你举两个个人的例子。
-
-W.H. 奥登（W.H. Auden），历史上一位伟大的诗人，20世纪的伟大作家之一，W.H. 奥登像他那个时代的大多数英国知识分子一样，放弃了任何宗教信仰，抛弃了基督教信仰，成为无神论者或不可知论者。然后二战爆发了，他的无神论信念陷入了混乱之中。二战结束后，奥登从另一个角度重新审视了他的信仰，并最终皈依了基督教，这令他的许多同行感到震惊。但他解释了原因。
-
-让我这样来设置背景：他一直相信，在二战之前，基本上所有有理性、开明的文化人都会相信人权、自由、民主和为所有人提供正义。但突然间，纳粹主义在德国被接受了，并且德国作为一个文化先进、教育发达的社会，与英国一样科学、艺术和音乐等各方面都首屈一指。你知道的，他们并没有因为接受了一种不认为所有人都有人权、所有人都应得到公正的哲学而变得落后。奥登就是用这种方式来解释他所经历的变化。
-
-引用：“如果我确信那些受过高等教育的纳粹是错的，而我们这些受过高等教育的英国人是对的，那么是什么赋予了我们的价值观合法性，并使他们的价值观无效？现在那些因邪恶化身和希特勒作恶而痛哭向天的英国知识分子没有地方可以哭泣，因为自由思想的趋势一直是削弱对绝对真理的信任。相反，它试图让理性成为裁判。” 问题在于，要么我们服侍那无条件的绝对，要么就会有一个希特勒式的怪物用基于理性的铁规来做坏事。
-
-我们总是说福音改变了这一切，并且相信确实如此。这也是为什么在这里，在“生命中的福音”，八月是分享之月。整个八月，我们邀请成千上万的听众迈出一小步，向上帝为你安排的人分享福音。如果您在这个月对“生命中的福音”有所捐赠，我们将赠送您两本《理解神》（Making Sense of God）一书，这是由提姆·凯勒所著的一份强有力的资源，探讨了在当今世界中基督教如何在情感、文化和理性方面都站得住脚。
-
-这不仅是感谢您的礼物，也是一种方式，让您可以通过与朋友共读这本书，送给同事一本，或者将两本分发给正在探索基督教信仰的人来开始或继续福音对话。这是一个简单的方式来分享福音。要请求获得两本《理解神》，请访问 gospelinlife.com/slash-give。再次强调，gospelinlife.com/slash-give。
-
-现在，请听戴尔博士接下来的讲道。因此，他意识到这一点：没有上帝，我们是可以解释道德感觉的。社会建构或进化生物学可以说明你有这种道德感觉，但没有上帝就无法相信道德义务。你听到了吗？
-
-道德感觉是指我主观上觉得这样。而道德义务则是无论你是否愿意，你都必须这样做。如果没有任何上帝，那么道德义务就是虚幻的，但我深知道德义务并非虚幻，因此必定存在一个上帝。他一直过着这样的生活，但不愿承认这一点。
-
-你看？罗马书2章。看看时间，再给你举一个例子。最近不是转化故事，而是几年前在《高等教育纪事报》上读到的一篇文章。
-
-一位女性文化人类学家，在东北部一所大学工作，是一位备受尊敬的学者。她在研究某些非洲社会时发现，那里的妇女受到极大的压迫，有包办婚姻、女性割礼等事情，这让她非常不安。但她是一名文化人类学家，并接受了道德感觉存在但没有道德义务的观点。她的理解是，作为一名怀疑论且世俗的人，她认为你的道德感觉要么是由于文化构建在你身上，要么是因为生物学。
-
-因此，当她在非洲时，有时会反对那些社会中权威人士对待女性的方式，而这些人回应说：不要把你们白人的西方个人主义人权观念强加于我们，你怎么敢认为你们的文化和价值观是对的，而我们的就是错的？对我们来说正确的事情就是正确的。这让她非常愤怒，因为她意识到自己根本无法反驳。没有答案，对吧？
-
-她没有任何基础来支持托马斯·内格尔所说的“价值现实主义”。她也没有任何基础来说某事是真正、客观、普遍或绝对的错误。所以你可以这么说：我主观觉得有些事情不对，但我无法基于任何理由说某事实际上、客观上、普遍地或者真实地是错的。但你知道她在整篇文章结尾怎么说吗？
-
-她说：“最终，尽管我没有基础，我还是不可避免地相信女性平权是普遍正确的。” 看来，她其实离承认保罗的观点很近了，但她就是不肯走那一步。问题是，如果你的前提是没有上帝，因此没有道德义务，这导致你得出一个你知道不真实的结论——即在非洲压迫女性真的没什么不对，那你为什么不改变你的前提呢？为什么不停下来重新思考？
-
-所以你看，真正成为一个相对主义者是不可能的。另一方面，在第二段中，我给你们的时间较少，因为我们已经讨论过一些内容，并且接下来还会继续讨论。现在转向那些自称是犹太人的人：如果你依赖律法，保罗转而对那些说他们绝对相信《圣经》，接受《圣经》并根据《圣经》生活的人都进行了批评。我们可以称这些人是道德主义者，而不是相对主义者。
-
-他们相信道德，并基于道德生活，他们会说要尊崇上帝、遵守他的法律。但别忘了保罗已经说过的话：你们在审判日也不会比相对主义者更有希望，只是更一致而已，这恐怕不会给你们带来多少安慰。那么为什么成为道德主义者也是不可能成功的呢？答案就在21节到23节中，基本上是这样的：你教导别人时，你自己不也该这么做吗？
-
-你谴责偷窃时，自己却在偷窃吗？你说人们不应通奸，但自己却去通奸了吗？你厌恶偶像，却抢夺庙宇吗？你们自夸有律法，却不约束自己，反而羞辱神，违背律法吗？
-
-现在，如果你仔细看，他给你提供了两个理由：无论道德家还是相对主义者，在审判日都无法站立。为什么呢？一是虚伪，二是拜偶像。虚伪我们都知道。
-
-事实上，如果这里标准很高，而没有人能达到这些标准，保罗就举了一些显而易见的虚伪例子。比如说，我不知道任何一个基督教教会里，每个人都说自己不会通奸，但仍然有人会通奸；或者每个人都说不会偷窃、不会作假证，但实际上却有偷盗、撒谎和贪污的现象。所以他在一方面指出，首先，就是虚伪的问题。事实上，我们谁也没有做到。
-
-但是还有拜偶像的问题。现在这个有点隐晦，其实是个谜团，除非你问注释家这指的是什么，他们通常都说同样的意思。注意，这里他是在对犹太人说话。记得从第17节开始，他说：“你们自称为犹太人，靠律法为荣。
-
-” 接着说：“你们中间有人不淫乱吗？”然后又说：“你们厌恶偶像，难道抢夺庙宇吗？”这一直是个谜团，因为似乎没有证据表明犹太人在罗马会抢劫庙宇。他写信给罗马的犹太人，对吧？
-
-他说：“你们这些在罗马的犹太人啊，晚上不要去抢夺庙宇，把偶像带回家。”犹太人不会这么做。所以他在比喻。如果他显然不是字面上的意思，而是比喻的话，《圣经》说，一个人可以说自己相信神、为神而活，但实际上却为了钱、权力或地位活着——到了这一点，我认为保罗想让我们看到的是律法的可怕内在性。
-
-可怕吗？是的。当耶稣在登山宝训中阐述律法时，他就展示了律法的这种内在性。你知道他怎么说的，你们听过别人说，不要杀人，但我给你们说的是，不要怀恨在心。
-
-你们听过别人说，不要通奸，但我给你们说的是，不要有淫念。你们听过别人说，不要偷窃，但我给你们说的是，不要嫉妒，也不要吝啬。你们听过别人说，不要犯奸淫罪，但我给你们说的是，要绝对忠贞和忠诚。耶稣在这里展示的，其实是律法禁止的行为背后所蕴含的精神。
-
-比如，杀人是从怀恨在心开始的，这种怨恨被不断滋长、培养，最终才变成了杀人。那么，圣经说“不要杀人”，其实是在告诉我们，要用全心去爱人，而不是怀恨在心。当圣经说“不要偷窃”时，意思是你要从不嫉妒，并且要极其慷慨大方。当圣经说“不要犯奸淫罪”时，意思是要绝对忠贞和忠诚。
-
-而当耶稣讲登山宝训的时候，你就会发现，天啊，没有人能达到这个标准。然而我们却希望别人能达到这样的标准。有一件事我忘了具体的名字了，有个女士曾在某个英语培训班上教过英语。不，她是在某所公立大学里教英语的。
-
-她是信徒，但那是一所公立学校，有一次她的班上读了登山宝训。大多数学生之前都没读过这段经文，甚至有些人连它是什么都不知道。有趣的是，他们写了一些回应论文，大部分人都非常讨厌这段话，完全讨厌。我记得一篇文章中提到，大多数人说，我不喜欢登山宝训，因为它让我感到很内疚。
-
-你知道为什么吗？有人还说，我不喜欢登山宝训，因为没有人能做到这一点。但这里有一个讽刺的地方：你希望生活在这样一个地方吗——在那里人们总是优先考虑你的需求，而不是自己的；一个完全诚实透明、从不隐瞒任何事情，并且始终信守承诺的地方？看看，我们希望生活在按照登山宝训行事的社会里，但自己却不希望被那标准约束，因为我们觉得，这太可怕了。
-
-我并不喜欢登山宝训，它让我感觉非常糟糕。大卫·马丁·罗德斯在他的关于登山宝训的讲道中说，真正读过登山宝训的人不会说它是多么美好。他们会说，上帝救了我脱离登山宝训。因为你看，我们希望别人这样行事，但自己却不希望自己被约束。
-
-这就是虚伪，而它将在最后的日子受到谴责。它将在最后的日子受到谴责。那么我们的指望在哪里呢？有指望吗？
-
-哦，天哪。如果真的没有神的审判者，如果没有上帝，那世界还有什么指望？有什么指望能纠正所有的不公和那些可怕的事情？我们有什么基础去尝试纠正这些事情呢？
-
-如果没有审判者，如果没有神的审判者，那世界还有什么指望？但如果有一个神的审判者，那我、你和其他人又有什么指望呢？嗯，我们陷入了困境。感谢上帝给了我们0.3。
-
-因为0.3带我们到了最后，而在最后有一段非常奇怪的讨论，对我们大多数人来说很陌生，那就是割礼，但其中的核心核心就在第28节：“不是外邦人只是在外表上是犹太人；也不是只在肉体上受过割礼的人就是犹太人。真正作犹太人的，才是内在上是犹太人，并且心和灵都经过神的割礼。” 他说的意思是唯一的指望是一个新心。心上的割礼意味着重生，意味着一个新心，一个内在的新心。
-
-那么这怎么运作呢？为什么？他在说什么？首先，让我们谈谈割礼。
-
-这一整段话都是关于割礼的。在旧约中，割礼是表明与神立约关系的正确礼仪。对于以色列人来说，这是他们展示自己与神有立约关系的方式。割礼是他们与神的关系的标志。
-
-他们遵守神的律法，并顺服祂。所以当一个家庭中的所有男性都接受了割礼时，这就意味着他们受神的律法约束，并且在顺从神、跟随神。但这里有一个问题。什么问题呢？
-
-问题出在第17节。你们这些自称为犹太人的，如果依靠律法自夸，在神面前自鸣得意，然后他接着谈到所有的问题。现在，这里的关键在于“律法依赖”。请注意，并不是说遵守律法有错。
-
-这很好。但什么是“律法依赖”呢？它与遵守律法不同。“律法依赖”会让你自夸：我与神有关系。
-
-为什么？因为我是个好人。我是个正直的人。我不做坏事，不做那件事。
-
-我做这些事和那些事，所以我是个好人。你看，“律法依赖”会深深地影响你的心灵。你知道为什么吗？你会在优越感和自卑感之间摇摆不定。
-
-一方面，内心深处我们知道像读过登山宝训的学生一样，我们知道自己没有做到最好，没有达到应有的标准。我们知道自己不是应该成为的样子。所以当你“律法依赖”，当你宣称自己遵守神的律法，并试图以这种方式保持道德时，你就会知道神会赐福给你，带你进入天堂。如果你像这样“律法依赖”，一方面你会一直挣扎在自卑、内疚和羞愧中，非常敏感于批评，总是觉得自己有点失败；另一方面有时你会感到非常优越因为你做到了这些事和那些事，这会让你变得自义，并且陷入循环。
-
-你在优越感与自卑感之间摇摆不定。总会有这种波动。它不会让你成为一个好人。而且内心总是这样翻腾不安，得不到安宁和平安，反反复复。
-
-你看，你需要一些东西。你需要内心中没有的东西。那解决方案是什么？答案是一个新心。
-
-那么怎么得到一个新心呢？就是心灵的割礼。显然只能通过不依靠律法来实现。那你依靠什么呢？
 
 这就是你要依靠的。为什么用割礼作为象征呢？你们知道吗？割礼是立约时的诅咒或惩罚的象征。
 
