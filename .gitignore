@@ -16,3 +16,7 @@ keller-sermons
 # Logs / temp
 *.log
 *.tmp
+
+# Python bytecode
+__pycache__/
+*.py[cod]

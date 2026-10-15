@@ -3,9 +3,9 @@
 generate_combined.py - 合并 transcript.md + translation.md → combined/{name}.md
 
 合并逻辑:
-  - 如果 transcript.md 和 translation.md 都有 ### 标题且数量一致 → 按标题对齐
-  - 如果只有 translation.md 有 ### 标题 → 按段落比例拆分英文
-  - 如果都没有 ### 标题 → 双语分块输出
+  - 完整保留两个源文件（包括首个标题前的内容、标题、分隔线和署名）。
+  - 没有人工核验的对齐映射时，明确输出未逐段对齐的双语全文。
+  - 不按标题数量或段落长度猜测对应关系，不添加译者署名。
 
 用法:
     python3 scripts/generate_combined.py Sermon_Name
@@ -21,7 +21,10 @@ BASE_DIR = os.path.dirname(os.path.dirname(os.path.abspath(__file__)))
 SERMONS_DIR = os.path.join(BASE_DIR, "sermons")
 COMBINED_DIR = os.path.join(BASE_DIR, "combined")
 
-FOOTER = "*翻译整理：小雷 ⚡*"
+ALIGNMENT_NOTICE = (
+    "本文件保留英文原文与中文译文的完整内容，尚未逐段对齐。"
+    " / Full source texts are preserved below; paragraph alignment has not been verified."
+)
 
 
 def has_chinese(text):
@@ -29,52 +32,8 @@ def has_chinese(text):
 
 
 def read_file(path):
-    with open(path, "r", encoding="utf-8") as f:
+    with open(path, "r", encoding="utf-8", newline="") as f:
         return f.read()
-
-
-def strip_footer(text):
-    """Remove translator footer line from content."""
-    return re.sub(r'\*翻译整理[：:].*?\*\s*$', '', text).strip()
-
-
-def split_into_sections(content):
-    """Split markdown by ### headers. Returns [(header, body), ...]."""
-    sections = []
-    current_header = None
-    current_lines = []
-
-    for line in content.split("\n"):
-        if line.startswith("### "):
-            if current_header is not None:
-                body = "\n".join(current_lines).strip()
-                sections.append((current_header, strip_footer(body)))
-            current_header = line[4:].strip()
-            current_lines = []
-        elif current_header is not None:
-            if line.strip() == "---":
-                continue
-            current_lines.append(line)
-
-    if current_header is not None:
-        body = "\n".join(current_lines).strip()
-        sections.append((current_header, strip_footer(body)))
-
-    return sections
-
-
-def extract_body_text(content):
-    """Extract body text after ## header (for flat transcripts without ### sections)."""
-    lines = content.split("\n")
-    body_start = 0
-
-    for i, line in enumerate(lines):
-        if line.startswith("## "):
-            body_start = i + 1
-            break
-
-    body_lines = [l for l in lines[body_start:] if l.strip() != "---"]
-    return "\n".join(body_lines).strip()
 
 
 def extract_metadata(translation_content, transcript_content, metadata_path):
@@ -154,33 +113,22 @@ def extract_metadata(translation_content, transcript_content, metadata_path):
     }
 
 
-def split_proportionally(text, target_sizes):
-    """Split text into chunks proportional to target_sizes (by character count)."""
-    paragraphs = [p.strip() for p in re.split(r"\n\n+", text) if p.strip()]
+def render_combined(meta, transcript_content, translation_content):
+    """Embed each complete source once, without guessing cross-language alignment.
 
-    if not paragraphs or not target_sizes:
-        return [text] if text.strip() else [""]
-
-    total_target = sum(target_sizes)
-    if total_target == 0:
-        return [text]
-
-    result = []
-    para_idx = 0
-
-    for i, size in enumerate(target_sizes):
-        if i == len(target_sizes) - 1:
-            # Last section gets all remaining paragraphs
-            chunk = paragraphs[para_idx:]
-        else:
-            proportion = size / total_target
-            n_paras = max(1, round(proportion * len(paragraphs)))
-            chunk = paragraphs[para_idx : para_idx + n_paras]
-            para_idx += n_paras
-
-        result.append("\n\n".join(chunk) if chunk else "")
-
-    return result
+    Keep source strings verbatim: even content before a heading or inside a
+    fenced code block is content, not disposable wrapper metadata. Existing
+    source credits are retained; generation itself confers no authorship.
+    """
+    return (
+        f"# {meta['title_zh']} / {meta['title_en']}\n\n"
+        f"{ALIGNMENT_NOTICE}\n\n"
+        "---\n\n## 英文原文 / English source\n\n"
+        + transcript_content
+        + "\n\n---\n\n## 中文译文 / Chinese source\n\n"
+        + translation_content
+        + "\n\n<!-- End of Chinese source -->\n"
+    )
 
 
 def generate_combined(sermon_name, overwrite=False):
@@ -206,92 +154,14 @@ def generate_combined(sermon_name, overwrite=False):
 
     meta = extract_metadata(translation_content, transcript_content, metadata_path)
 
-    zh_sections = split_into_sections(translation_content)
-    en_sections = split_into_sections(transcript_content)
-
-    parts = []
-
-    # ── Header ──
-    parts.append(f"# {meta['title_zh']} / {meta['title_en']}")
-    parts.append("")
-    parts.append(f"**讲员**: {meta['speaker']}")
-    if meta["scripture"]:
-        parts.append(f"**经文**: {meta['scripture']}")
-    if meta["series"]:
-        parts.append(f"**系列**: {meta['series']}")
-    parts.append("")
-    parts.append("---")
-    parts.append("")
-
-    # ── Body ──
-    mode = ""
-    if zh_sections and en_sections and len(zh_sections) == len(en_sections):
-        # Case 1: Both have matching ### sections → align
-        mode = "aligned"
-        for (en_h, en_body), (zh_h, zh_body) in zip(en_sections, zh_sections):
-            parts.append(f"## {zh_h} / {en_h}")
-            parts.append("")
-            parts.append(en_body)
-            parts.append("")
-            parts.append("---")
-            parts.append("")
-            parts.append(zh_body)
-            parts.append("")
-            parts.append("---")
-            parts.append("")
-
-    elif zh_sections:
-        # Case 2: Only translation has sections → split English proportionally
-        mode = "proportional"
-        en_body = extract_body_text(transcript_content)
-        zh_sizes = [len(body) for _, body in zh_sections]
-        en_chunks = split_proportionally(en_body, zh_sizes)
-
-        for i, (zh_h, zh_body) in enumerate(zh_sections):
-            en_chunk = en_chunks[i] if i < len(en_chunks) else ""
-            parts.append(f"## {zh_h}")
-            parts.append("")
-            if en_chunk:
-                parts.append(en_chunk)
-                parts.append("")
-            parts.append("---")
-            parts.append("")
-            parts.append(zh_body)
-            parts.append("")
-            parts.append("---")
-            parts.append("")
-
-    else:
-        # Case 3: Neither has sections → two blocks
-        mode = "blocks"
-        en_body = extract_body_text(transcript_content)
-        zh_body = strip_footer(extract_body_text(translation_content))
-
-        parts.append(en_body)
-        parts.append("")
-        parts.append("---")
-        parts.append("")
-        parts.append(zh_body)
-        parts.append("")
-        parts.append("---")
-        parts.append("")
-
-    parts.append(FOOTER)
-
-    output = "\n".join(parts)
+    output = render_combined(meta, transcript_content, translation_content)
 
     os.makedirs(COMBINED_DIR, exist_ok=True)
-    with open(output_path, "w", encoding="utf-8") as f:
+    with open(output_path, "w", encoding="utf-8", newline="") as f:
         f.write(output)
 
-    # Size check
-    t_size = os.path.getsize(transcript_path)
-    tr_size = os.path.getsize(translation_path)
-    c_size = len(output.encode("utf-8"))
-
-    ok = c_size >= (t_size + tr_size) * 0.8
-    icon = "✅" if ok else "⚠️"
-    print(f"  {icon} {sermon_name} ({mode}): {c_size:,} bytes")
+    # Completeness is guaranteed by verbatim source inclusion, not a size ratio.
+    print(f"  ✅ {sermon_name} (unaligned full texts): {len(output.encode('utf-8')):,} bytes")
 
     return "ok"
 
@@ -324,6 +194,8 @@ def main():
             result = generate_combined(name, args.overwrite)
             counts[result] += 1
         print(f"\nDone: {counts['ok']} generated, {counts['skip']} skipped, {counts['error']} errors")
+        if counts["error"]:
+            sys.exit(1)
     else:
         sermon_dir = os.path.join(SERMONS_DIR, args.name)
         if not os.path.isdir(sermon_dir):
