@@ -177,6 +177,19 @@ keller-sermons/
 
 ---
 
+## 生成与检查 / Generate and test
+
+当前整理流程以 [内容处理 SOP](docs/CONTENT_SOP.md) 为准。合并文件完整保留中英文源文件；未人工核验对应关系时，以明确标注的双语全文分块展示，不按标题数量或篇幅猜测逐段对应。
+
+```bash
+python3 scripts/generate_combined.py Peace --overwrite
+python3 -m unittest discover -s tests -v
+```
+
+旧入口 `scripts/translate_sermons.py` 已停用，避免旧版 3,000 字符截断逻辑被再次使用。此次定向校正范围和待核实内容见 [校正记录](docs/CONTENT_CORRECTIONS.md)。测试检验内容保留和脚本行为，不代表全部译文已完成校对。
+
+---
+
 ## 关于 Tim Keller / About Tim Keller
 
 提摩太·凯勒 (Timothy Keller, 1950-2023) 是美国著名牧师、神学家和作家，纽约救赎主长老教会的创始人。他的讲道以深刻的神学洞见和对现代文化的敏锐理解著称。

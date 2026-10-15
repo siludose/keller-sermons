@@ -30,7 +30,7 @@ Now, the opposite of joy is sadness or despair, grief. But the opposite of peace
 
 By the way, this word anxious is not the normal, it's not normal care and concern. If you love somebody, if you love something, if you love anything, you have the burden of love and concern that comes with that automatically. But this is a word that actually means to be torn up, to be torn into pieces by debilitating worry and fear.
 
-So what is this piece of God? Two things, just to start. Two things that Paul tells us about it.
+So what is this peace of God? Two things, just to start. Two things that Paul tells us about it.
 
 First, it's an inner calm and equilibrium. Because here down at the bottom, in verse 11 and 12, he says, I've learned how to be content in whatever circumstance. I've learned the secret of being content in every situation, which is to say, I'm the same in one situation as the other.
 
@@ -50,7 +50,7 @@ He said, I've learned it. What does that mean? It's not natural to me, in fact.
 
 It's not natural to you either. I've learned it. This calm so that I've got this equilibrium in any situation.
 
-But that's not the only thing. The second thing Paul tells us about the character of this piece. It's not just an absence of fear.
+But that's not the only thing. The second thing Paul tells us about the character of this peace. It's not just an absence of fear.
 
 It's the presence of something. In particular, it's a sense of being protected. Because that doesn't come out as well in English as it should.
 
@@ -99,9 +99,9 @@ He's right. When he said, I have found a way to be completely poised under any c
 
 All the waves of life could not break him. And he says, this isn't a natural talent. You can learn this.
 
-So that's the character of Christian peace. It's an inner calm and an equal living that comes from that, but also a sense of God's presence and almost a reason transcending sense of his protection. Number one, number two, what then are the disciplines by which you can develop this piece?
+So that's the character of Christian peace. It's an inner calm and an equal living that comes from that, but also a sense of God's presence and almost a reason transcending sense of his protection. Number one, number two, what then are the disciplines by which you can develop this peace?
 
-Because actually, Paul's giving lots of advice in here, lots of advice on how you can develop this piece and have this piece of God too. And there's three disciplines. And I'll name them thinking, thanking and loving.
+Because actually, Paul's giving lots of advice in here, lots of advice on how you can develop this peace and have this peace of God too. And there's three disciplines. And I'll name them thinking, thanking and loving.
 
 I know the third one should be a TH, but I couldn't figure it out. Thinking, thanking and loving. Thinking.
 
@@ -170,9 +170,9 @@ God, there's a God and He made us for fellowship with Him and He created a perfe
 
 Look at your value, look at the fact that the future is secure now. What does that mean? If you're a Christian today and you believe all that doctrine and you're not at peace, you're not thinking.
 
-Isn't that something? You're not thinking. See, there's a stupid piece and then there's a smart piece.
+Isn't that something? You're not thinking. See, there's a stupid peace and then there's a smart peace.
 
-Let me tell you the stupid piece. Stupid pieces. Ho, ho, ho, to the bottle I go, to heal my heart and drown my woe.
+Let me tell you the stupid peace. Stupid peace. Ho, ho, ho, to the bottle I go, to heal my heart and drown my woe.
 
 Now what's that? A couple, I'm going to pop a cork. I'm going to sit under a tree.
 
@@ -182,7 +182,7 @@ I'm not going to think as much. But the Paul is saying, if you're a Christian, y
 
 You think big, big picture. Everything's going to be okay. You know, if you really believe just the basic Christian truth and you think it and think it and think about it, you're going to get peace.
 
-And if you don't have peace, you're not thinking. There's stupid piece and there's smart piece and Christian's piece is not by making yourself stupid. It's by making yourself as aware of your beliefs as thoughtful as possible.
+And if you don't have peace, you're not thinking. There's stupid peace and there's smart peace and Christian's peace is not by making yourself stupid. It's by making yourself as aware of your beliefs as thoughtful as possible.
 
 That's only number one. Because if you first learn the discipline of thinking, then secondly, there's the discipline of thinking. Because see how very important that is in verse six.
 
@@ -295,7 +295,7 @@ And then he said, only love of the immutable can bring tranquility. Only love of
 
 That which cannot change. Your virtue can change. Don't give me this stuff about control.
 
-He says, your problem is that our problem, the reason we don't have pieces, we're loving mutable things, things that circumstances, including our virtue can take away from us. But there's one thing that's immutable that not only can circumstances not take it away from you, but even the worst circumstances in this life only give you more of it. Have you thought about that?
+He says, your problem is that our problem, the reason we don't have peace is, we're loving mutable things, things that circumstances, including our virtue can take away from us. But there's one thing that's immutable that not only can circumstances not take it away from you, but even the worst circumstances in this life only give you more of it. Have you thought about that?
 
 What's the worst circumstances? Violent death. And there's one thing that if you love it supremely, even violent death gives you more of it.
 
